@@ -1,0 +1,577 @@
+---
+title: "\"[Updated] 2024 Approved  Trimming Footage for Insta on macOS\""
+date: 2024-05-21T21:53:38.611Z
+updated: 2024-05-22T21:53:38.611Z
+tags:
+  - ai video
+  - ai instagram
+  - ai instagram video
+categories:
+  - ai
+  - instagram
+description: "\"This Article Describes [Updated] 2024 Approved: Trimming Footage for Insta on macOS\""
+excerpt: "\"This Article Describes [Updated] 2024 Approved: Trimming Footage for Insta on macOS\""
+keywords: "MacOS Video Cutting,Instagram Editing,Short Film Making,Quick Media Trim,Direct Video Edit,Efficient Footage Prep,Streamlined Video Cut"
+thumbnail: https://www.lifewire.com/thmb/zVgSbmiiyxhIQqilmdMyockJPx8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-641174594-bdeb3169be1f4334a6a40ad7934fdd97.jpg
+---
+
+## Trimming Footage for Insta on macOS
+
+# How To Cut Video For Instagram On Mac
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+##### Ollie Mattison
+
+ Oct 26, 2023• Proven solutions
+
+How do you cut the length of a video on Instagram?
+
+The two ways of shortening the video are “split’ and “speed up.” Instagram has built-in features that cut video length automatically when you upload them. The length limits are;
+
+* Instagram stories, it’s **15 seconds.**
+* Instagram feed, it’s **3 to 60 seconds.**
+* IGTV, it’s between **15 seconds to 10 minutes** for non-verified accounts. For verified accounts, it gets cut at 60 minutes.
+
+This article will teach you the two ways to cut the length of a video on Mac before you upload it on Instagram.
+
+* [Section 1\. Split up the video to fit on Instagram](#section1.split-up-the-video)
+* [Section 2\. Speed up the video to fit on Instagram](#section2.speed-up-video)
+
+## Section 1.  Split up the video to fit on Instagram
+
+Splitting your Instagram videos before sharing them allows you to make the video programs look like a continuous story.
+
+ Again, it enhances the flow of the videos enabling your audience to see the context at a glance.
+
+The best Instagram video editing tool to use on a Mac is [Wondershare Filmora X video editor.](https://tools.techidaily.com/wondershare/filmora/download/) This tool does more than just cut the length of your Instagram video.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Filmora X makes complex videos easy using advanced features. It’s a drag & drop tool; add video effects, filters, and motion elements which Instagram video editing features don’t offer.
+
+**The method of splitting your videos to fit on Instagram using this Filmora tool has the following steps;**
+
+**Step1\. Download [Wondershare Filmora X Video Editor.](https://tools.techidaily.com/wondershare/filmora/download/)**
+
+On your Mac, launch the Filmora video editor, by clicking on this link. Ensure to install the program well on your computer, then run this software to shorten your Instagram video.
+
+**Step2\. Import Instagram video to the tool.**
+
+You can do this in two simple ways. First, click ‘Import Media Files Here’ to obtain an Instagram video from your desktop. Second, drag and drop the video on the timeline.
+
+![import-video](https://images.wondershare.com/filmora/filmoraX/Guide-Mac/1.index-introduction.jpg)
+
+**Step3\. Cut the Instagram video either from the beginning or end part.**
+
+Trim the video from either end. Start by moving the cursor to either side till the clip changes to the “I” pointer. You can move the pointer within the video length to cut.
+
+![mac select clip1](https://images.wondershare.com/filmora/guide/mac-select-clip1.jpg)
+
+**Step4\. Split the Instagram video into sections.**
+
+Separate each specific portion you have cut by dragging the slider within your set endpoints, then press the ‘scissors’ icon—Right-click the video and select ‘Download’ to complete the process.
+
+In this step, you can click any clips and do more editing. With Wondershare Filmora for Mac guide, you can add elements, transitions, and sound effects to beautify your Instagram videos.
+
+![mac split option2](https://images.wondershare.com/filmora/guide/mac-split-option2.jpg)
+
+You may like: [How to Add Music to IG story](https://tools.techidaily.com/wondershare/filmora/download/)
+
+**Step5\. Export Instagram Video**
+
+In this last step, you hit ‘Export’ on the timeline, choose an appropriate format you want the video, and press ‘Export.’ You can upload the edited video directly to Instagram or select where to locate it later.
+
+![export file on filmorax](https://images.wondershare.com/filmora/Mac-articles/export-file-on-filmorax.jpg)
+
+## Section 2. Speed up the video to fit on Instagram
+
+Increasing the video playback speed can also achieve the effect of shortening the Instagram video length. You can accelerate the speed of your Instagram videos with [Wondershare Filmora X](https://tools.techidaily.com/wondershare/filmora/download/) easily.
+
+Here is a step-by-step guide;
+
+**Step1\. Upload the Instagram video on Filmora video editor**
+
+Import your edited Instagram clips or a new video to edit its speed on Wondershare Filmora. Don’t worry about the format of the video. Filmora supports almost all video formats.
+
+![import-video-on-mac](https://images.wondershare.com/filmora/Mac-articles/import.jpg)
+
+**Step2\. One-click to speed up the video**
+
+Drag the Instagram video to the track on the Timeline. When you right-click, Speed and Duration will appear as a pop-up on the screen with speed numbers. This will indicate the speed at which you can adjust to what you want.
+
+1 is the original speed, 2 will double the rate, and you can adjust the video’s pace onwards.
+
+Again, you can increase the Instagram video speed by dragging the speed slider to the right.
+
+![speed-up-video-on-mac](https://images.wondershare.com/filmora/guide/filmora-mac-change-speed.jpg)
+
+**Step 3\. Adjust sound Instagram video’s audio sound.**
+
+Video audio speed changes with speed adjustment. If you want to keep the original audio speed, detach the audio from the video, do some editing like removing background noise. You will need to double click on the audio editing panel.
+
+![ajust-sound-on-instagram](https://images.wondershare.com/filmora/Mac-articles/detach%20audio.jpg)
+
+Maybe you have wanted to add a new sound; here is a guide on replacing audio in a video in Filmora
+
+In a world where social media reduces human attention fast, increasing Instagram video speed might be the best idea to deliver your message quickly when using video.
+
+## Conclusion
+
+However, these two ways of cutting video length to fit Instagram have their advantages and disadvantages.
+
+| **Advantages including:**    | Provide more details in less time.                                                                                                                                                | Attention is the new currency. To get more viewers for your Instagram video as users are quickly scrolling the news feed to find cool videos, yours has to increase watching speed. Again, you get to pass more details to your audience in less time. |
+| ---------------------------- | --------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- | ------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------ |
+| Create a cinematic feel      | Increased video speed creates a motion effect that makes the video cool to watch. This can draw attention to your Instagram viewers resulting in more engagement.                 |                                                                                                                                                                                                                                                        |
+| Corrects missing timestamps  | When recording Instagram videos, you sometimes record not as clear due to camera motion. With accelerating speed, you can correct these errors and remove any missing timestamps. |                                                                                                                                                                                                                                                        |
+| **Disadvantages including:** | Audio distortion                                                                                                                                                                  | When increasing video speed, the audio is affected. To get the original sound, you need to edit it. Or better yet, you can add a new soundtrack, which will you a little more time to edit.                                                            |
+| Increased video size         | When accelerating the speed of Instagram video when editing increases the video size, this, in turn, loads very slow when uploading on Instagram.                                 |                                                                                                                                                                                                                                                        |
+
+You can also solve this by ensuring your internet speed is high when updating your Instagram account with video.
+
+Cutting your Instagram video length on your Mac is easier than you think. The above step-by-step guide will help you cut the perfect Instagram video clips to share with your followers and see your engagement skyrocket.
+
+With increased video speed, you can quickly spread your message with more details in a concise, well-edited Instagram video.
+
+You may like:[8 Free Instagram Story Savers -Save Instagram Stories without Limits](https://tools.techidaily.com/wondershare/filmora/download/)
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+##### Ollie Mattison
+
+ Oct 26, 2023• Proven solutions
+
+How do you cut the length of a video on Instagram?
+
+The two ways of shortening the video are “split’ and “speed up.” Instagram has built-in features that cut video length automatically when you upload them. The length limits are;
+
+* Instagram stories, it’s **15 seconds.**
+* Instagram feed, it’s **3 to 60 seconds.**
+* IGTV, it’s between **15 seconds to 10 minutes** for non-verified accounts. For verified accounts, it gets cut at 60 minutes.
+
+This article will teach you the two ways to cut the length of a video on Mac before you upload it on Instagram.
+
+* [Section 1\. Split up the video to fit on Instagram](#section1.split-up-the-video)
+* [Section 2\. Speed up the video to fit on Instagram](#section2.speed-up-video)
+
+## Section 1.  Split up the video to fit on Instagram
+
+Splitting your Instagram videos before sharing them allows you to make the video programs look like a continuous story.
+
+ Again, it enhances the flow of the videos enabling your audience to see the context at a glance.
+
+The best Instagram video editing tool to use on a Mac is [Wondershare Filmora X video editor.](https://tools.techidaily.com/wondershare/filmora/download/) This tool does more than just cut the length of your Instagram video.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Filmora X makes complex videos easy using advanced features. It’s a drag & drop tool; add video effects, filters, and motion elements which Instagram video editing features don’t offer.
+
+**The method of splitting your videos to fit on Instagram using this Filmora tool has the following steps;**
+
+**Step1\. Download [Wondershare Filmora X Video Editor.](https://tools.techidaily.com/wondershare/filmora/download/)**
+
+On your Mac, launch the Filmora video editor, by clicking on this link. Ensure to install the program well on your computer, then run this software to shorten your Instagram video.
+
+**Step2\. Import Instagram video to the tool.**
+
+You can do this in two simple ways. First, click ‘Import Media Files Here’ to obtain an Instagram video from your desktop. Second, drag and drop the video on the timeline.
+
+![import-video](https://images.wondershare.com/filmora/filmoraX/Guide-Mac/1.index-introduction.jpg)
+
+**Step3\. Cut the Instagram video either from the beginning or end part.**
+
+Trim the video from either end. Start by moving the cursor to either side till the clip changes to the “I” pointer. You can move the pointer within the video length to cut.
+
+![mac select clip1](https://images.wondershare.com/filmora/guide/mac-select-clip1.jpg)
+
+**Step4\. Split the Instagram video into sections.**
+
+Separate each specific portion you have cut by dragging the slider within your set endpoints, then press the ‘scissors’ icon—Right-click the video and select ‘Download’ to complete the process.
+
+In this step, you can click any clips and do more editing. With Wondershare Filmora for Mac guide, you can add elements, transitions, and sound effects to beautify your Instagram videos.
+
+![mac split option2](https://images.wondershare.com/filmora/guide/mac-split-option2.jpg)
+
+You may like: [How to Add Music to IG story](https://tools.techidaily.com/wondershare/filmora/download/)
+
+**Step5\. Export Instagram Video**
+
+In this last step, you hit ‘Export’ on the timeline, choose an appropriate format you want the video, and press ‘Export.’ You can upload the edited video directly to Instagram or select where to locate it later.
+
+![export file on filmorax](https://images.wondershare.com/filmora/Mac-articles/export-file-on-filmorax.jpg)
+
+## Section 2. Speed up the video to fit on Instagram
+
+Increasing the video playback speed can also achieve the effect of shortening the Instagram video length. You can accelerate the speed of your Instagram videos with [Wondershare Filmora X](https://tools.techidaily.com/wondershare/filmora/download/) easily.
+
+Here is a step-by-step guide;
+
+**Step1\. Upload the Instagram video on Filmora video editor**
+
+Import your edited Instagram clips or a new video to edit its speed on Wondershare Filmora. Don’t worry about the format of the video. Filmora supports almost all video formats.
+
+![import-video-on-mac](https://images.wondershare.com/filmora/Mac-articles/import.jpg)
+
+**Step2\. One-click to speed up the video**
+
+Drag the Instagram video to the track on the Timeline. When you right-click, Speed and Duration will appear as a pop-up on the screen with speed numbers. This will indicate the speed at which you can adjust to what you want.
+
+1 is the original speed, 2 will double the rate, and you can adjust the video’s pace onwards.
+
+Again, you can increase the Instagram video speed by dragging the speed slider to the right.
+
+![speed-up-video-on-mac](https://images.wondershare.com/filmora/guide/filmora-mac-change-speed.jpg)
+
+**Step 3\. Adjust sound Instagram video’s audio sound.**
+
+Video audio speed changes with speed adjustment. If you want to keep the original audio speed, detach the audio from the video, do some editing like removing background noise. You will need to double click on the audio editing panel.
+
+![ajust-sound-on-instagram](https://images.wondershare.com/filmora/Mac-articles/detach%20audio.jpg)
+
+Maybe you have wanted to add a new sound; here is a guide on replacing audio in a video in Filmora
+
+In a world where social media reduces human attention fast, increasing Instagram video speed might be the best idea to deliver your message quickly when using video.
+
+## Conclusion
+
+However, these two ways of cutting video length to fit Instagram have their advantages and disadvantages.
+
+| **Advantages including:**    | Provide more details in less time.                                                                                                                                                | Attention is the new currency. To get more viewers for your Instagram video as users are quickly scrolling the news feed to find cool videos, yours has to increase watching speed. Again, you get to pass more details to your audience in less time. |
+| ---------------------------- | --------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- | ------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------ |
+| Create a cinematic feel      | Increased video speed creates a motion effect that makes the video cool to watch. This can draw attention to your Instagram viewers resulting in more engagement.                 |                                                                                                                                                                                                                                                        |
+| Corrects missing timestamps  | When recording Instagram videos, you sometimes record not as clear due to camera motion. With accelerating speed, you can correct these errors and remove any missing timestamps. |                                                                                                                                                                                                                                                        |
+| **Disadvantages including:** | Audio distortion                                                                                                                                                                  | When increasing video speed, the audio is affected. To get the original sound, you need to edit it. Or better yet, you can add a new soundtrack, which will you a little more time to edit.                                                            |
+| Increased video size         | When accelerating the speed of Instagram video when editing increases the video size, this, in turn, loads very slow when uploading on Instagram.                                 |                                                                                                                                                                                                                                                        |
+
+You can also solve this by ensuring your internet speed is high when updating your Instagram account with video.
+
+Cutting your Instagram video length on your Mac is easier than you think. The above step-by-step guide will help you cut the perfect Instagram video clips to share with your followers and see your engagement skyrocket.
+
+With increased video speed, you can quickly spread your message with more details in a concise, well-edited Instagram video.
+
+You may like:[8 Free Instagram Story Savers -Save Instagram Stories without Limits](https://tools.techidaily.com/wondershare/filmora/download/)
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+##### Ollie Mattison
+
+ Oct 26, 2023• Proven solutions
+
+How do you cut the length of a video on Instagram?
+
+The two ways of shortening the video are “split’ and “speed up.” Instagram has built-in features that cut video length automatically when you upload them. The length limits are;
+
+* Instagram stories, it’s **15 seconds.**
+* Instagram feed, it’s **3 to 60 seconds.**
+* IGTV, it’s between **15 seconds to 10 minutes** for non-verified accounts. For verified accounts, it gets cut at 60 minutes.
+
+This article will teach you the two ways to cut the length of a video on Mac before you upload it on Instagram.
+
+* [Section 1\. Split up the video to fit on Instagram](#section1.split-up-the-video)
+* [Section 2\. Speed up the video to fit on Instagram](#section2.speed-up-video)
+
+## Section 1.  Split up the video to fit on Instagram
+
+Splitting your Instagram videos before sharing them allows you to make the video programs look like a continuous story.
+
+ Again, it enhances the flow of the videos enabling your audience to see the context at a glance.
+
+The best Instagram video editing tool to use on a Mac is [Wondershare Filmora X video editor.](https://tools.techidaily.com/wondershare/filmora/download/) This tool does more than just cut the length of your Instagram video.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Filmora X makes complex videos easy using advanced features. It’s a drag & drop tool; add video effects, filters, and motion elements which Instagram video editing features don’t offer.
+
+**The method of splitting your videos to fit on Instagram using this Filmora tool has the following steps;**
+
+**Step1\. Download [Wondershare Filmora X Video Editor.](https://tools.techidaily.com/wondershare/filmora/download/)**
+
+On your Mac, launch the Filmora video editor, by clicking on this link. Ensure to install the program well on your computer, then run this software to shorten your Instagram video.
+
+**Step2\. Import Instagram video to the tool.**
+
+You can do this in two simple ways. First, click ‘Import Media Files Here’ to obtain an Instagram video from your desktop. Second, drag and drop the video on the timeline.
+
+![import-video](https://images.wondershare.com/filmora/filmoraX/Guide-Mac/1.index-introduction.jpg)
+
+**Step3\. Cut the Instagram video either from the beginning or end part.**
+
+Trim the video from either end. Start by moving the cursor to either side till the clip changes to the “I” pointer. You can move the pointer within the video length to cut.
+
+![mac select clip1](https://images.wondershare.com/filmora/guide/mac-select-clip1.jpg)
+
+**Step4\. Split the Instagram video into sections.**
+
+Separate each specific portion you have cut by dragging the slider within your set endpoints, then press the ‘scissors’ icon—Right-click the video and select ‘Download’ to complete the process.
+
+In this step, you can click any clips and do more editing. With Wondershare Filmora for Mac guide, you can add elements, transitions, and sound effects to beautify your Instagram videos.
+
+![mac split option2](https://images.wondershare.com/filmora/guide/mac-split-option2.jpg)
+
+You may like: [How to Add Music to IG story](https://tools.techidaily.com/wondershare/filmora/download/)
+
+**Step5\. Export Instagram Video**
+
+In this last step, you hit ‘Export’ on the timeline, choose an appropriate format you want the video, and press ‘Export.’ You can upload the edited video directly to Instagram or select where to locate it later.
+
+![export file on filmorax](https://images.wondershare.com/filmora/Mac-articles/export-file-on-filmorax.jpg)
+
+## Section 2. Speed up the video to fit on Instagram
+
+Increasing the video playback speed can also achieve the effect of shortening the Instagram video length. You can accelerate the speed of your Instagram videos with [Wondershare Filmora X](https://tools.techidaily.com/wondershare/filmora/download/) easily.
+
+Here is a step-by-step guide;
+
+**Step1\. Upload the Instagram video on Filmora video editor**
+
+Import your edited Instagram clips or a new video to edit its speed on Wondershare Filmora. Don’t worry about the format of the video. Filmora supports almost all video formats.
+
+![import-video-on-mac](https://images.wondershare.com/filmora/Mac-articles/import.jpg)
+
+**Step2\. One-click to speed up the video**
+
+Drag the Instagram video to the track on the Timeline. When you right-click, Speed and Duration will appear as a pop-up on the screen with speed numbers. This will indicate the speed at which you can adjust to what you want.
+
+1 is the original speed, 2 will double the rate, and you can adjust the video’s pace onwards.
+
+Again, you can increase the Instagram video speed by dragging the speed slider to the right.
+
+![speed-up-video-on-mac](https://images.wondershare.com/filmora/guide/filmora-mac-change-speed.jpg)
+
+**Step 3\. Adjust sound Instagram video’s audio sound.**
+
+Video audio speed changes with speed adjustment. If you want to keep the original audio speed, detach the audio from the video, do some editing like removing background noise. You will need to double click on the audio editing panel.
+
+![ajust-sound-on-instagram](https://images.wondershare.com/filmora/Mac-articles/detach%20audio.jpg)
+
+Maybe you have wanted to add a new sound; here is a guide on replacing audio in a video in Filmora
+
+In a world where social media reduces human attention fast, increasing Instagram video speed might be the best idea to deliver your message quickly when using video.
+
+## Conclusion
+
+However, these two ways of cutting video length to fit Instagram have their advantages and disadvantages.
+
+| **Advantages including:**    | Provide more details in less time.                                                                                                                                                | Attention is the new currency. To get more viewers for your Instagram video as users are quickly scrolling the news feed to find cool videos, yours has to increase watching speed. Again, you get to pass more details to your audience in less time. |
+| ---------------------------- | --------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- | ------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------ |
+| Create a cinematic feel      | Increased video speed creates a motion effect that makes the video cool to watch. This can draw attention to your Instagram viewers resulting in more engagement.                 |                                                                                                                                                                                                                                                        |
+| Corrects missing timestamps  | When recording Instagram videos, you sometimes record not as clear due to camera motion. With accelerating speed, you can correct these errors and remove any missing timestamps. |                                                                                                                                                                                                                                                        |
+| **Disadvantages including:** | Audio distortion                                                                                                                                                                  | When increasing video speed, the audio is affected. To get the original sound, you need to edit it. Or better yet, you can add a new soundtrack, which will you a little more time to edit.                                                            |
+| Increased video size         | When accelerating the speed of Instagram video when editing increases the video size, this, in turn, loads very slow when uploading on Instagram.                                 |                                                                                                                                                                                                                                                        |
+
+You can also solve this by ensuring your internet speed is high when updating your Instagram account with video.
+
+Cutting your Instagram video length on your Mac is easier than you think. The above step-by-step guide will help you cut the perfect Instagram video clips to share with your followers and see your engagement skyrocket.
+
+With increased video speed, you can quickly spread your message with more details in a concise, well-edited Instagram video.
+
+You may like:[8 Free Instagram Story Savers -Save Instagram Stories without Limits](https://tools.techidaily.com/wondershare/filmora/download/)
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+##### Ollie Mattison
+
+ Oct 26, 2023• Proven solutions
+
+How do you cut the length of a video on Instagram?
+
+The two ways of shortening the video are “split’ and “speed up.” Instagram has built-in features that cut video length automatically when you upload them. The length limits are;
+
+* Instagram stories, it’s **15 seconds.**
+* Instagram feed, it’s **3 to 60 seconds.**
+* IGTV, it’s between **15 seconds to 10 minutes** for non-verified accounts. For verified accounts, it gets cut at 60 minutes.
+
+This article will teach you the two ways to cut the length of a video on Mac before you upload it on Instagram.
+
+* [Section 1\. Split up the video to fit on Instagram](#section1.split-up-the-video)
+* [Section 2\. Speed up the video to fit on Instagram](#section2.speed-up-video)
+
+## Section 1.  Split up the video to fit on Instagram
+
+Splitting your Instagram videos before sharing them allows you to make the video programs look like a continuous story.
+
+ Again, it enhances the flow of the videos enabling your audience to see the context at a glance.
+
+The best Instagram video editing tool to use on a Mac is [Wondershare Filmora X video editor.](https://tools.techidaily.com/wondershare/filmora/download/) This tool does more than just cut the length of your Instagram video.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Filmora X makes complex videos easy using advanced features. It’s a drag & drop tool; add video effects, filters, and motion elements which Instagram video editing features don’t offer.
+
+**The method of splitting your videos to fit on Instagram using this Filmora tool has the following steps;**
+
+**Step1\. Download [Wondershare Filmora X Video Editor.](https://tools.techidaily.com/wondershare/filmora/download/)**
+
+On your Mac, launch the Filmora video editor, by clicking on this link. Ensure to install the program well on your computer, then run this software to shorten your Instagram video.
+
+**Step2\. Import Instagram video to the tool.**
+
+You can do this in two simple ways. First, click ‘Import Media Files Here’ to obtain an Instagram video from your desktop. Second, drag and drop the video on the timeline.
+
+![import-video](https://images.wondershare.com/filmora/filmoraX/Guide-Mac/1.index-introduction.jpg)
+
+**Step3\. Cut the Instagram video either from the beginning or end part.**
+
+Trim the video from either end. Start by moving the cursor to either side till the clip changes to the “I” pointer. You can move the pointer within the video length to cut.
+
+![mac select clip1](https://images.wondershare.com/filmora/guide/mac-select-clip1.jpg)
+
+**Step4\. Split the Instagram video into sections.**
+
+Separate each specific portion you have cut by dragging the slider within your set endpoints, then press the ‘scissors’ icon—Right-click the video and select ‘Download’ to complete the process.
+
+In this step, you can click any clips and do more editing. With Wondershare Filmora for Mac guide, you can add elements, transitions, and sound effects to beautify your Instagram videos.
+
+![mac split option2](https://images.wondershare.com/filmora/guide/mac-split-option2.jpg)
+
+You may like: [How to Add Music to IG story](https://tools.techidaily.com/wondershare/filmora/download/)
+
+**Step5\. Export Instagram Video**
+
+In this last step, you hit ‘Export’ on the timeline, choose an appropriate format you want the video, and press ‘Export.’ You can upload the edited video directly to Instagram or select where to locate it later.
+
+![export file on filmorax](https://images.wondershare.com/filmora/Mac-articles/export-file-on-filmorax.jpg)
+
+## Section 2. Speed up the video to fit on Instagram
+
+Increasing the video playback speed can also achieve the effect of shortening the Instagram video length. You can accelerate the speed of your Instagram videos with [Wondershare Filmora X](https://tools.techidaily.com/wondershare/filmora/download/) easily.
+
+Here is a step-by-step guide;
+
+**Step1\. Upload the Instagram video on Filmora video editor**
+
+Import your edited Instagram clips or a new video to edit its speed on Wondershare Filmora. Don’t worry about the format of the video. Filmora supports almost all video formats.
+
+![import-video-on-mac](https://images.wondershare.com/filmora/Mac-articles/import.jpg)
+
+**Step2\. One-click to speed up the video**
+
+Drag the Instagram video to the track on the Timeline. When you right-click, Speed and Duration will appear as a pop-up on the screen with speed numbers. This will indicate the speed at which you can adjust to what you want.
+
+1 is the original speed, 2 will double the rate, and you can adjust the video’s pace onwards.
+
+Again, you can increase the Instagram video speed by dragging the speed slider to the right.
+
+![speed-up-video-on-mac](https://images.wondershare.com/filmora/guide/filmora-mac-change-speed.jpg)
+
+**Step 3\. Adjust sound Instagram video’s audio sound.**
+
+Video audio speed changes with speed adjustment. If you want to keep the original audio speed, detach the audio from the video, do some editing like removing background noise. You will need to double click on the audio editing panel.
+
+![ajust-sound-on-instagram](https://images.wondershare.com/filmora/Mac-articles/detach%20audio.jpg)
+
+Maybe you have wanted to add a new sound; here is a guide on replacing audio in a video in Filmora
+
+In a world where social media reduces human attention fast, increasing Instagram video speed might be the best idea to deliver your message quickly when using video.
+
+## Conclusion
+
+However, these two ways of cutting video length to fit Instagram have their advantages and disadvantages.
+
+| **Advantages including:**    | Provide more details in less time.                                                                                                                                                | Attention is the new currency. To get more viewers for your Instagram video as users are quickly scrolling the news feed to find cool videos, yours has to increase watching speed. Again, you get to pass more details to your audience in less time. |
+| ---------------------------- | --------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- | ------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------ |
+| Create a cinematic feel      | Increased video speed creates a motion effect that makes the video cool to watch. This can draw attention to your Instagram viewers resulting in more engagement.                 |                                                                                                                                                                                                                                                        |
+| Corrects missing timestamps  | When recording Instagram videos, you sometimes record not as clear due to camera motion. With accelerating speed, you can correct these errors and remove any missing timestamps. |                                                                                                                                                                                                                                                        |
+| **Disadvantages including:** | Audio distortion                                                                                                                                                                  | When increasing video speed, the audio is affected. To get the original sound, you need to edit it. Or better yet, you can add a new soundtrack, which will you a little more time to edit.                                                            |
+| Increased video size         | When accelerating the speed of Instagram video when editing increases the video size, this, in turn, loads very slow when uploading on Instagram.                                 |                                                                                                                                                                                                                                                        |
+
+You can also solve this by ensuring your internet speed is high when updating your Instagram account with video.
+
+Cutting your Instagram video length on your Mac is easier than you think. The above step-by-step guide will help you cut the perfect Instagram video clips to share with your followers and see your engagement skyrocket.
+
+With increased video speed, you can quickly spread your message with more details in a concise, well-edited Instagram video.
+
+You may like:[8 Free Instagram Story Savers -Save Instagram Stories without Limits](https://tools.techidaily.com/wondershare/filmora/download/)
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-how-to-add-auto-captions-to-instagram-stories-and-reels/"><u>2024 Approved  How to Add Auto Captions to Instagram Stories and Reels?</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-instagrams-best-but-unseen-your-guide/"><u>[New] 2024 Approved  Instagram's Best, But Unseen - Your Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-engage-your-audience-launching-instagram-lives/"><u>[Updated] 2024 Approved  Engage Your Audience  Launching Instagram Lives</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-fast-guide-mastering-instagram-live-conversations/"><u>[New] In 2024, Fast Guide  Mastering Instagram Live Conversations</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-decoding-how-to-effectively-swap-photo-genders-online-a-comprehensive-approach/"><u>[Updated] Decoding How to Effectively Swap Photo Genders Online  A Comprehensive Approach</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-understanding-the-dynamics-of-instagram-unfollows-for-2024/"><u>[Updated] Understanding the Dynamics of Instagram Unfollows for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-cutting-edge-videography-bordering-techniques-for-ig/"><u>2024 Approved  Cutting-Edge Videography  Bordering Techniques for IG</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-crafting-shareable-instagram-stories-that-spread-like-wildfire/"><u>In 2024, Crafting Shareable Instagram Stories That Spread Like Wildfire</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-elevate-your-engagement-essential-apps-for-insta-growth/"><u>[Updated] 2024 Approved  Elevate Your Engagement  Essential Apps for Insta Growth</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-stand-out-with-visual-flair-bordered-video-tutorials-for-2024/"><u>[New] Stand Out with Visual Flair  Bordered Video Tutorials for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-elevate-your-content-game-mastering-the-art-of-instagram-video-uploads-on-desktop/"><u>[Updated] Elevate Your Content Game  Mastering the Art of Instagram Video Uploads on Desktop</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-perfect-posts-enhance-videos-before-sharing-on-instagram/"><u>[New] Perfect Posts  Enhance Videos Before Sharing on Instagram</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-unveiling-the-trick-how-to-store-instagram-content-on-pc-and-macos/"><u>In 2024, Unveiling the Trick  How to Store Instagram Content on PC and macOS</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-unlocking-instagrams-monetization-secrets/"><u>2024 Approved  Unlocking Instagram’s Monetization Secrets</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-unlock-the-secret-to-insta-cash-with-our-guidebook/"><u>2024 Approved  Unlock the Secret to Insta Cash with Our Guidebook</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-the-zoomers-guide-to-instagram-story-clarity/"><u>[New] 2024 Approved  The Zoomer’s Guide to Instagram Story Clarity</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-making-history-shine-again-instagram-effects-for-your-archive-for-2024/"><u>[Updated] Making History Shine Again  Instagram Effects for Your Archive for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-from-content-creator-to-cash-magnet-instagrams-guide-for-2024/"><u>[Updated] From Content Creator to Cash Magnet  Instagram's Guide for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/guide-to-completely-erase-data-on-iphone-13-pro-to-avoid-privacy-leak-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Guide to Completely Erase Data on iPhone 13 Pro to Avoid Privacy Leak | Stellar</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-best-performing-8-recording-software-picks/"><u>[Updated] Best Performing 8 Recording Software Picks</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-remove-a-previously-synced-google-account-from-your-samsung-by-drfone-android/"><u>How to Remove a Previously Synced Google Account from Your Samsung</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-enriching-your-social-media-footprint-live-streaming-via-wirecast/"><u>[New] In 2024, Enriching Your Social Media Footprint  Live Streaming via Wirecast</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/new-how-to-speed-up-a-video-on-splice/"><u>New How to Speed up a Video on Splice</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/briskbounce-momentmirror-tape-for-2024/"><u>BriskBounce MomentMirror Tape for 2024</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/review-whats-best-10-software-to-make-ai-upscaling-video-for-2024/"><u>REVIEW Whats Best 10 Software to Make AI Upscaling Video for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-os-x-mavericks-mp4-editor-trim-cut-and-enhance-your-videos/"><u>New In 2024, OS X Mavericks MP4 Editor Trim, Cut, and Enhance Your Videos</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/master-the-art-of-iphone-7-screen-capture/"><u>Master the Art of iPhone 7 Screen Capture</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/7-ways-to-unlock-a-locked-vivo-v27e-phone-by-drfone-android/"><u>7 Ways to Unlock a Locked Vivo V27e Phone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-iphone-6s-plus-3-ways-to-unlock-by-drfone-ios/"><u>In 2024, How To Unlock iPhone 6s Plus 3 Ways To Unlock</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-vivo-x100-pro-without-the-home-button-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Vivo X100 Pro Without the Home Button | Dr.fone</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3utools-virtual-location-not-working-on-oppo-find-x7-ultra-fix-now-drfone-by-drfone-virtual-android/"><u>3uTools Virtual Location Not Working On Oppo Find X7 Ultra? Fix Now | Dr.fone</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/in-2024-the-ultimate-mac-user-manual-efficient-techniques-for-storing-ambient-sounds/"><u>In 2024, The Ultimate Mac User Manual Efficient Techniques for Storing Ambient Sounds</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-best-tools-to-edit-mp4-tags-on-windows-and-mac/"><u>New 2024 Approved Best Tools to Edit MP4 Tags on Windows and Mac</u></a></li>
+</ul></div>
+
