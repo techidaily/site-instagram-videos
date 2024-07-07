@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] How to Put Multiple Pictures on Insta Story - a Simple Guide for 2024\""
-date: 2024-05-21T22:40:12.892Z
-updated: 2024-05-22T22:40:12.892Z
+date: 2024-07-06T23:09:49.802Z
+updated: 2024-07-07T23:09:49.802Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] How to Put Multiple Pictures on Insta Story - a Simple Guide for 2024\""
 excerpt: "\"This Article Describes [Updated] How to Put Multiple Pictures on Insta Story - a Simple Guide for 2024\""
 keywords: "\"Multi-Pic Instagram Stories,Adding Photos to IG Story,Instagram Picture Series,Pictorial Instagram Storytelling,Combine Images for Story,Multiple Image on Story,Upload Series in Story\""
-thumbnail: https://www.lifewire.com/thmb/xgo6tGI-HONOfys81EHMpcUqTKU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-970157966-65f3dd434f3e4dc98e28a635b8cacc87.jpg
+thumbnail: https://thmb.techidaily.com/77006c539bf1ddb2e2b5e84e1f174870218883325d71d7edbcfdaf185bcde8ae.jpg
 ---
 
 ## Crafting Dazzling Instagram Stories with Multi-Image Techniques

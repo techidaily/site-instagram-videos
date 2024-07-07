@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Viral Visions  Top IG Story Filters\""
-date: 2024-05-21T23:01:48.363Z
-updated: 2024-05-22T23:01:48.363Z
+date: 2024-07-06T23:09:43.409Z
+updated: 2024-07-07T23:09:43.409Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] In 2024, Viral Visions: Top IG Story Filters\""
 excerpt: "\"This Article Describes [New] In 2024, Viral Visions: Top IG Story Filters\""
 keywords: "Viral Filters,IG Filter Trends,Popular IG Stories,Social Media Effects,Engaging Content,Top IG Frames,Visual Storytelling"
-thumbnail: https://www.lifewire.com/thmb/of73MNj3NKSTyCz_FxtQBXrOWEc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/IMG_20181029_144334716_HDR-5bd77873c9e77c005137f538.jpg
+thumbnail: https://thmb.techidaily.com/0fdf2fa9392d7802826e32aaa7c1f7d7a9d236164e77dff001f4eb865ae62af5.jpg
 ---
 
 ## Viral Visions: Top IG Story Filters

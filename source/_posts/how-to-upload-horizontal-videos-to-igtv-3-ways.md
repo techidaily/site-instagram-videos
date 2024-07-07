@@ -1,7 +1,7 @@
 ---
 title: "How to Upload Horizontal Videos to IGTV [3 Ways]"
-date: 2024-05-21T21:53:49.173Z
-updated: 2024-05-22T21:53:49.173Z
+date: 2024-07-06T23:09:44.273Z
+updated: 2024-07-07T23:09:44.273Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes How to Upload Horizontal Videos to IGTV [3 Ways]"
 excerpt: "This Article Describes How to Upload Horizontal Videos to IGTV [3 Ways]"
 keywords: "IGTV Video Upload,Horizontal Video Tutorial,IGTV Media Preparation,IGTV Content Upload Guide,Horizontal Videos for IGTV,IGTV Video Submission Methods,Max Width Video for IGTV"
-thumbnail: https://www.lifewire.com/thmb/HnP_1UAVv4sYwDdp2cN6nOYksIU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/streaminghowimetyourmother-3db8d50886d04952986f232c3b96a9db.jpg
+thumbnail: https://thmb.techidaily.com/8873a1de6b737b1bdaf613e6b23cabb06e207ebbce95a2d263cbd7e4a2de27ba.jpg
 ---
 
 ## How to Upload Horizontal Videos to IGTV [3 Ways]

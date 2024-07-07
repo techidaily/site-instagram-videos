@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Sculpting Visual Stories  Editing Vertical Videos for IG in FCPX\""
-date: 2024-05-21T22:31:27.554Z
-updated: 2024-05-22T22:31:27.554Z
+date: 2024-07-06T23:09:41.081Z
+updated: 2024-07-07T23:09:41.081Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] In 2024, Sculpting Visual Stories: Editing Vertical Videos for IG in FCPX\""
 excerpt: "\"This Article Describes [Updated] In 2024, Sculpting Visual Stories: Editing Vertical Videos for IG in FCPX\""
 keywords: "\"Video Sculpting,Vertical Video Edit,IG Video Editing,FCPX Visual Storytelling,FilmPix Content Creation,Short-Form Video Editing,Social Media Video Crafting\""
-thumbnail: https://www.lifewire.com/thmb/Bi3nR7XDo4lkVyKlwQFQ6BK5F48=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Textplaceholder3-75811d026f244f40a280861ea7fbcba2.jpg
+thumbnail: https://thmb.techidaily.com/193370cfb5fd0062ad7927622f757d95e1534f19599b794b5d420052ed1a0476.jpg
 ---
 
 ## Sculpting Visual Stories: Editing Vertical Videos for IG in FCPX

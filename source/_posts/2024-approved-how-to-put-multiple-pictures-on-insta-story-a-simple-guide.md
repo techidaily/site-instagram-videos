@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  How to Put Multiple Pictures on Insta Story - a Simple Guide\""
-date: 2024-05-21T23:24:20.165Z
-updated: 2024-05-22T23:24:20.165Z
+date: 2024-07-06T23:09:48.663Z
+updated: 2024-07-07T23:09:48.663Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: How to Put Multiple Pictures on Insta Story - a Simple Guide\""
 excerpt: "\"This Article Describes 2024 Approved: How to Put Multiple Pictures on Insta Story - a Simple Guide\""
 keywords: "\"Multi-Pic Instagram Stories,Adding Photos to IG Story,Instagram Picture Series,Pictorial Instagram Storytelling,Combine Images for Story,Multiple Image on Story,Upload Series in Story\""
-thumbnail: https://www.lifewire.com/thmb/ogvf21xqOxwMWROVVkxti03q4C4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1482350048-bb33156f499e48e19fb3fa623dad0219.jpg
+thumbnail: https://thmb.techidaily.com/09131504d6b18963281f522bba9f2baa6f9c4f1ee05a4b5b8a249fec882bec30.jpg
 ---
 
 ## The Dynamic Duo Approach: Using Two Photos in One Instagram Story

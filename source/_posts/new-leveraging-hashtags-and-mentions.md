@@ -1,7 +1,7 @@
 ---
 title: "[New] Leveraging Hashtags and Mentions"
-date: 2024-05-21T23:18:32.782Z
-updated: 2024-05-22T23:18:32.782Z
+date: 2024-07-06T23:09:46.941Z
+updated: 2024-07-07T23:09:46.941Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] Leveraging Hashtags and Mentions"
 excerpt: "This Article Describes [New] Leveraging Hashtags and Mentions"
 keywords: "Hashtag Strategy,Social Media Mentioning,Brand Hashtag Use,Engagement Boosting,Online Hashtag Impact,Mentions for Growth,Optimized Hashtags"
-thumbnail: https://www.lifewire.com/thmb/d4UbfpCSlRGaSW5gWFzzWZx8WGw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/refurb-mac-mini-2020_AV2-878ca9627b2448f7a4261e42d209236a.jpg
+thumbnail: https://thmb.techidaily.com/5dda734007d0cce4f616f2328d041526d598c5a6fb318adf671f70aacd812852.jpg
 ---
 
 ## Leveraging Hashtags and Mentions

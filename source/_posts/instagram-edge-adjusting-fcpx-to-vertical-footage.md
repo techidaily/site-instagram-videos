@@ -1,7 +1,7 @@
 ---
 title: "\"Instagram Edge  Adjusting FCPX to Vertical Footage\""
-date: 2024-05-21T23:51:23.873Z
-updated: 2024-05-22T23:51:23.873Z
+date: 2024-07-06T23:09:46.305Z
+updated: 2024-07-07T23:09:46.305Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Instagram Edge: Adjusting FCPX to Vertical Footage\""
 excerpt: "\"This Article Describes Instagram Edge: Adjusting FCPX to Vertical Footage\""
 keywords: "Vertical Video SEO,FCPX Compatibility,Instagram Adjustments,Mobile Video Editing,Edge Optimization,Content Adaptation,Social Media Footage"
-thumbnail: https://www.lifewire.com/thmb/y_kpFgLUNKPRau83iAyMXrzuqRY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/lock-apps-on-iphone-4164864-65da1428a17643a184731c4a0bc95425.png
+thumbnail: https://thmb.techidaily.com/ea46c2c3bcce8249fe3c90a83e87a709d2898868b39864edef92685020cbb6c9.png
 ---
 
 ## Instagram Edge: Adjusting FCPX to Vertical Footage

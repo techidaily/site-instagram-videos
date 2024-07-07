@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Essential Steps for Resizing Videos in IGTV\""
-date: 2024-05-21T22:56:08.744Z
-updated: 2024-05-22T22:56:08.744Z
+date: 2024-07-06T23:09:48.964Z
+updated: 2024-07-07T23:09:48.964Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] 2024 Approved: Essential Steps for Resizing Videos in IGTV\""
 excerpt: "\"This Article Describes [New] 2024 Approved: Essential Steps for Resizing Videos in IGTV\""
 keywords: "IGTV Video Shrink,Optimal Video Reduce,IGTV Video Resize,Downscale Video IG,Size Video for IGTV,Thumbnail Image Diminish,Video Crop IGTV"
-thumbnail: https://www.lifewire.com/thmb/RVHYcHxZK80TLaMk4bNfK1rMPWY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/getty_images_Morsa_Images-166b38a9c3184b1aa5d051f113d51828.jpg
+thumbnail: https://thmb.techidaily.com/482035835ea328d1609501451811446cad884a7a61227ca3ca092b735291d94d.jpg
 ---
 
 ## Essential Steps for Resizing Videos in IGTV

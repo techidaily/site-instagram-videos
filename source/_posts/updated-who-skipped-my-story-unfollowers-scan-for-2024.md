@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Who Skipped My Story? Unfollowers Scan for 2024"
-date: 2024-05-21T21:35:30.105Z
-updated: 2024-05-22T21:35:30.105Z
+date: 2024-07-06T23:09:51.025Z
+updated: 2024-07-07T23:09:51.025Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] Who Skipped My Story? Unfollowers Scan for 2024"
 excerpt: "This Article Describes [Updated] Who Skipped My Story? Unfollowers Scan for 2024"
 keywords: "Who Skipped Me?,Unfollows Anon,Lost Followers,Disliked Post,Story Missing,Forgotten Friend,Avoid My Stories"
-thumbnail: https://www.lifewire.com/thmb/jD_kFZDJsy0NuwGoh-_aKA_Bnn4=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/computermouse-05fc5beb2a7a4a9eac684f3687bdae70.jpg
+thumbnail: https://thmb.techidaily.com/109f8e41f016b710f8a0ad598776af950e5e0ec716fb01a083b32b51c83dd241.jpg
 ---
 
 ## Who Skipped My Story? Unfollowers Scan

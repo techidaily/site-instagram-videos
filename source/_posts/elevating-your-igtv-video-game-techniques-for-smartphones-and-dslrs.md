@@ -1,7 +1,7 @@
 ---
 title: "\"Elevating Your IGTV Video Game  Techniques for Smartphones and DSLRs\""
-date: 2024-05-21T23:31:20.497Z
-updated: 2024-05-22T23:31:20.497Z
+date: 2024-07-06T23:09:44.575Z
+updated: 2024-07-07T23:09:44.575Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Elevating Your IGTV Video Game: Techniques for Smartphones and DSLRs\""
 excerpt: "\"This Article Describes Elevating Your IGTV Video Game: Techniques for Smartphones and DSLRs\""
 keywords: "\"IGTV Gaming Tips,Mobile Gaming Vids,DSLR Video Gaming,Smartphone Game Clips,Pro Gaming IGTV,High-Res Gaming Videos,Techniques for Gamers\""
-thumbnail: https://www.lifewire.com/thmb/2gxAzAc_OikfHgs7hZQUd2KPfAc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Photos-b2b85ad036374eb1b6a01076ce3bbacd.jpg
+thumbnail: https://thmb.techidaily.com/a55de6d667ce151e4f6994d9b6a4777fce149eccc985ca7253a27ff290bf8c11.jpg
 ---
 
 ## Elevating Your IGTV Video Game: Techniques for Smartphones and DSLRs

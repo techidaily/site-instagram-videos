@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] From Camera Roll to IGTV  Video Upload 101\""
-date: 2024-05-21T22:51:58.275Z
-updated: 2024-05-22T22:51:58.275Z
+date: 2024-07-06T23:09:45.654Z
+updated: 2024-07-07T23:09:45.654Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] From Camera Roll to IGTV: Video Upload 101\""
 excerpt: "\"This Article Describes [Updated] From Camera Roll to IGTV: Video Upload 101\""
 keywords: "IGTV Video Basics,Instagram Video Upload,Quick IGTV Tips,IGTV Content Guide,Streaming on IGTV,Mobile IGTV Upload,IGTV Introduction"
-thumbnail: https://www.lifewire.com/thmb/j1p_eafOIBzeuVMoFiTu1Hxzxe4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Familyroadtrip_Maskot_Getty-c760389eb6e64d6682aa79ceb9552967.jpg
+thumbnail: https://thmb.techidaily.com/07fb7fcd35b1838ffdc588256d8ede2b1811ae53f4a1f3aaa3fc523cba06c6cc.jpg
 ---
 
 ## From Camera Roll to IGTV: Video Upload 101

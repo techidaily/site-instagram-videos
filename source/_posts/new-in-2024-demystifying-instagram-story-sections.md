@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Demystifying Instagram Story Sections"
-date: 2024-05-21T22:50:45.991Z
-updated: 2024-05-22T22:50:45.991Z
+date: 2024-07-06T23:09:46.355Z
+updated: 2024-07-07T23:09:46.355Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] In 2024, Demystifying Instagram Story Sections"
 excerpt: "This Article Describes [New] In 2024, Demystifying Instagram Story Sections"
 keywords: "Stories Section Guide,Instagram Story Parts,Unlocking Story Segments,Understanding Stories Divisions,Explore Story Components,Decode Instagram Sections,Insights on Story Layouts"
-thumbnail: https://www.lifewire.com/thmb/lvNWt3CwrUk6MzsyzMdGZ79CtE0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Instagramhashtag-3841467b1a034d42be8b103a64f93b61.jpg
+thumbnail: https://thmb.techidaily.com/0825c5cfd1c9f8c60055aa627e174f35756a5c00a4e026b76fba822f7faa2ec3.jpg
 ---
 
 ## Demystifying Instagram Story Sections
@@ -47,7 +47,7 @@ Your Stories Archive is a feature that when enabled, ensures your Stories are au
 2. Tap on **Privacy**, then click on **Story**.
 3. Scroll down till you see **Saving,** then turn on **Save story to archive.**
 
-![ Instagram Highlight Archive](https://images.wondershare.com/filmora/article-images/save-story-to-archive-instagram.jpg)
+![Instagram Highlight Archive](https://images.wondershare.com/filmora/article-images/save-story-to-archive-instagram.jpg)
 
 If you choose to create Highlights from your Stories archive, this is how you go about it:
 
@@ -163,7 +163,7 @@ Your Stories Archive is a feature that when enabled, ensures your Stories are au
 2. Tap on **Privacy**, then click on **Story**.
 3. Scroll down till you see **Saving,** then turn on **Save story to archive.**
 
-![ Instagram Highlight Archive](https://images.wondershare.com/filmora/article-images/save-story-to-archive-instagram.jpg)
+![Instagram Highlight Archive](https://images.wondershare.com/filmora/article-images/save-story-to-archive-instagram.jpg)
 
 If you choose to create Highlights from your Stories archive, this is how you go about it:
 
@@ -279,7 +279,7 @@ Your Stories Archive is a feature that when enabled, ensures your Stories are au
 2. Tap on **Privacy**, then click on **Story**.
 3. Scroll down till you see **Saving,** then turn on **Save story to archive.**
 
-![ Instagram Highlight Archive](https://images.wondershare.com/filmora/article-images/save-story-to-archive-instagram.jpg)
+![Instagram Highlight Archive](https://images.wondershare.com/filmora/article-images/save-story-to-archive-instagram.jpg)
 
 If you choose to create Highlights from your Stories archive, this is how you go about it:
 
@@ -395,7 +395,7 @@ Your Stories Archive is a feature that when enabled, ensures your Stories are au
 2. Tap on **Privacy**, then click on **Story**.
 3. Scroll down till you see **Saving,** then turn on **Save story to archive.**
 
-![ Instagram Highlight Archive](https://images.wondershare.com/filmora/article-images/save-story-to-archive-instagram.jpg)
+![Instagram Highlight Archive](https://images.wondershare.com/filmora/article-images/save-story-to-archive-instagram.jpg)
 
 If you choose to create Highlights from your Stories archive, this is how you go about it:
 

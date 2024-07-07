@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Erasing Your Instagram Identity  Step-by-Step Guidebook\""
-date: 2024-05-21T23:09:07.884Z
-updated: 2024-05-22T23:09:07.884Z
+date: 2024-07-06T23:09:43.617Z
+updated: 2024-07-07T23:09:43.617Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] Erasing Your Instagram Identity: Step-by-Step Guidebook\""
 excerpt: "\"This Article Describes [Updated] Erasing Your Instagram Identity: Step-by-Step Guidebook\""
 keywords: "Erase Insta Profile,Identity Wipeout,Identity Hiding,Delete Account Guide,Remove Instagram ID,Privacy On Insta,Oblivion InstaID"
-thumbnail: https://www.lifewire.com/thmb/x4ELePcuvTvISiLzV5DQ1wwDvMw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Microsoft-Build-small-d7911de8b5f5459498b2c3a4536591fc.jpg
+thumbnail: https://thmb.techidaily.com/071483303e8a1f6026bf0da4b7a67ab78d5daef3d5d188bd12d3a2359c4d77ed.jpg
 ---
 
 ## Erasing Your Instagram Identity: Step-by-Step Guidebook

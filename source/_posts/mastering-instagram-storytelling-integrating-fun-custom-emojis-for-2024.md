@@ -1,7 +1,7 @@
 ---
 title: "\"Mastering Instagram Storytelling  Integrating Fun, Custom Emojis for 2024\""
-date: 2024-05-21T23:16:40.914Z
-updated: 2024-05-22T23:16:40.914Z
+date: 2024-07-06T23:09:48.032Z
+updated: 2024-07-07T23:09:48.032Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Mastering Instagram Storytelling: Integrating Fun, Custom Emojis for 2024\""
 excerpt: "\"This Article Describes Mastering Instagram Storytelling: Integrating Fun, Custom Emojis for 2024\""
 keywords: "Storytelling on Insta,Emoji Use in Stories,Fun Story Creation,Custom Story Emojis,Engaging Instagram,Creative Stories,Branding with Emojis"
-thumbnail: https://www.lifewire.com/thmb/HpkGkovLwPPowOg2old7mg3NxW4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Switch_Splatoon2_hardwarebundle_JoyCons_artwork_01-5c3cbefdc9e77c0001043208.jpg
+thumbnail: https://thmb.techidaily.com/aa2122a37a5989c0b8e6135c848a9b094e794d7aa1b69be64b39a2ed2ad95c93.jpg
 ---
 
 ## Mastering Instagram Storytelling: Integrating Fun, Custom Emojis
@@ -58,13 +58,13 @@ First things first, **Launch** the Instagram app. Click on **Your Story** at the
 
 **Note:** You can also add stickers to Boomerang by clicking on the **Boomerang** option.
 
-![Add instagram sticker ](https://images.wondershare.com/filmora/article-images/create-new-instagram-story.jpg)
+![Add instagram sticker](https://images.wondershare.com/filmora/article-images/create-new-instagram-story.jpg)
 
 ### Step 2: Click on Stickers and Add Sticker to Story
 
 After you are done with the picture uploading, click on the **Stickers** option at the top right of the screen. A **Pop-up menu** will appear. Now, you need to select the sticker you want to use on your post or story.
 
-![Add Instagram sticker ](https://images.wondershare.com/filmora/article-images/add-instagram-sticker.jpg)
+![Add Instagram sticker](https://images.wondershare.com/filmora/article-images/add-instagram-sticker.jpg)
 
 ### Step 3: Add to Your Story
 
@@ -88,13 +88,13 @@ Launch the Instagram app, and start a story by clicking on the **Your Story** op
 
 After you are done with the picture uploading, tap on the **Stickers** option at the top right of the screen. Several stickers will appear. You need to tap on the **‘’add picture’’** option, as shown in the picture below.
 
-![  Ins  sticker  add picture](https://images.wondershare.com/filmora/article-images/instagram-sticker-add-picture-option.jpg)
+![Ins  sticker  add picture](https://images.wondershare.com/filmora/article-images/instagram-sticker-add-picture-option.jpg)
 
 ### Step 3: Choose the picture as sticker
 
 You’ll be redirected to your phone’s gallery. Choose the picture you want to add as a sticker on the story, and the sticker will be added.
 
-![  Ins     add photo sticker](https://images.wondershare.com/filmora/article-images/add-photo-sticker.jpg)
+![Ins     add photo sticker](https://images.wondershare.com/filmora/article-images/add-photo-sticker.jpg)
 
 **Note:** You can also move it on the screen by **holding and dragging it**.
 
@@ -126,7 +126,7 @@ Poll Sticker helps you in starting a poll or asks a question to know your follow
 
 This type of sticker helps start a clickable hashtag. You can add a hashtag for your brand or raise an important issue to your story.
 
-### 7\. [Music Sticker](https://tools.techidaily.com/wondershare/filmora/download/)
+### 7\. Music Sticker
 
 Music sticker allows you to add songs and lyrics to your Instagram Story. You can also select the font in which lyrics will be displayed and the exact lyrics you want to add to your story. This sticker is a perfect way to know about your friend’s music taste.
 
@@ -195,13 +195,13 @@ First things first, **Launch** the Instagram app. Click on **Your Story** at the
 
 **Note:** You can also add stickers to Boomerang by clicking on the **Boomerang** option.
 
-![Add instagram sticker ](https://images.wondershare.com/filmora/article-images/create-new-instagram-story.jpg)
+![Add instagram sticker](https://images.wondershare.com/filmora/article-images/create-new-instagram-story.jpg)
 
 ### Step 2: Click on Stickers and Add Sticker to Story
 
 After you are done with the picture uploading, click on the **Stickers** option at the top right of the screen. A **Pop-up menu** will appear. Now, you need to select the sticker you want to use on your post or story.
 
-![Add Instagram sticker ](https://images.wondershare.com/filmora/article-images/add-instagram-sticker.jpg)
+![Add Instagram sticker](https://images.wondershare.com/filmora/article-images/add-instagram-sticker.jpg)
 
 ### Step 3: Add to Your Story
 
@@ -225,13 +225,13 @@ Launch the Instagram app, and start a story by clicking on the **Your Story** op
 
 After you are done with the picture uploading, tap on the **Stickers** option at the top right of the screen. Several stickers will appear. You need to tap on the **‘’add picture’’** option, as shown in the picture below.
 
-![  Ins  sticker  add picture](https://images.wondershare.com/filmora/article-images/instagram-sticker-add-picture-option.jpg)
+![Ins  sticker  add picture](https://images.wondershare.com/filmora/article-images/instagram-sticker-add-picture-option.jpg)
 
 ### Step 3: Choose the picture as sticker
 
 You’ll be redirected to your phone’s gallery. Choose the picture you want to add as a sticker on the story, and the sticker will be added.
 
-![  Ins     add photo sticker](https://images.wondershare.com/filmora/article-images/add-photo-sticker.jpg)
+![Ins     add photo sticker](https://images.wondershare.com/filmora/article-images/add-photo-sticker.jpg)
 
 **Note:** You can also move it on the screen by **holding and dragging it**.
 
@@ -263,7 +263,7 @@ Poll Sticker helps you in starting a poll or asks a question to know your follow
 
 This type of sticker helps start a clickable hashtag. You can add a hashtag for your brand or raise an important issue to your story.
 
-### 7\. [Music Sticker](https://tools.techidaily.com/wondershare/filmora/download/)
+### 7\. Music Sticker
 
 Music sticker allows you to add songs and lyrics to your Instagram Story. You can also select the font in which lyrics will be displayed and the exact lyrics you want to add to your story. This sticker is a perfect way to know about your friend’s music taste.
 
@@ -332,13 +332,13 @@ First things first, **Launch** the Instagram app. Click on **Your Story** at the
 
 **Note:** You can also add stickers to Boomerang by clicking on the **Boomerang** option.
 
-![Add instagram sticker ](https://images.wondershare.com/filmora/article-images/create-new-instagram-story.jpg)
+![Add instagram sticker](https://images.wondershare.com/filmora/article-images/create-new-instagram-story.jpg)
 
 ### Step 2: Click on Stickers and Add Sticker to Story
 
 After you are done with the picture uploading, click on the **Stickers** option at the top right of the screen. A **Pop-up menu** will appear. Now, you need to select the sticker you want to use on your post or story.
 
-![Add Instagram sticker ](https://images.wondershare.com/filmora/article-images/add-instagram-sticker.jpg)
+![Add Instagram sticker](https://images.wondershare.com/filmora/article-images/add-instagram-sticker.jpg)
 
 ### Step 3: Add to Your Story
 
@@ -362,13 +362,13 @@ Launch the Instagram app, and start a story by clicking on the **Your Story** op
 
 After you are done with the picture uploading, tap on the **Stickers** option at the top right of the screen. Several stickers will appear. You need to tap on the **‘’add picture’’** option, as shown in the picture below.
 
-![  Ins  sticker  add picture](https://images.wondershare.com/filmora/article-images/instagram-sticker-add-picture-option.jpg)
+![Ins  sticker  add picture](https://images.wondershare.com/filmora/article-images/instagram-sticker-add-picture-option.jpg)
 
 ### Step 3: Choose the picture as sticker
 
 You’ll be redirected to your phone’s gallery. Choose the picture you want to add as a sticker on the story, and the sticker will be added.
 
-![  Ins     add photo sticker](https://images.wondershare.com/filmora/article-images/add-photo-sticker.jpg)
+![Ins     add photo sticker](https://images.wondershare.com/filmora/article-images/add-photo-sticker.jpg)
 
 **Note:** You can also move it on the screen by **holding and dragging it**.
 
@@ -400,7 +400,7 @@ Poll Sticker helps you in starting a poll or asks a question to know your follow
 
 This type of sticker helps start a clickable hashtag. You can add a hashtag for your brand or raise an important issue to your story.
 
-### 7\. [Music Sticker](https://tools.techidaily.com/wondershare/filmora/download/)
+### 7\. Music Sticker
 
 Music sticker allows you to add songs and lyrics to your Instagram Story. You can also select the font in which lyrics will be displayed and the exact lyrics you want to add to your story. This sticker is a perfect way to know about your friend’s music taste.
 
@@ -469,13 +469,13 @@ First things first, **Launch** the Instagram app. Click on **Your Story** at the
 
 **Note:** You can also add stickers to Boomerang by clicking on the **Boomerang** option.
 
-![Add instagram sticker ](https://images.wondershare.com/filmora/article-images/create-new-instagram-story.jpg)
+![Add instagram sticker](https://images.wondershare.com/filmora/article-images/create-new-instagram-story.jpg)
 
 ### Step 2: Click on Stickers and Add Sticker to Story
 
 After you are done with the picture uploading, click on the **Stickers** option at the top right of the screen. A **Pop-up menu** will appear. Now, you need to select the sticker you want to use on your post or story.
 
-![Add Instagram sticker ](https://images.wondershare.com/filmora/article-images/add-instagram-sticker.jpg)
+![Add Instagram sticker](https://images.wondershare.com/filmora/article-images/add-instagram-sticker.jpg)
 
 ### Step 3: Add to Your Story
 
@@ -499,13 +499,13 @@ Launch the Instagram app, and start a story by clicking on the **Your Story** op
 
 After you are done with the picture uploading, tap on the **Stickers** option at the top right of the screen. Several stickers will appear. You need to tap on the **‘’add picture’’** option, as shown in the picture below.
 
-![  Ins  sticker  add picture](https://images.wondershare.com/filmora/article-images/instagram-sticker-add-picture-option.jpg)
+![Ins  sticker  add picture](https://images.wondershare.com/filmora/article-images/instagram-sticker-add-picture-option.jpg)
 
 ### Step 3: Choose the picture as sticker
 
 You’ll be redirected to your phone’s gallery. Choose the picture you want to add as a sticker on the story, and the sticker will be added.
 
-![  Ins     add photo sticker](https://images.wondershare.com/filmora/article-images/add-photo-sticker.jpg)
+![Ins     add photo sticker](https://images.wondershare.com/filmora/article-images/add-photo-sticker.jpg)
 
 **Note:** You can also move it on the screen by **holding and dragging it**.
 
@@ -537,7 +537,7 @@ Poll Sticker helps you in starting a poll or asks a question to know your follow
 
 This type of sticker helps start a clickable hashtag. You can add a hashtag for your brand or raise an important issue to your story.
 
-### 7\. [Music Sticker](https://tools.techidaily.com/wondershare/filmora/download/)
+### 7\. Music Sticker
 
 Music sticker allows you to add songs and lyrics to your Instagram Story. You can also select the font in which lyrics will be displayed and the exact lyrics you want to add to your story. This sticker is a perfect way to know about your friend’s music taste.
 
