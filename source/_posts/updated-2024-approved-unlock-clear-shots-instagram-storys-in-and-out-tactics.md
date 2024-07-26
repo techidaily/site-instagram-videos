@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Unlock Clear Shots  Instagram Story's In and Out Tactics\""
-date: 2024-05-21T23:38:22.799Z
-updated: 2024-05-22T23:38:22.799Z
+date: 2024-07-25T21:15:48.565Z
+updated: 2024-07-26T21:15:48.565Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] 2024 Approved: Unlock Clear Shots: Instagram Story's In and Out Tactics\""
 excerpt: "\"This Article Describes [Updated] 2024 Approved: Unlock Clear Shots: Instagram Story's In and Out Tactics\""
 keywords: "\"Unlock Perfect Snapshots,Clear Photo Techniques,Mastering Stories,Shot Enhancement Tricks,Instagram Shot Control,Snap High-Quality Images,Story Image Optimization\""
-thumbnail: https://www.lifewire.com/thmb/L6-ZDM4b9RGQ6bLkGIiCxw-n8xQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/unnamed-ab349991a4d748a38dc0028fbb611036.png
+thumbnail: https://thmb.techidaily.com/c477119574c19e1fe1c1e24c760eca970cf6d9df63cc3bc93f37a86e27d2e105.png
 ---
 
 ## Unlock Clear Shots: Instagram Story's In and Out Tactics
@@ -48,6 +48,198 @@ Image resource: later.com
 
 #### 2\. Rewind Mode
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![](https://images.wondershare.com/filmora/article-images/zoom-instagram-rewind-mode.jpg)
+
+Image resource: techjunkie.com
+
+We know a video in 'Rewind' mode is pretty cute and funny, as the chain of events occurs in the reverse order. So, to zoom in/out while shooting one such video in 'Rewind' mode, you need to press the record button and then swipe up/down your finger, just like in the 'Normal' mode. Here also, if you remove your finger, the recording will stop. Master how to zoom in Instagram Stories, while recording in 'Rewind' mode.
+
+#### 3\. Boomerang
+
+![](https://images.wondershare.com/filmora/article-images/zoom-instagram-superzoom-mode.jpg)
+
+Image resource: metro.com
+
+Shooting a video in 'Boomerang' is exciting while creating Instagram Stories. We will explain to you how to zoom in/out Instagram Stories in 'Superzoom' mode in Boomerang. Press your record button longer and slide your finger up/down to zoom in/out, while recording the video for your Insta Stories. As long as you hold the button, the recording continues until it reaches the maximum duration.
+
+#### 4\. Hands-Free Mode
+
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
+![](https://images.wondershare.com/filmora/article-images/zoom-instagram-hands-free-mode.jpg)
+
+Image resource: later.com
+
+There are two-options while you want to zoom in/out using the 'Hands-Free' mode. You can pinch the screen and zoom in or out prior to recording the video. Now, tap the record button, the video will be automatically recorded after a few seconds. Remember! You are using the 'Hands-Free' mode, so no holding the record button. The second method is similar to the previous methods of zooming in/out videos for Instagram Stories. Tap the record button and wait till the point where you want to zoom in/out. At that very point, hold the record button and slide your finger up/down to zoom in/out the video. This is how to zoom in/out Instagram Stories using 'Hands-Free' mode.
+
+Be it a 'Boomerang', 'Rewind', 'Hands-Free', or 'Normal' mode video, learning how to zoom in Instagram Stories is sure to make your stories cool and funky.
+
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Edit Instagram Videos with Wondershare Filmora
+
+Editing Instagram videos is not difficult at all as long as you installed a powerful yet easy-to-use video editing tool. Luckily, Wondershare Filmora is one of them because you can custom your videos with Filmora according to your needs even if you didn't take any training.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<!-- affiliate ads end -->
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
+### Final Verdict
+
+We know that you have got a fair idea about using the various Instagram filters to create the most happening Instagram Stories and put your friends in awe. We are sure that the methods mentioned above have made you learn capturing videos in zoom in a quick and easy way. But, it's up to you to decide the best speed while capturing and customizing the video content to make it stand out.
+
+Understanding not only how to zoom in Instagram Stories, but also knowing how to edit it with the right background music will make them more appealing. You need to be a little careful while shooting videos in zoom as the video resolution gets affected and turns shaky. Never mind, beyond all the little restraints, Instagram Stories are the coolest stuff to experiment with, while you curate interesting videos.
+
+---
+
+You May also like
+
+[**12 Facebook Marketing Tips for Animation**](https://tools.techidaily.com/wondershare/filmora/download/) \>>  
+[**8 Best Facebook Scheduler**](https://tools.techidaily.com/wondershare/filmora/download/) \>>
+[**Facebook Insights: How to Use it for Beginners**](https://tools.techidaily.com/wondershare/filmora/download/) \>>  
+[**15 Best Facebook Analyzers to Increase Sales**](https://tools.techidaily.com/wondershare/filmora/download/) \>>
+
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+Being an avid Instagram user, one needs to know the best tricks to create attractive and funny photos and videos. Learning how to zoom in Instagram Stories will add so much drama and oomph to your boring and not so appealing videos.
+
+[Boomerang](https://www.forbes.com/sites/kathleenchaykowski/2015/10/22/instagram-launches-new-app-boomerang-for-making-gif-like-videos/) is not the only sensational feature from Instagram. The 'Superzoom' camera format for Instagram Stories is creating more weaves nowadays. You can zoom in on the videos with interesting sound effects, without much effort. All you have to do is tap the record button for 3-seconds or longer and you are done.
+
+Here, in this article, we are going to introduce various methods of **zooming in/out on Instagram Stories**. Stay tuned to know.
+
+* [Part 1: 4 Ways to Zoom in/out on Instagram Stories](#part1)
+* [Part 2: Edit Instagram Videos with Excellent Video Editor](#part2)
+
+## How to zoom in/out in Instagram Stories
+
+#### 1\. Normal Mode
+
+You can zoom in/out while clicking a picture for Instagram Stories, by pinching the screen in 'Normal' mode. For recording an Insta Story video in zoom in/out mode, press the record button and slide the same finger up/down to zoom in/out.
+
+![](https://images.wondershare.com/filmora/article-images/zoom-instagram-normal-mode.jpg)
+
+Image resource: later.com
+
+**Note:** Make sure to hold your finger on the record button while zooming in/out, else the recording will stop.
+
+#### 2\. Rewind Mode
+
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![](https://images.wondershare.com/filmora/article-images/zoom-instagram-rewind-mode.jpg)
+
+Image resource: techjunkie.com
+
+We know a video in 'Rewind' mode is pretty cute and funny, as the chain of events occurs in the reverse order. So, to zoom in/out while shooting one such video in 'Rewind' mode, you need to press the record button and then swipe up/down your finger, just like in the 'Normal' mode. Here also, if you remove your finger, the recording will stop. Master how to zoom in Instagram Stories, while recording in 'Rewind' mode.
+
+#### 3\. Boomerang
+
+![](https://images.wondershare.com/filmora/article-images/zoom-instagram-superzoom-mode.jpg)
+
+Image resource: metro.com
+
+Shooting a video in 'Boomerang' is exciting while creating Instagram Stories. We will explain to you how to zoom in/out Instagram Stories in 'Superzoom' mode in Boomerang. Press your record button longer and slide your finger up/down to zoom in/out, while recording the video for your Insta Stories. As long as you hold the button, the recording continues until it reaches the maximum duration.
+
+#### 4\. Hands-Free Mode
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![](https://images.wondershare.com/filmora/article-images/zoom-instagram-hands-free-mode.jpg)
+
+Image resource: later.com
+
+There are two-options while you want to zoom in/out using the 'Hands-Free' mode. You can pinch the screen and zoom in or out prior to recording the video. Now, tap the record button, the video will be automatically recorded after a few seconds. Remember! You are using the 'Hands-Free' mode, so no holding the record button. The second method is similar to the previous methods of zooming in/out videos for Instagram Stories. Tap the record button and wait till the point where you want to zoom in/out. At that very point, hold the record button and slide your finger up/down to zoom in/out the video. This is how to zoom in/out Instagram Stories using 'Hands-Free' mode.
+
+Be it a 'Boomerang', 'Rewind', 'Hands-Free', or 'Normal' mode video, learning how to zoom in Instagram Stories is sure to make your stories cool and funky.
+
+## Edit Instagram Videos with Wondershare Filmora
+
+Editing Instagram videos is not difficult at all as long as you installed a powerful yet easy-to-use video editing tool. Luckily, Wondershare Filmora is one of them because you can custom your videos with Filmora according to your needs even if you didn't take any training.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+### Final Verdict
+
+We know that you have got a fair idea about using the various Instagram filters to create the most happening Instagram Stories and put your friends in awe. We are sure that the methods mentioned above have made you learn capturing videos in zoom in a quick and easy way. But, it's up to you to decide the best speed while capturing and customizing the video content to make it stand out.
+
+Understanding not only how to zoom in Instagram Stories, but also knowing how to edit it with the right background music will make them more appealing. You need to be a little careful while shooting videos in zoom as the video resolution gets affected and turns shaky. Never mind, beyond all the little restraints, Instagram Stories are the coolest stuff to experiment with, while you curate interesting videos.
+
+---
+
+You May also like
+
+[**12 Facebook Marketing Tips for Animation**](https://tools.techidaily.com/wondershare/filmora/download/) \>>  
+[**8 Best Facebook Scheduler**](https://tools.techidaily.com/wondershare/filmora/download/) \>>
+[**Facebook Insights: How to Use it for Beginners**](https://tools.techidaily.com/wondershare/filmora/download/) \>>  
+[**15 Best Facebook Analyzers to Increase Sales**](https://tools.techidaily.com/wondershare/filmora/download/) \>>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+Being an avid Instagram user, one needs to know the best tricks to create attractive and funny photos and videos. Learning how to zoom in Instagram Stories will add so much drama and oomph to your boring and not so appealing videos.
+
+[Boomerang](https://www.forbes.com/sites/kathleenchaykowski/2015/10/22/instagram-launches-new-app-boomerang-for-making-gif-like-videos/) is not the only sensational feature from Instagram. The 'Superzoom' camera format for Instagram Stories is creating more weaves nowadays. You can zoom in on the videos with interesting sound effects, without much effort. All you have to do is tap the record button for 3-seconds or longer and you are done.
+
+Here, in this article, we are going to introduce various methods of **zooming in/out on Instagram Stories**. Stay tuned to know.
+
+* [Part 1: 4 Ways to Zoom in/out on Instagram Stories](#part1)
+* [Part 2: Edit Instagram Videos with Excellent Video Editor](#part2)
+
+## How to zoom in/out in Instagram Stories
+
+#### 1\. Normal Mode
+
+You can zoom in/out while clicking a picture for Instagram Stories, by pinching the screen in 'Normal' mode. For recording an Insta Story video in zoom in/out mode, press the record button and slide the same finger up/down to zoom in/out.
+
+![](https://images.wondershare.com/filmora/article-images/zoom-instagram-normal-mode.jpg)
+
+Image resource: later.com
+
+**Note:** Make sure to hold your finger on the record button while zooming in/out, else the recording will stop.
+
+#### 2\. Rewind Mode
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
+</a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-rewind-mode.jpg)
 
 Image resource: techjunkie.com
@@ -72,12 +264,19 @@ There are two-options while you want to zoom in/out using the 'Hands-Free' mode.
 
 Be it a 'Boomerang', 'Rewind', 'Hands-Free', or 'Normal' mode video, learning how to zoom in Instagram Stories is sure to make your stories cool and funky.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ## Edit Instagram Videos with Wondershare Filmora
 
 Editing Instagram videos is not difficult at all as long as you installed a powerful yet easy-to-use video editing tool. Luckily, Wondershare Filmora is one of them because you can custom your videos with Filmora according to your needs even if you didn't take any training.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Final Verdict
 
 We know that you have got a fair idea about using the various Instagram filters to create the most happening Instagram Stories and put your friends in awe. We are sure that the methods mentioned above have made you learn capturing videos in zoom in a quick and easy way. But, it's up to you to decide the best speed while capturing and customizing the video content to make it stand out.
@@ -136,6 +335,9 @@ We know a video in 'Rewind' mode is pretty cute and funny, as the chain of event
 
 #### 3\. Boomerang
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-superzoom-mode.jpg)
 
 Image resource: metro.com
@@ -144,6 +346,9 @@ Shooting a video in 'Boomerang' is exciting while creating Instagram Stories. We
 
 #### 4\. Hands-Free Mode
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-hands-free-mode.jpg)
 
 Image resource: later.com
@@ -156,8 +361,14 @@ Be it a 'Boomerang', 'Rewind', 'Hands-Free', or 'Normal' mode video, learning ho
 
 Editing Instagram videos is not difficult at all as long as you installed a powerful yet easy-to-use video editing tool. Luckily, Wondershare Filmora is one of them because you can custom your videos with Filmora according to your needs even if you didn't take any training.
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Final Verdict
 
 We know that you have got a fair idea about using the various Instagram filters to create the most happening Instagram Stories and put your friends in awe. We are sure that the methods mentioned above have made you learn capturing videos in zoom in a quick and easy way. But, it's up to you to decide the best speed while capturing and customizing the video content to make it stand out.
@@ -173,166 +384,14 @@ You May also like
 [**Facebook Insights: How to Use it for Beginners**](https://tools.techidaily.com/wondershare/filmora/download/) \>>  
 [**15 Best Facebook Analyzers to Increase Sales**](https://tools.techidaily.com/wondershare/filmora/download/) \>>
 
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
-Being an avid Instagram user, one needs to know the best tricks to create attractive and funny photos and videos. Learning how to zoom in Instagram Stories will add so much drama and oomph to your boring and not so appealing videos.
-
-[Boomerang](https://www.forbes.com/sites/kathleenchaykowski/2015/10/22/instagram-launches-new-app-boomerang-for-making-gif-like-videos/) is not the only sensational feature from Instagram. The 'Superzoom' camera format for Instagram Stories is creating more weaves nowadays. You can zoom in on the videos with interesting sound effects, without much effort. All you have to do is tap the record button for 3-seconds or longer and you are done.
-
-Here, in this article, we are going to introduce various methods of **zooming in/out on Instagram Stories**. Stay tuned to know.
-
-* [Part 1: 4 Ways to Zoom in/out on Instagram Stories](#part1)
-* [Part 2: Edit Instagram Videos with Excellent Video Editor](#part2)
-
-## How to zoom in/out in Instagram Stories
-
-#### 1\. Normal Mode
-
-You can zoom in/out while clicking a picture for Instagram Stories, by pinching the screen in 'Normal' mode. For recording an Insta Story video in zoom in/out mode, press the record button and slide the same finger up/down to zoom in/out.
-
-![](https://images.wondershare.com/filmora/article-images/zoom-instagram-normal-mode.jpg)
-
-Image resource: later.com
-
-**Note:** Make sure to hold your finger on the record button while zooming in/out, else the recording will stop.
-
-#### 2\. Rewind Mode
-
-![](https://images.wondershare.com/filmora/article-images/zoom-instagram-rewind-mode.jpg)
-
-Image resource: techjunkie.com
-
-We know a video in 'Rewind' mode is pretty cute and funny, as the chain of events occurs in the reverse order. So, to zoom in/out while shooting one such video in 'Rewind' mode, you need to press the record button and then swipe up/down your finger, just like in the 'Normal' mode. Here also, if you remove your finger, the recording will stop. Master how to zoom in Instagram Stories, while recording in 'Rewind' mode.
-
-#### 3\. Boomerang
-
-![](https://images.wondershare.com/filmora/article-images/zoom-instagram-superzoom-mode.jpg)
-
-Image resource: metro.com
-
-Shooting a video in 'Boomerang' is exciting while creating Instagram Stories. We will explain to you how to zoom in/out Instagram Stories in 'Superzoom' mode in Boomerang. Press your record button longer and slide your finger up/down to zoom in/out, while recording the video for your Insta Stories. As long as you hold the button, the recording continues until it reaches the maximum duration.
-
-#### 4\. Hands-Free Mode
-
-![](https://images.wondershare.com/filmora/article-images/zoom-instagram-hands-free-mode.jpg)
-
-Image resource: later.com
-
-There are two-options while you want to zoom in/out using the 'Hands-Free' mode. You can pinch the screen and zoom in or out prior to recording the video. Now, tap the record button, the video will be automatically recorded after a few seconds. Remember! You are using the 'Hands-Free' mode, so no holding the record button. The second method is similar to the previous methods of zooming in/out videos for Instagram Stories. Tap the record button and wait till the point where you want to zoom in/out. At that very point, hold the record button and slide your finger up/down to zoom in/out the video. This is how to zoom in/out Instagram Stories using 'Hands-Free' mode.
-
-Be it a 'Boomerang', 'Rewind', 'Hands-Free', or 'Normal' mode video, learning how to zoom in Instagram Stories is sure to make your stories cool and funky.
-
-## Edit Instagram Videos with Wondershare Filmora
-
-Editing Instagram videos is not difficult at all as long as you installed a powerful yet easy-to-use video editing tool. Luckily, Wondershare Filmora is one of them because you can custom your videos with Filmora according to your needs even if you didn't take any training.
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-### Final Verdict
-
-We know that you have got a fair idea about using the various Instagram filters to create the most happening Instagram Stories and put your friends in awe. We are sure that the methods mentioned above have made you learn capturing videos in zoom in a quick and easy way. But, it's up to you to decide the best speed while capturing and customizing the video content to make it stand out.
-
-Understanding not only how to zoom in Instagram Stories, but also knowing how to edit it with the right background music will make them more appealing. You need to be a little careful while shooting videos in zoom as the video resolution gets affected and turns shaky. Never mind, beyond all the little restraints, Instagram Stories are the coolest stuff to experiment with, while you curate interesting videos.
-
----
-
-You May also like
-
-[**12 Facebook Marketing Tips for Animation**](https://tools.techidaily.com/wondershare/filmora/download/) \>>  
-[**8 Best Facebook Scheduler**](https://tools.techidaily.com/wondershare/filmora/download/) \>>
-[**Facebook Insights: How to Use it for Beginners**](https://tools.techidaily.com/wondershare/filmora/download/) \>>  
-[**15 Best Facebook Analyzers to Increase Sales**](https://tools.techidaily.com/wondershare/filmora/download/) \>>
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
-Being an avid Instagram user, one needs to know the best tricks to create attractive and funny photos and videos. Learning how to zoom in Instagram Stories will add so much drama and oomph to your boring and not so appealing videos.
-
-[Boomerang](https://www.forbes.com/sites/kathleenchaykowski/2015/10/22/instagram-launches-new-app-boomerang-for-making-gif-like-videos/) is not the only sensational feature from Instagram. The 'Superzoom' camera format for Instagram Stories is creating more weaves nowadays. You can zoom in on the videos with interesting sound effects, without much effort. All you have to do is tap the record button for 3-seconds or longer and you are done.
-
-Here, in this article, we are going to introduce various methods of **zooming in/out on Instagram Stories**. Stay tuned to know.
-
-* [Part 1: 4 Ways to Zoom in/out on Instagram Stories](#part1)
-* [Part 2: Edit Instagram Videos with Excellent Video Editor](#part2)
-
-## How to zoom in/out in Instagram Stories
-
-#### 1\. Normal Mode
-
-You can zoom in/out while clicking a picture for Instagram Stories, by pinching the screen in 'Normal' mode. For recording an Insta Story video in zoom in/out mode, press the record button and slide the same finger up/down to zoom in/out.
-
-![](https://images.wondershare.com/filmora/article-images/zoom-instagram-normal-mode.jpg)
-
-Image resource: later.com
-
-**Note:** Make sure to hold your finger on the record button while zooming in/out, else the recording will stop.
-
-#### 2\. Rewind Mode
-
-![](https://images.wondershare.com/filmora/article-images/zoom-instagram-rewind-mode.jpg)
-
-Image resource: techjunkie.com
-
-We know a video in 'Rewind' mode is pretty cute and funny, as the chain of events occurs in the reverse order. So, to zoom in/out while shooting one such video in 'Rewind' mode, you need to press the record button and then swipe up/down your finger, just like in the 'Normal' mode. Here also, if you remove your finger, the recording will stop. Master how to zoom in Instagram Stories, while recording in 'Rewind' mode.
-
-#### 3\. Boomerang
-
-![](https://images.wondershare.com/filmora/article-images/zoom-instagram-superzoom-mode.jpg)
-
-Image resource: metro.com
-
-Shooting a video in 'Boomerang' is exciting while creating Instagram Stories. We will explain to you how to zoom in/out Instagram Stories in 'Superzoom' mode in Boomerang. Press your record button longer and slide your finger up/down to zoom in/out, while recording the video for your Insta Stories. As long as you hold the button, the recording continues until it reaches the maximum duration.
-
-#### 4\. Hands-Free Mode
-
-![](https://images.wondershare.com/filmora/article-images/zoom-instagram-hands-free-mode.jpg)
-
-Image resource: later.com
-
-There are two-options while you want to zoom in/out using the 'Hands-Free' mode. You can pinch the screen and zoom in or out prior to recording the video. Now, tap the record button, the video will be automatically recorded after a few seconds. Remember! You are using the 'Hands-Free' mode, so no holding the record button. The second method is similar to the previous methods of zooming in/out videos for Instagram Stories. Tap the record button and wait till the point where you want to zoom in/out. At that very point, hold the record button and slide your finger up/down to zoom in/out the video. This is how to zoom in/out Instagram Stories using 'Hands-Free' mode.
-
-Be it a 'Boomerang', 'Rewind', 'Hands-Free', or 'Normal' mode video, learning how to zoom in Instagram Stories is sure to make your stories cool and funky.
-
-## Edit Instagram Videos with Wondershare Filmora
-
-Editing Instagram videos is not difficult at all as long as you installed a powerful yet easy-to-use video editing tool. Luckily, Wondershare Filmora is one of them because you can custom your videos with Filmora according to your needs even if you didn't take any training.
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-### Final Verdict
-
-We know that you have got a fair idea about using the various Instagram filters to create the most happening Instagram Stories and put your friends in awe. We are sure that the methods mentioned above have made you learn capturing videos in zoom in a quick and easy way. But, it's up to you to decide the best speed while capturing and customizing the video content to make it stand out.
-
-Understanding not only how to zoom in Instagram Stories, but also knowing how to edit it with the right background music will make them more appealing. You need to be a little careful while shooting videos in zoom as the video resolution gets affected and turns shaky. Never mind, beyond all the little restraints, Instagram Stories are the coolest stuff to experiment with, while you curate interesting videos.
-
----
-
-You May also like
-
-[**12 Facebook Marketing Tips for Animation**](https://tools.techidaily.com/wondershare/filmora/download/) \>>  
-[**8 Best Facebook Scheduler**](https://tools.techidaily.com/wondershare/filmora/download/) \>>
-[**Facebook Insights: How to Use it for Beginners**](https://tools.techidaily.com/wondershare/filmora/download/) \>>  
-[**15 Best Facebook Analyzers to Increase Sales**](https://tools.techidaily.com/wondershare/filmora/download/) \>>
-
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -364,3 +423,66 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-breaking-down-the-selfie-security-on-insta/"><u>[New] 2024 Approved  Breaking Down the Selfie Security on Insta</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-from-ordinary-to-extraordinary-your-pathway-with-tiktok-templates/"><u>[New] 2024 Approved  From Ordinary to Extraordinary  Your Pathway with TikTok Templates</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-monitoring-lost-instagram-connections/"><u>[New] 2024 Approved  Monitoring Lost Instagram Connections</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-the-photographers-edge-innovating-with-instagrams-bokeh-features/"><u>[New] 2024 Approved  The Photographer's Edge  Innovating with Instagram’s Bokeh Features</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-unlock-social-media-secrets-with-instagram-insights/"><u>[New] 2024 Approved  Unlock Social Media Secrets with Instagram Insights</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-a-complete-rundown-reels-vs-stories-on-instagram/"><u>[New] A Complete Rundown  Reels vs Stories on Instagram</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-audio-from-visuals-making-mp3s-from-instagram-content/"><u>[New] Audio From Visuals  Making Mp3s From Instagram Content</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-comprehensive-guide-to-vsco-camera-app/"><u>[New] Comprehensive Guide to VSCO Camera App</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-get-acquainted-with-the-10-best-sketching-apps-for-chrome-os-for-2024/"><u>[New] Get Acquainted with The 10 Best Sketching Apps for Chrome OS for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-designing-eye-catching-instagram-post-previews/"><u>[New] In 2024, Designing Eye-Catching Instagram Post Previews</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-elevate-with-ig-stories-constructing-an-impactful-marketing-strategy/"><u>[New] In 2024, Elevate with IG Stories  Constructing an Impactful Marketing Strategy</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-frame-your-cinematic-tales-three-paths-for-instagram-borders/"><u>[New] In 2024, Frame Your Cinematic Tales  Three Paths for Instagram Borders</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-instagrams-best-practices-video-sizes-and-formats/"><u>[New] In 2024, Instagram's Best Practices  Video Sizes and Formats</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-privacy-focused-instagram-story-insight-methodology/"><u>[New] In 2024, Privacy-Focused Instagram Story Insight Methodology</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-influence-unleashed-5-crucial-steps-to-thriving-on-instagram-marketing/"><u>[New] Influence Unleashed  5 Crucial Steps to Thriving on Instagram Marketing</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-the-instagram-essentials-seamlessly-adding-a-gallery-of-images-and-videos/"><u>[New] The Instagram Essentials  Seamlessly Adding a Gallery of Images and Videos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-heres-what-you-dont-know-about-instagram-story-viewer2/"><u>[Updated] 2024 Approved  Here's What You Don't Know About Instagram Story Viewer2</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-high-staking-rituals-player-views/"><u>[Updated] 2024 Approved  HIGH-STAKING RITUALS  Player Views</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-decoding-the-audience-who-viewed-your-insta-post-in-2024/"><u>[Updated] Decoding the Audience  Who Viewed Your Insta Post, In 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-dynamic-visual-logging-services-for-2024/"><u>[Updated] Dynamic Visual Logging Services for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-enhance-youtube-livestreams-webcam-selection-mastery-for-2024/"><u>[Updated] Enhance YouTube Livestreams  Webcam Selection Mastery for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-enhancing-visual-impact-editing-videos-for-instagram/"><u>[Updated] Enhancing Visual Impact  Editing Videos for Instagram</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-enhance-imagery-with-elegant-borders-ig-edition/"><u>[Updated] In 2024, Enhance Imagery with Elegant Borders – IG Edition</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-the-anonymous-advantage-in-instagram-viewing/"><u>[Updated] In 2024, The Anonymous Advantage in Instagram Viewing</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-innovative-loop-techniques-elevate-your-instagram-content/"><u>[Updated] Innovative Loop Techniques  Elevate Your Instagram Content</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-instagram-backward-play-a-comprehensive-walkthrough/"><u>[Updated] Instagram Backward Play  A Comprehensive Walkthrough</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-propel-your-profile-5-core-techniques-for-instagram-marketing-gurus/"><u>[Updated] Propel Your Profile  5 Core Techniques for Instagram Marketing Gurus</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-social-network-harmony-integrating-instagram-and-facebook/"><u>[Updated] Social Network Harmony  Integrating Instagram & Facebook</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-step-by-step-guide-to-instagram-live-communication/"><u>[Updated] Step-by-Step Guide to Instagram Live Communication</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-story-stream-sequencer-app/"><u>[Updated] Story Stream Sequencer App</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-final-act-steps-for-permanent-instagram-account-removal-for-2024/"><u>[Updated] The Final Act  Steps for Permanent Instagram Account Removal for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-path-to-prominence-with-powerful-instagram-video-narratives-for-2024/"><u>[Updated] The Path to Prominence with Powerful Instagram Video Narratives for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unlocking-the-realm-of-free-photo-frame-video-downloads/"><u>[Updated] Unlocking the Realm of Free Photo Frame Video Downloads</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-top-10-invisible-peers-for-hidden-stories/"><u>2024 Approved  Top 10 Invisible Peers for Hidden Stories</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-unleash-film-potential-on-instagram-with-these-3-edges/"><u>2024 Approved  Unleash Film Potential on Instagram with These 3 Edges</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-unlocking-insta-authenticity-your-selfie-verification-journey/"><u>2024 Approved  Unlocking Insta Authenticity  Your Selfie Verification Journey</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-oneplus-12r-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On OnePlus 12R | Dr.fone</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-best-route-generator-apps-you-should-try-on-infinix-note-30-pro-drfone-by-drfone-virtual-android/"><u>5 Best Route Generator Apps You Should Try On Infinix Note 30 Pro | Dr.fone</u></a></li>
+<li><a href="https://location-fake.techidaily.com/8-solutions-to-fix-find-my-friends-location-not-available-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>8 Solutions to Fix Find My Friends Location Not Available On Apple iPhone 7 | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/a-comprehensive-guide-to-apple-iphone-11-pro-max-blacklist-removal-tips-and-tools-drfone-by-drfone-ios/"><u>A Comprehensive Guide to Apple iPhone 11 Pro Max Blacklist Removal Tips and Tools | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/accelerate-your-pcs-wake-up-time-enabling-quick-start/"><u>Accelerate Your PC's Wake-Up Time: Enabling Quick Start</u></a></li>
+<li><a href="https://howto.techidaily.com/best-methods-for-motorola-moto-g14-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Motorola Moto G14 Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/comparing-picku-vs-androids-leading-photo-editor/"><u>Comparing PickU Vs. Android's Leading Photo Editor</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/decoding-instagrams-best-timing-practices-for-2024/"><u>Decoding Instagram's Best Timing Practices for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/discovering-the-stars-that-sparkle-in-your-domains-social-space-for-2024/"><u>Discovering the Stars that Sparkle in Your Domain's Social Space for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/elevating-your-photography-with-lightrooms-hdr-merging-features/"><u>Elevating Your Photography with Lightroom's HDR Merging Features</u></a></li>
+<li><a href="https://fox-http.techidaily.com/enhanced-virtual-storefronts-analysis/"><u>Enhanced Virtual Storefronts Analysis</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/essential-tips-to-avoid-obs-framing-errors-for-2024/"><u>Essential Tips to Avoid OBS Framing Errors for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-the-error-of-unfortunately-the-processcomandroidphone-has-stopped-on-infinix-hot-40-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix the Error of Unfortunately the Process.com.android.phone Has Stopped on Infinix Hot 40 Pro | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-a-friendly-how-to-participating-in-tiktok-livestreams/"><u>In 2024, A Friendly How-To  Participating in TikTok Livestreams</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-vivo-s18-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Vivo S18 Pro | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-downloading-samfw-frp-tool-30-for-nokia-c32-by-drfone-android/"><u>In 2024, Downloading SamFw FRP Tool 3.0 for Nokia C32</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-the-updated-method-to-bypass-oneplus-open-frp-by-drfone-android/"><u>In 2024, The Updated Method to Bypass OnePlus Open FRP</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/in-2024-top-10-free-best-quicktime-mov-movie-editors/"><u>In 2024, Top 10 Free Best QuickTime (MOV) Movie Editors</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/incorporating-instagrams-cutting-edge-filters/"><u>Incorporating Instagram's Cutting Edge Filters</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/picture-perfect-instagram-carousel-for-2024/"><u>Picture-Perfect Instagram Carousel for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/sculpt-the-subject-mastering-the-art-of-background-takedown/"><u>Sculpt the Subject  Mastering the Art of Background Takedown</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/single-tasking-with-background-elimination/"><u>Single-Tasking with Background Elimination</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-honor-x9b-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Honor X9b | Dr.fone</u></a></li>
+</ul></div>

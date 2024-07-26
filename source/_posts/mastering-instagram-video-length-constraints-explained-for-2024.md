@@ -1,7 +1,7 @@
 ---
 title: "Mastering Instagram Video Length Constraints Explained for 2024"
-date: 2024-05-21T22:48:26.481Z
-updated: 2024-05-22T22:48:26.481Z
+date: 2024-07-25T19:28:57.754Z
+updated: 2024-07-26T19:28:57.754Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes Mastering Instagram Video Length Constraints Explained for 2024"
 excerpt: "This Article Describes Mastering Instagram Video Length Constraints Explained for 2024"
 keywords: "Instagram Video Tips,Shortest Video Lengths,Video Engagement Strategies,Optimal Video Duration,Social Media Content Guide,Effective Video Length,Maxing Out Video Impact"
-thumbnail: https://www.lifewire.com/thmb/JnBSFSr8YQadpLe99CkaKn6MzEc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/title-c0a673f2ceec4e48bf0388773f3bd360.jpg
+thumbnail: https://thmb.techidaily.com/704c497d76ce3443a342fa34e8883ce74ed2e3eea338695faa58de9221c96a80.jpg
 ---
 
 ## Mastering Instagram Video Length Constraints Explained
@@ -77,6 +77,9 @@ The videos you submit to your main Instagram page, rather than your Stories, are
 
 Videos can only be 1 minute or 60 seconds long when posted to the Instagram feed. In addition, if you wish to submit a video to your Instagram feed or profile, you must keep it under 60 seconds. If you have a longer than a minute video, you must use the app to select a 60-second frame and post it to your feed. You can trim the video and choose your favorite parts utilizing the app's built-in editor.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ![IG Feed video length](https://images.wondershare.com/filmora/article-images/2021/instagram-video-length-4.png)
 
 #### IG Feed Video Ads
@@ -93,6 +96,215 @@ The maximum length of an Instagram Story video ad is two minutes. You can utiliz
 
 Furthermore, Instagram Stories will show 15-second or shorter video advertising for the duration of the video. Video ads lasting more than 10 seconds will be broken into different Stories cards.
 
+## How Do You Adjust The Duration Of Your Video For Instagram?
+
+You must be thinking about how to upload flawlessly every time with all of these time limits and video publication options. Here are some helpful hints:
+
+* If you're worried your IG Feed video is too long and don't want to edit it, make a video carousel post by breaking it up into smaller chunks. By swiping the post, the viewer will be able to see everything.
+* If you felt pressed to stay inside the time limit and made a video that was far too short, you can add more footage, slow it down, or add a loop. Another option is to use a video editor to make an intro and an end screen.
+* If your Instagram story is too long, you can cut it down using any Instagram video editor. Record the video, then open it in your app to edit and trim it down before selecting the clips to upload the full story.
+* In addition, if your Instagram ad video is longer than 15 seconds, Instagram provides 10 cards, each with a 15-second video duration limit. This will allow you to show your complete advertisement without compressing it.
+* The four-hour limit seems insufficient if you wish to have a more extended live stream on Instagram. Then, as soon as you reach the time restriction, you can easily go live again and re-start the stream as many times as you wish.
+* To make videos that will receive hundreds of likes on Instagram, you'll need video editing software that allows you to change the aspect ratio of the videos you wish to submit. Wondershare Filmora is a video editing program that supports a wide range of video file formats and allows you to crop and prepare your videos for web use.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For Win 7 or later (64-bit)
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For macOS 10.12 or later
+
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Conclusion
+
+**●** That's all there is to know about the length of Instagram videos. Isn't it simple? Take the advice above, make your videos as long as possible, and post when your followers are online, and your post engagement and follower count will skyrocket.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Instagram is one of the most widely used social media platforms in the world. The app has made it huge in the social media game, with roughly 1 billion official app users and 500 million daily active users of IG stories. By just creating an Instagram account, people may share videos directly from their cell phones. However, because Instagram allows for varied video lengths, figuring out [how to post videos](https://tools.techidaily.com/wondershare/filmora/download/) might be difficult. There is a specific time limit for each video genre. All of those video forms, including Instagram feed and story videos, IG Live and IGTV, Instagram reels, and ad videos, will be covered in this article.
+
+We'll start by discussing what we mean by "Instagram video." Instagram video encompasses the Instagram feed, Instagram Stories, Instagram Live, and Instagram advertisements, among other things. Instagram continues to expand at a rapid pace as more consumers and organizations migrate to mobile. Businesses are flocking to Instagram since it has shown to be successful. That's not all, though as millions of businesses join Instagram, the chances of you running into competition increase. Businesses need to have a presence on Facebook because their customers expect it and search for them there, and the same is true of Instagram.
+
+#### In this article
+
+01 [How Long Can An Instagram Video Be?](#part1)
+
+02 [How Do You Adjust The Duration Of Your Video For Instagram?](#part2)
+
+03 [Tutorial for How to Record on GarageBand](#part3)
+
+## How Long Can An Instagram Video Be?
+
+Instagram feed videos, Instagram Story videos, IGTV videos, Instagram advertising, and Instagram Live have various length limitations. We've broken down Instagram video length details for each of them in this guide.
+
+![instagram video length](https://images.wondershare.com/filmora/article-images/2021/instagram-video-length-1.png)
+
+#### Instagram Story Video
+
+Instagram Stories are full-screen, vertical photographs and videos that vanish after 24 hours. Rather than appearing in the news feed, they appear at the top of the Instagram app. To make your material stand out, they use interactive features like stickers, polls, and Instagram Story filters.
+
+Each Instagram Story has a length of 15-second time limit. If you upload a video that is longer than 15 seconds, they will automatically cut it into 15-second segments. However, based on testing, it appears that you'll only receive four 15-second parts. Thus, this is only suitable for recordings under one minute.
+
+Furthermore, to use the new feature and make lengthier Instagram Stories, simply tap the Your Story symbol and then press and hold the record button in the bottom-right corner for as long as you want to record a moment - without worrying about the 15-second limit.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![instgarm story video length](https://images.wondershare.com/filmora/article-images/2021/instagram-video-length-2.png)
+
+#### Instagram Reels
+
+Instagram's newest feature is Reels. It also allows you to share small video snippets (up to 15 seconds in length) with all Instagram users. Before publishing your Reel, you can dub audio, tweak footage, and add instant effects. The Reel video will then appear in your followers' feeds.
+
+Instagram Reels length is now limited to 60 seconds in duration. Previously, the maximum length was 30 seconds, however owing to competition from TikTok, Instagram decided to raise it. TikTok, one of the platform's main competitors, recently increased the video length limit to three minutes.
+
+To use this feature, go to Create a New Reel and then press the left-hand down button to see the menu. To construct a reel, tap "length" to choose between settings.
+
+#### IGTV Video On Instagram
+
+Creators can upload high-quality, long-form, vertical videos to Instagram TV, also known as IGTV. Users may use IGTV to generate more engaging content for their audiences. Because social media is all about sharing interesting content, IGTV is worth looking into.
+
+Instagram's IGTV section allows users to upload and view longer videos. IGTV videos length is of 15 minutes long on the Instagram mobile app and up to an hour-long on the Instagram website. And because these films are posts, they won't vanish after a day as Stories do.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
+![IGTV video length](https://images.wondershare.com/filmora/article-images/2021/instagram-video-length-3.png)
+
+#### IG Feed Video
+
+The videos you submit to your main Instagram page, rather than your Stories, are referred to as Instagram feed videos. These appear on your followers' Instagram feeds as well as on your main profile page.
+
+Videos can only be 1 minute or 60 seconds long when posted to the Instagram feed. In addition, if you wish to submit a video to your Instagram feed or profile, you must keep it under 60 seconds. If you have a longer than a minute video, you must use the app to select a 60-second frame and post it to your feed. You can trim the video and choose your favorite parts utilizing the app's built-in editor.
+
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![IG Feed video length](https://images.wondershare.com/filmora/article-images/2021/instagram-video-length-4.png)
+
+#### IG Feed Video Ads
+
+The videos you submit to your main Instagram page, rather than your Stories, are referred to as Instagram feed videos. These appear on your followers' Instagram feeds as well as on your main profile page.
+
+If you want to share a video on your Instagram feed or profile, you must keep it under 60 seconds. If you have a longer than a minute video, you must use the app to select a 60-second frame and post it to your feed. You can trim the video and choose your favorite parts using the app's built-in editor. You can then post it immediately to your profile. To do so, go to your profile and click the '+' icon. Choose the video you wish to share and then click 'next.' That concludes the discussion. You can now share the movie on your social media accounts with an interesting caption.
+
+#### IG Story Video Ads
+
+Instagram Stories advertisements are an excellent method to reach out to new people while also showcasing your brand, company, and products to an already engaged audience. Instagram Stories already have excellent engagement rates, with one out of every five stories receiving a direct reply from viewers.
+
+The maximum length of an Instagram Story video ad is two minutes. You can utilize different story cards if you want to show your ad on an Instagram story. Each card can display a 15-second video or a single 5-second picture ad. Only the first three cards of a complete ad will appear in the Instagram story stream. After that, after touching on the ad, the viewer must choose whether or not to see more.
+
+Furthermore, Instagram Stories will show 15-second or shorter video advertising for the duration of the video. Video ads lasting more than 10 seconds will be broken into different Stories cards.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
+## How Do You Adjust The Duration Of Your Video For Instagram?
+
+You must be thinking about how to upload flawlessly every time with all of these time limits and video publication options. Here are some helpful hints:
+
+* If you're worried your IG Feed video is too long and don't want to edit it, make a video carousel post by breaking it up into smaller chunks. By swiping the post, the viewer will be able to see everything.
+* If you felt pressed to stay inside the time limit and made a video that was far too short, you can add more footage, slow it down, or add a loop. Another option is to use a video editor to make an intro and an end screen.
+* If your Instagram story is too long, you can cut it down using any Instagram video editor. Record the video, then open it in your app to edit and trim it down before selecting the clips to upload the full story.
+* In addition, if your Instagram ad video is longer than 15 seconds, Instagram provides 10 cards, each with a 15-second video duration limit. This will allow you to show your complete advertisement without compressing it.
+* The four-hour limit seems insufficient if you wish to have a more extended live stream on Instagram. Then, as soon as you reach the time restriction, you can easily go live again and re-start the stream as many times as you wish.
+* To make videos that will receive hundreds of likes on Instagram, you'll need video editing software that allows you to change the aspect ratio of the videos you wish to submit. Wondershare Filmora is a video editing program that supports a wide range of video file formats and allows you to crop and prepare your videos for web use.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For Win 7 or later (64-bit)
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For macOS 10.12 or later
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Conclusion
+
+**●** That's all there is to know about the length of Instagram videos. Isn't it simple? Take the advice above, make your videos as long as possible, and post when your followers are online, and your post engagement and follower count will skyrocket.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Instagram is one of the most widely used social media platforms in the world. The app has made it huge in the social media game, with roughly 1 billion official app users and 500 million daily active users of IG stories. By just creating an Instagram account, people may share videos directly from their cell phones. However, because Instagram allows for varied video lengths, figuring out [how to post videos](https://tools.techidaily.com/wondershare/filmora/download/) might be difficult. There is a specific time limit for each video genre. All of those video forms, including Instagram feed and story videos, IG Live and IGTV, Instagram reels, and ad videos, will be covered in this article.
+
+We'll start by discussing what we mean by "Instagram video." Instagram video encompasses the Instagram feed, Instagram Stories, Instagram Live, and Instagram advertisements, among other things. Instagram continues to expand at a rapid pace as more consumers and organizations migrate to mobile. Businesses are flocking to Instagram since it has shown to be successful. That's not all, though as millions of businesses join Instagram, the chances of you running into competition increase. Businesses need to have a presence on Facebook because their customers expect it and search for them there, and the same is true of Instagram.
+
+#### In this article
+
+01 [How Long Can An Instagram Video Be?](#part1)
+
+02 [How Do You Adjust The Duration Of Your Video For Instagram?](#part2)
+
+03 [Tutorial for How to Record on GarageBand](#part3)
+
+## How Long Can An Instagram Video Be?
+
+Instagram feed videos, Instagram Story videos, IGTV videos, Instagram advertising, and Instagram Live have various length limitations. We've broken down Instagram video length details for each of them in this guide.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![instagram video length](https://images.wondershare.com/filmora/article-images/2021/instagram-video-length-1.png)
+
+#### Instagram Story Video
+
+Instagram Stories are full-screen, vertical photographs and videos that vanish after 24 hours. Rather than appearing in the news feed, they appear at the top of the Instagram app. To make your material stand out, they use interactive features like stickers, polls, and Instagram Story filters.
+
+Each Instagram Story has a length of 15-second time limit. If you upload a video that is longer than 15 seconds, they will automatically cut it into 15-second segments. However, based on testing, it appears that you'll only receive four 15-second parts. Thus, this is only suitable for recordings under one minute.
+
+Furthermore, to use the new feature and make lengthier Instagram Stories, simply tap the Your Story symbol and then press and hold the record button in the bottom-right corner for as long as you want to record a moment - without worrying about the 15-second limit.
+
+![instgarm story video length](https://images.wondershare.com/filmora/article-images/2021/instagram-video-length-2.png)
+
+#### Instagram Reels
+
+Instagram's newest feature is Reels. It also allows you to share small video snippets (up to 15 seconds in length) with all Instagram users. Before publishing your Reel, you can dub audio, tweak footage, and add instant effects. The Reel video will then appear in your followers' feeds.
+
+Instagram Reels length is now limited to 60 seconds in duration. Previously, the maximum length was 30 seconds, however owing to competition from TikTok, Instagram decided to raise it. TikTok, one of the platform's main competitors, recently increased the video length limit to three minutes.
+
+To use this feature, go to Create a New Reel and then press the left-hand down button to see the menu. To construct a reel, tap "length" to choose between settings.
+
+#### IGTV Video On Instagram
+
+Creators can upload high-quality, long-form, vertical videos to Instagram TV, also known as IGTV. Users may use IGTV to generate more engaging content for their audiences. Because social media is all about sharing interesting content, IGTV is worth looking into.
+
+Instagram's IGTV section allows users to upload and view longer videos. IGTV videos length is of 15 minutes long on the Instagram mobile app and up to an hour-long on the Instagram website. And because these films are posts, they won't vanish after a day as Stories do.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![IGTV video length](https://images.wondershare.com/filmora/article-images/2021/instagram-video-length-3.png)
+
+#### IG Feed Video
+
+The videos you submit to your main Instagram page, rather than your Stories, are referred to as Instagram feed videos. These appear on your followers' Instagram feeds as well as on your main profile page.
+
+Videos can only be 1 minute or 60 seconds long when posted to the Instagram feed. In addition, if you wish to submit a video to your Instagram feed or profile, you must keep it under 60 seconds. If you have a longer than a minute video, you must use the app to select a 60-second frame and post it to your feed. You can trim the video and choose your favorite parts utilizing the app's built-in editor.
+
+![IG Feed video length](https://images.wondershare.com/filmora/article-images/2021/instagram-video-length-4.png)
+
+#### IG Feed Video Ads
+
+The videos you submit to your main Instagram page, rather than your Stories, are referred to as Instagram feed videos. These appear on your followers' Instagram feeds as well as on your main profile page.
+
+If you want to share a video on your Instagram feed or profile, you must keep it under 60 seconds. If you have a longer than a minute video, you must use the app to select a 60-second frame and post it to your feed. You can trim the video and choose your favorite parts using the app's built-in editor. You can then post it immediately to your profile. To do so, go to your profile and click the '+' icon. Choose the video you wish to share and then click 'next.' That concludes the discussion. You can now share the movie on your social media accounts with an interesting caption.
+
+#### IG Story Video Ads
+
+Instagram Stories advertisements are an excellent method to reach out to new people while also showcasing your brand, company, and products to an already engaged audience. Instagram Stories already have excellent engagement rates, with one out of every five stories receiving a direct reply from viewers.
+
+The maximum length of an Instagram Story video ad is two minutes. You can utilize different story cards if you want to show your ad on an Instagram story. Each card can display a 15-second video or a single 5-second picture ad. Only the first three cards of a complete ad will appear in the Instagram story stream. After that, after touching on the ad, the viewer must choose whether or not to see more.
+
+Furthermore, Instagram Stories will show 15-second or shorter video advertising for the duration of the video. Video ads lasting more than 10 seconds will be broken into different Stories cards.
+
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ## How Do You Adjust The Duration Of Your Video For Instagram?
 
 You must be thinking about how to upload flawlessly every time with all of these time limits and video publication options. Here are some helpful hints:
@@ -130,6 +342,10 @@ We'll start by discussing what we mean by "Instagram video." Instagram video enc
 
 03 [Tutorial for How to Record on GarageBand](#part3)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ## How Long Can An Instagram Video Be?
 
 Instagram feed videos, Instagram Story videos, IGTV videos, Instagram advertising, and Instagram Live have various length limitations. We've broken down Instagram video length details for each of them in this guide.
@@ -144,6 +360,9 @@ Each Instagram Story has a length of 15-second time limit. If you upload a video
 
 Furthermore, to use the new feature and make lengthier Instagram Stories, simply tap the Your Story symbol and then press and hold the record button in the bottom-right corner for as long as you want to record a moment - without worrying about the 15-second limit.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<!-- affiliate ads end -->
 ![instgarm story video length](https://images.wondershare.com/filmora/article-images/2021/instagram-video-length-2.png)
 
 #### Instagram Reels
@@ -203,188 +422,9 @@ For Win 7 or later (64-bit)
 
 For macOS 10.12 or later
 
-## Conclusion
-
-**●** That's all there is to know about the length of Instagram videos. Isn't it simple? Take the advice above, make your videos as long as possible, and post when your followers are online, and your post engagement and follower count will skyrocket.
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-Instagram is one of the most widely used social media platforms in the world. The app has made it huge in the social media game, with roughly 1 billion official app users and 500 million daily active users of IG stories. By just creating an Instagram account, people may share videos directly from their cell phones. However, because Instagram allows for varied video lengths, figuring out [how to post videos](https://tools.techidaily.com/wondershare/filmora/download/) might be difficult. There is a specific time limit for each video genre. All of those video forms, including Instagram feed and story videos, IG Live and IGTV, Instagram reels, and ad videos, will be covered in this article.
-
-We'll start by discussing what we mean by "Instagram video." Instagram video encompasses the Instagram feed, Instagram Stories, Instagram Live, and Instagram advertisements, among other things. Instagram continues to expand at a rapid pace as more consumers and organizations migrate to mobile. Businesses are flocking to Instagram since it has shown to be successful. That's not all, though as millions of businesses join Instagram, the chances of you running into competition increase. Businesses need to have a presence on Facebook because their customers expect it and search for them there, and the same is true of Instagram.
-
-#### In this article
-
-01 [How Long Can An Instagram Video Be?](#part1)
-
-02 [How Do You Adjust The Duration Of Your Video For Instagram?](#part2)
-
-03 [Tutorial for How to Record on GarageBand](#part3)
-
-## How Long Can An Instagram Video Be?
-
-Instagram feed videos, Instagram Story videos, IGTV videos, Instagram advertising, and Instagram Live have various length limitations. We've broken down Instagram video length details for each of them in this guide.
-
-![instagram video length](https://images.wondershare.com/filmora/article-images/2021/instagram-video-length-1.png)
-
-#### Instagram Story Video
-
-Instagram Stories are full-screen, vertical photographs and videos that vanish after 24 hours. Rather than appearing in the news feed, they appear at the top of the Instagram app. To make your material stand out, they use interactive features like stickers, polls, and Instagram Story filters.
-
-Each Instagram Story has a length of 15-second time limit. If you upload a video that is longer than 15 seconds, they will automatically cut it into 15-second segments. However, based on testing, it appears that you'll only receive four 15-second parts. Thus, this is only suitable for recordings under one minute.
-
-Furthermore, to use the new feature and make lengthier Instagram Stories, simply tap the Your Story symbol and then press and hold the record button in the bottom-right corner for as long as you want to record a moment - without worrying about the 15-second limit.
-
-![instgarm story video length](https://images.wondershare.com/filmora/article-images/2021/instagram-video-length-2.png)
-
-#### Instagram Reels
-
-Instagram's newest feature is Reels. It also allows you to share small video snippets (up to 15 seconds in length) with all Instagram users. Before publishing your Reel, you can dub audio, tweak footage, and add instant effects. The Reel video will then appear in your followers' feeds.
-
-Instagram Reels length is now limited to 60 seconds in duration. Previously, the maximum length was 30 seconds, however owing to competition from TikTok, Instagram decided to raise it. TikTok, one of the platform's main competitors, recently increased the video length limit to three minutes.
-
-To use this feature, go to Create a New Reel and then press the left-hand down button to see the menu. To construct a reel, tap "length" to choose between settings.
-
-#### IGTV Video On Instagram
-
-Creators can upload high-quality, long-form, vertical videos to Instagram TV, also known as IGTV. Users may use IGTV to generate more engaging content for their audiences. Because social media is all about sharing interesting content, IGTV is worth looking into.
-
-Instagram's IGTV section allows users to upload and view longer videos. IGTV videos length is of 15 minutes long on the Instagram mobile app and up to an hour-long on the Instagram website. And because these films are posts, they won't vanish after a day as Stories do.
-
-![IGTV video length](https://images.wondershare.com/filmora/article-images/2021/instagram-video-length-3.png)
-
-#### IG Feed Video
-
-The videos you submit to your main Instagram page, rather than your Stories, are referred to as Instagram feed videos. These appear on your followers' Instagram feeds as well as on your main profile page.
-
-Videos can only be 1 minute or 60 seconds long when posted to the Instagram feed. In addition, if you wish to submit a video to your Instagram feed or profile, you must keep it under 60 seconds. If you have a longer than a minute video, you must use the app to select a 60-second frame and post it to your feed. You can trim the video and choose your favorite parts utilizing the app's built-in editor.
-
-![IG Feed video length](https://images.wondershare.com/filmora/article-images/2021/instagram-video-length-4.png)
-
-#### IG Feed Video Ads
-
-The videos you submit to your main Instagram page, rather than your Stories, are referred to as Instagram feed videos. These appear on your followers' Instagram feeds as well as on your main profile page.
-
-If you want to share a video on your Instagram feed or profile, you must keep it under 60 seconds. If you have a longer than a minute video, you must use the app to select a 60-second frame and post it to your feed. You can trim the video and choose your favorite parts using the app's built-in editor. You can then post it immediately to your profile. To do so, go to your profile and click the '+' icon. Choose the video you wish to share and then click 'next.' That concludes the discussion. You can now share the movie on your social media accounts with an interesting caption.
-
-#### IG Story Video Ads
-
-Instagram Stories advertisements are an excellent method to reach out to new people while also showcasing your brand, company, and products to an already engaged audience. Instagram Stories already have excellent engagement rates, with one out of every five stories receiving a direct reply from viewers.
-
-The maximum length of an Instagram Story video ad is two minutes. You can utilize different story cards if you want to show your ad on an Instagram story. Each card can display a 15-second video or a single 5-second picture ad. Only the first three cards of a complete ad will appear in the Instagram story stream. After that, after touching on the ad, the viewer must choose whether or not to see more.
-
-Furthermore, Instagram Stories will show 15-second or shorter video advertising for the duration of the video. Video ads lasting more than 10 seconds will be broken into different Stories cards.
-
-## How Do You Adjust The Duration Of Your Video For Instagram?
-
-You must be thinking about how to upload flawlessly every time with all of these time limits and video publication options. Here are some helpful hints:
-
-* If you're worried your IG Feed video is too long and don't want to edit it, make a video carousel post by breaking it up into smaller chunks. By swiping the post, the viewer will be able to see everything.
-* If you felt pressed to stay inside the time limit and made a video that was far too short, you can add more footage, slow it down, or add a loop. Another option is to use a video editor to make an intro and an end screen.
-* If your Instagram story is too long, you can cut it down using any Instagram video editor. Record the video, then open it in your app to edit and trim it down before selecting the clips to upload the full story.
-* In addition, if your Instagram ad video is longer than 15 seconds, Instagram provides 10 cards, each with a 15-second video duration limit. This will allow you to show your complete advertisement without compressing it.
-* The four-hour limit seems insufficient if you wish to have a more extended live stream on Instagram. Then, as soon as you reach the time restriction, you can easily go live again and re-start the stream as many times as you wish.
-* To make videos that will receive hundreds of likes on Instagram, you'll need video editing software that allows you to change the aspect ratio of the videos you wish to submit. Wondershare Filmora is a video editing program that supports a wide range of video file formats and allows you to crop and prepare your videos for web use.
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-For Win 7 or later (64-bit)
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-For macOS 10.12 or later
-
-## Conclusion
-
-**●** That's all there is to know about the length of Instagram videos. Isn't it simple? Take the advice above, make your videos as long as possible, and post when your followers are online, and your post engagement and follower count will skyrocket.
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-Instagram is one of the most widely used social media platforms in the world. The app has made it huge in the social media game, with roughly 1 billion official app users and 500 million daily active users of IG stories. By just creating an Instagram account, people may share videos directly from their cell phones. However, because Instagram allows for varied video lengths, figuring out [how to post videos](https://tools.techidaily.com/wondershare/filmora/download/) might be difficult. There is a specific time limit for each video genre. All of those video forms, including Instagram feed and story videos, IG Live and IGTV, Instagram reels, and ad videos, will be covered in this article.
-
-We'll start by discussing what we mean by "Instagram video." Instagram video encompasses the Instagram feed, Instagram Stories, Instagram Live, and Instagram advertisements, among other things. Instagram continues to expand at a rapid pace as more consumers and organizations migrate to mobile. Businesses are flocking to Instagram since it has shown to be successful. That's not all, though as millions of businesses join Instagram, the chances of you running into competition increase. Businesses need to have a presence on Facebook because their customers expect it and search for them there, and the same is true of Instagram.
-
-#### In this article
-
-01 [How Long Can An Instagram Video Be?](#part1)
-
-02 [How Do You Adjust The Duration Of Your Video For Instagram?](#part2)
-
-03 [Tutorial for How to Record on GarageBand](#part3)
-
-## How Long Can An Instagram Video Be?
-
-Instagram feed videos, Instagram Story videos, IGTV videos, Instagram advertising, and Instagram Live have various length limitations. We've broken down Instagram video length details for each of them in this guide.
-
-![instagram video length](https://images.wondershare.com/filmora/article-images/2021/instagram-video-length-1.png)
-
-#### Instagram Story Video
-
-Instagram Stories are full-screen, vertical photographs and videos that vanish after 24 hours. Rather than appearing in the news feed, they appear at the top of the Instagram app. To make your material stand out, they use interactive features like stickers, polls, and Instagram Story filters.
-
-Each Instagram Story has a length of 15-second time limit. If you upload a video that is longer than 15 seconds, they will automatically cut it into 15-second segments. However, based on testing, it appears that you'll only receive four 15-second parts. Thus, this is only suitable for recordings under one minute.
-
-Furthermore, to use the new feature and make lengthier Instagram Stories, simply tap the Your Story symbol and then press and hold the record button in the bottom-right corner for as long as you want to record a moment - without worrying about the 15-second limit.
-
-![instgarm story video length](https://images.wondershare.com/filmora/article-images/2021/instagram-video-length-2.png)
-
-#### Instagram Reels
-
-Instagram's newest feature is Reels. It also allows you to share small video snippets (up to 15 seconds in length) with all Instagram users. Before publishing your Reel, you can dub audio, tweak footage, and add instant effects. The Reel video will then appear in your followers' feeds.
-
-Instagram Reels length is now limited to 60 seconds in duration. Previously, the maximum length was 30 seconds, however owing to competition from TikTok, Instagram decided to raise it. TikTok, one of the platform's main competitors, recently increased the video length limit to three minutes.
-
-To use this feature, go to Create a New Reel and then press the left-hand down button to see the menu. To construct a reel, tap "length" to choose between settings.
-
-#### IGTV Video On Instagram
-
-Creators can upload high-quality, long-form, vertical videos to Instagram TV, also known as IGTV. Users may use IGTV to generate more engaging content for their audiences. Because social media is all about sharing interesting content, IGTV is worth looking into.
-
-Instagram's IGTV section allows users to upload and view longer videos. IGTV videos length is of 15 minutes long on the Instagram mobile app and up to an hour-long on the Instagram website. And because these films are posts, they won't vanish after a day as Stories do.
-
-![IGTV video length](https://images.wondershare.com/filmora/article-images/2021/instagram-video-length-3.png)
-
-#### IG Feed Video
-
-The videos you submit to your main Instagram page, rather than your Stories, are referred to as Instagram feed videos. These appear on your followers' Instagram feeds as well as on your main profile page.
-
-Videos can only be 1 minute or 60 seconds long when posted to the Instagram feed. In addition, if you wish to submit a video to your Instagram feed or profile, you must keep it under 60 seconds. If you have a longer than a minute video, you must use the app to select a 60-second frame and post it to your feed. You can trim the video and choose your favorite parts utilizing the app's built-in editor.
-
-![IG Feed video length](https://images.wondershare.com/filmora/article-images/2021/instagram-video-length-4.png)
-
-#### IG Feed Video Ads
-
-The videos you submit to your main Instagram page, rather than your Stories, are referred to as Instagram feed videos. These appear on your followers' Instagram feeds as well as on your main profile page.
-
-If you want to share a video on your Instagram feed or profile, you must keep it under 60 seconds. If you have a longer than a minute video, you must use the app to select a 60-second frame and post it to your feed. You can trim the video and choose your favorite parts using the app's built-in editor. You can then post it immediately to your profile. To do so, go to your profile and click the '+' icon. Choose the video you wish to share and then click 'next.' That concludes the discussion. You can now share the movie on your social media accounts with an interesting caption.
-
-#### IG Story Video Ads
-
-Instagram Stories advertisements are an excellent method to reach out to new people while also showcasing your brand, company, and products to an already engaged audience. Instagram Stories already have excellent engagement rates, with one out of every five stories receiving a direct reply from viewers.
-
-The maximum length of an Instagram Story video ad is two minutes. You can utilize different story cards if you want to show your ad on an Instagram story. Each card can display a 15-second video or a single 5-second picture ad. Only the first three cards of a complete ad will appear in the Instagram story stream. After that, after touching on the ad, the viewer must choose whether or not to see more.
-
-Furthermore, Instagram Stories will show 15-second or shorter video advertising for the duration of the video. Video ads lasting more than 10 seconds will be broken into different Stories cards.
-
-## How Do You Adjust The Duration Of Your Video For Instagram?
-
-You must be thinking about how to upload flawlessly every time with all of these time limits and video publication options. Here are some helpful hints:
-
-* If you're worried your IG Feed video is too long and don't want to edit it, make a video carousel post by breaking it up into smaller chunks. By swiping the post, the viewer will be able to see everything.
-* If you felt pressed to stay inside the time limit and made a video that was far too short, you can add more footage, slow it down, or add a loop. Another option is to use a video editor to make an intro and an end screen.
-* If your Instagram story is too long, you can cut it down using any Instagram video editor. Record the video, then open it in your app to edit and trim it down before selecting the clips to upload the full story.
-* In addition, if your Instagram ad video is longer than 15 seconds, Instagram provides 10 cards, each with a 15-second video duration limit. This will allow you to show your complete advertisement without compressing it.
-* The four-hour limit seems insufficient if you wish to have a more extended live stream on Instagram. Then, as soon as you reach the time restriction, you can easily go live again and re-start the stream as many times as you wish.
-* To make videos that will receive hundreds of likes on Instagram, you'll need video editing software that allows you to change the aspect ratio of the videos you wish to submit. Wondershare Filmora is a video editing program that supports a wide range of video file formats and allows you to crop and prepare your videos for web use.
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-For Win 7 or later (64-bit)
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-For macOS 10.12 or later
-
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ## Conclusion
 
 **●** That's all there is to know about the length of Instagram videos. Isn't it simple? Take the advice above, make your videos as long as possible, and post when your followers are online, and your post engagement and follower count will skyrocket.
@@ -412,3 +452,39 @@ For macOS 10.12 or later
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-behind-every-like-unseen-factors-that-influence-viewer-reactions/"><u>[New] 2024 Approved  Behind Every Like  Unseen Factors That Influence Viewer Reactions</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-instagram-vids-determining-the-perfect-dimensions/"><u>[New] 2024 Approved  Instagram Vids  Determining the Perfect Dimensions</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-integrating-external-websites-into-instagrams-ecosystem/"><u>[New] 2024 Approved  Integrating External Websites Into Instagram's Ecosystem</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-mediamatters-size-your-content-for-stellar-instagram/"><u>[New] 2024 Approved  MediaMatters  Size Your Content for Stellar Instagram</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-how-to-add-border-to-instagram-photos/"><u>[New] How to Add Border to Instagram Photos?</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-leveraging-popularity-a-comprehensive-guide-to-instagram-influencer-advertising/"><u>[New] Leveraging Popularity  A Comprehensive Guide to Instagram Influencer Advertising</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-likes-and-videos-fast-track-to-insta-dominance-guide-for-2024/"><u>[New] Likes & Videos  Fast Track to Insta Dominance Guide for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-step-by-step-guide-becoming-a-reel-star-on-instagram/"><u>[New] Step-by-Step Guide  Becoming a Reel Star on Instagram</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-accelerating-your-watch-experience-on-instagram-videos/"><u>[Updated] 2024 Approved  Accelerating Your Watch Experience on Instagram Videos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-plan-ahead-on-instagram-rankings-of-the-top-8-scheduling-apps/"><u>[Updated] 2024 Approved  Plan Ahead on Instagram  Rankings of The Top 8 Scheduling Apps</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-awaken-the-artist-within-selective-shots-for-inspiration/"><u>[Updated] Awaken the Artist Within  Selective Shots for Inspiration</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-effortless-audio-transfer-on-iphone-pick-top-6-tools-to-convert-youtube/"><u>[Updated] Effortless Audio Transfer on iPhone  Pick Top 6 Tools to Convert YouTube</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-optimizing-whiteboard-use-during-online-sessions-across-different-tech-brands/"><u>[Updated] In 2024, Optimizing Whiteboard Use During Online Sessions Across Different Tech Brands</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-instagrams-ultimate-guide-to-the-best-grid-software-of-the-year/"><u>[Updated] Instagram's Ultimate Guide to the Best Grid Software of the Year</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-probing-into-verified-selfies-significance-in-modern-social-media/"><u>[Updated] Probing Into Verified Selfies' Significance in Modern Social Media</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-unlocking-the-mystery-of-storing-instagram-videos-pc-and-mac-users-guide-for-2024/"><u>[Updated] Unlocking the Mystery of Storing Instagram Videos (PC & Mac Users Guide) for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-clearer-anonymity-discreet-faces-deletion/"><u>2024 Approved  Clearer Anonymity  Discreet Faces Deletion</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-old-hollywood-techniques-for-modern-filmmakers/"><u>2024 Approved  Old Hollywood Techniques for Modern Filmmakers</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-reel-into-reality-how-boomers-keep-ig-audiene-hooked/"><u>2024 Approved  Reel Into Reality  How Boomers Keep IG Audiene Hooked</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-scaling-movies-on-a-mac-for-impeccable-instagram-shares/"><u>2024 Approved  Scaling Movies on a Mac for Impeccable Instagram Shares</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-unlocking-insta-stardom-15-effortless-steps-towards-rapid-and-sustained-fame/"><u>2024 Approved  Unlocking Insta Stardom  15 Effortless Steps Towards Rapid and Sustained Fame</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/boost-your-brand-accrue-1k-ig-friendsmonthly-for-2024/"><u>Boost Your Brand  Accrue 1K IG Friends/Monthly for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/download-free-mcb-skin-designs/"><u>Download Free MCB Skin Designs</u></a></li>
+<li><a href="https://driver-error.techidaily.com/elevate-pcs-capabilities-by-updating-deathadder-on-win11/"><u>Elevate PC's Capabilities by Updating DeathAdder on WIN11</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/essential-fb-video-loader-apps-ranked-5-for-2024/"><u>Essential FB Video Loader Apps Ranked #5 for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-do-you-unlock-your-apple-iphone-11-pro-learn-all-4-methods-drfone-by-drfone-ios/"><u>In 2024, How Do You Unlock your Apple iPhone 11 Pro? Learn All 4 Methods | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-realme-narzo-n55-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Realme Narzo N55 Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Apple iPhone XR | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-unlocking-the-potential-for-igtv-videos-on-smartphonedslr/"><u>In 2024, Unlocking the Potential for IGTV Videos on Smartphone/DSLR</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/instagram-verified-posts-do-they-matter-for-2024/"><u>Instagram Verified Posts - Do They Matter for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/simplified-guide-posting-igtv-on-stories/"><u>Simplified Guide  Posting IGTV on Stories</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/unveiling-the-instagram-success-script/"><u>Unveiling the Instagram Success Script</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "Border Techniques for Enhanced Instagram Pictures for 2024"
-date: 2024-05-21T22:11:55.046Z
-updated: 2024-05-22T22:11:55.046Z
+date: 2024-07-25T18:10:07.205Z
+updated: 2024-07-26T18:10:07.205Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes Border Techniques for Enhanced Instagram Pictures for 2024"
 excerpt: "This Article Describes Border Techniques for Enhanced Instagram Pictures for 2024"
 keywords: "InstaEnhanceTechniques,SocialMediaEditing,VisualImpactBoost,EdgeEffectsPhotos,BorderArtistry,ImageAesthetics,PhotoEnhancementMethods"
-thumbnail: https://www.lifewire.com/thmb/k-dOKf6C-J0FNiU2NW6YiBhJff0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/029_make-a-digital-business-card-5202951-1ecb1da6bb7a42ceb177ddea91bb2a2c.jpg
+thumbnail: https://thmb.techidaily.com/2667ea34d1175640376556500cfb9591d15bfce3d67d6c1590ffd9f57da4dd02.jpg
 ---
 
 ## Border Techniques for Enhanced Instagram Pictures
@@ -37,6 +37,9 @@ Want to be professional in the Instagram photo? _[Check these tips](https://tool
 
 03 [Things to Consider When Adding Borders to Instagram Photo](#part3)
 
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: How to Add White Borders to Photo Posts Using the Instagram App?
 
 The most convenient way to add white borders to the photo is through the Instagram app. Following is the step-by-step process of adding an Instagram white frame using the app.
@@ -56,14 +59,26 @@ While Instagram does allow you to add borders to your photos, the options Instag
 
 Some apps are only used to add borders solely, while others can also be used to edit photos, add more filters, add enticing borders, and so much more. Let’s take a look at some of the most comprehensive and effective apps to add borders.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<!-- affiliate ads end -->
 ### 1. VSCO: Photo & Video Editor
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![VSCO Photo Editor](https://images.wondershare.com/filmora/article-images/vsco-photo-video-editor.jpg)
 
 VSCO is a free app available for [iOS](https://apps.apple.com/us/app/vsco-photo-video-editor/id58801383) and [Android users](https://play.google.com/store/apps/details?id=com.vsco.cam&hl=en&gl=US). You can start using it by creating an account on it. VSCO can edit your Instagram photos and videos. It gives you the option of framing pictures by adding borders to them through the VSCO studio. You just have to select your image and tap on the edit icon. Next, you need to click on the borders icon and add your favorite color frame to your image. It also gives you the option of changing the size and color of the border.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ### 2. Photoshop Express
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Photoshop Express add border to Ins photo](https://images.wondershare.com/filmora/article-images/photoshop-express-photo-editor.jpg)
 
 Photoshop Express is a free app available for [iPhone](https://apps.apple.com/us/app/photoshop-express-photo-editor/id331975235), [Android phones](https://play.google.com/store/apps/details?id=com.adobe.psmobile&hl=en%5FUS&gl=US), tablets, and Windows phones. It helps its users edit their photos and make collages. This app works on devices with Windows 8 or above. Through this app, you can adjust, resize your images and add text to them. To add a border to your image, you have to click on the border option and a frame will be added to your picture. You can also change the color of the border through it. This app also gives you the option of adding watermarks to your images and enhances them by adding different filters on them.
@@ -76,12 +91,21 @@ Polarr is a free photo editing app that is easily available for [iOS 12 or above
 
 ### 4. Adobe Lightroom: Photo Editor
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![use Adobe Lightroom to add border to Ins photo](https://images.wondershare.com/filmora/article-images/adobe-lightroom-photo-editor.jpg)
 
 Lightroom is a free photo editing app available for [iOS 12 and above](https://apps.apple.com/us/app/adobe-lightroom-photo-editor/id878783582) and requires [Android 6.0 and above](https://play.google.com/store/apps/details?id=com.adobe.lrmobile&hl=en%5FUS&gl=US). This app has easy-to-use editing tools like filters and sliders. Lightroom is considered to have the best photo editing features. It doesn’t matter even if you are a beginner; Lightroom is a perfect app for all photography levels. To add a border to your image, select your image and switch to print mode. In the bottom left, page setup will appear, click on that. New page size will be created, then add a border to it and scale your image.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 5. Snapspeed
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ![use Snapseed to add border to Ins photo](https://images.wondershare.com/filmora/article-images/snapseed-photo-editor.jpg)
 
 Snapspeed is a [free photo editing app](https://tools.techidaily.com/wondershare/filmora/download/) available for iPhone and Android users. This app can also be downloaded on Windows and MacBook. This app provides you with several editing features free. This app also enables you to add white borders to your images. Choose a style and texture to add borders to your photos. You will see an option for frames, tap on this option to select a frame. You can also adjust the square frame by repositioning it.
@@ -125,6 +149,9 @@ The most convenient way to add white borders to the photo is through the Instagr
 
 * Now click done and move forward and put a caption on your photo and share it with your Instagram family. Your white border photo is ready to be seen by your Instagram followers.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<!-- affiliate ads end -->
 ## Part 2: Best Apps to Add Borders to Instagram Photo
 
 While Instagram does allow you to add borders to your photos, the options Instagram provides just aren’t enough. They limit the creative space individuals have - which is why many people turn to third-party apps. These apps provide enhanced borders with a diverse range of colors. This makes their Instagram content stand out even more! Several other apps can help you add **Instagram photo borders** to your photos.
@@ -143,12 +170,18 @@ VSCO is a free app available for [iOS](https://apps.apple.com/us/app/vsco-photo-
 
 Photoshop Express is a free app available for [iPhone](https://apps.apple.com/us/app/photoshop-express-photo-editor/id331975235), [Android phones](https://play.google.com/store/apps/details?id=com.adobe.psmobile&hl=en%5FUS&gl=US), tablets, and Windows phones. It helps its users edit their photos and make collages. This app works on devices with Windows 8 or above. Through this app, you can adjust, resize your images and add text to them. To add a border to your image, you have to click on the border option and a frame will be added to your picture. You can also change the color of the border through it. This app also gives you the option of adding watermarks to your images and enhances them by adding different filters on them.
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ### 3. Polarr
 
 ![use Polarr to add border to Ins photo](https://images.wondershare.com/filmora/article-images/photoshop-express-photo-editor.jpg)
 
 Polarr is a free photo editing app that is easily available for [iOS 12 or above](https://apps.apple.com/us/app/polarr/id988173374), [Android](https://play.google.com/store/apps/details?id=photo.editor.polarr&hl=en&gl=US), Windows, and Mac. Through polar you can add effects, filters, vignettes, shadows, and many more features to your photo. Simple borders can also be added through this app by tapping the borders icon. Even if you know nothing about photography, Polarr will help you become a pro in photo editing through its various enhancing tools.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<!-- affiliate ads end -->
 ### 4. Adobe Lightroom: Photo Editor
 
 ![use Adobe Lightroom to add border to Ins photo](https://images.wondershare.com/filmora/article-images/adobe-lightroom-photo-editor.jpg)
@@ -157,6 +190,9 @@ Lightroom is a free photo editing app available for [iOS 12 and above](https://a
 
 ### 5. Snapspeed
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![use Snapseed to add border to Ins photo](https://images.wondershare.com/filmora/article-images/snapseed-photo-editor.jpg)
 
 Snapspeed is a [free photo editing app](https://tools.techidaily.com/wondershare/filmora/download/) available for iPhone and Android users. This app can also be downloaded on Windows and MacBook. This app provides you with several editing features free. This app also enables you to add white borders to your images. Choose a style and texture to add borders to your photos. You will see an option for frames, tap on this option to select a frame. You can also adjust the square frame by repositioning it.
@@ -196,22 +232,40 @@ The most convenient way to add white borders to the photo is through the Instagr
 * Double-tap your chosen filter. A slider with a square next to it will appear. Through the slider, the strength of the filter can be selected. Move the slider to the left, if you want no filter on your picture.
 * Click the square appearing next to the slider. This will add a white frame to your picture.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<!-- affiliate ads end -->
 ![add white borders to Instagram photo](https://images.wondershare.com/filmora/article-images/add-white-borders-instagram.jpg)
 
 * Now click done and move forward and put a caption on your photo and share it with your Instagram family. Your white border photo is ready to be seen by your Instagram followers.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+</a>
+<!-- affiliate ads end -->
 ## Part 2: Best Apps to Add Borders to Instagram Photo
 
 While Instagram does allow you to add borders to your photos, the options Instagram provides just aren’t enough. They limit the creative space individuals have - which is why many people turn to third-party apps. These apps provide enhanced borders with a diverse range of colors. This makes their Instagram content stand out even more! Several other apps can help you add **Instagram photo borders** to your photos.
 
 Some apps are only used to add borders solely, while others can also be used to edit photos, add more filters, add enticing borders, and so much more. Let’s take a look at some of the most comprehensive and effective apps to add borders.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### 1. VSCO: Photo & Video Editor
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![VSCO Photo Editor](https://images.wondershare.com/filmora/article-images/vsco-photo-video-editor.jpg)
 
 VSCO is a free app available for [iOS](https://apps.apple.com/us/app/vsco-photo-video-editor/id58801383) and [Android users](https://play.google.com/store/apps/details?id=com.vsco.cam&hl=en&gl=US). You can start using it by creating an account on it. VSCO can edit your Instagram photos and videos. It gives you the option of framing pictures by adding borders to them through the VSCO studio. You just have to select your image and tap on the edit icon. Next, you need to click on the borders icon and add your favorite color frame to your image. It also gives you the option of changing the size and color of the border.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
+DEX 3 meets the demands of today’s versatile DJ, without compromise! 
+DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<!-- affiliate ads end -->
 ### 2. Photoshop Express
 
 ![Photoshop Express add border to Ins photo](https://images.wondershare.com/filmora/article-images/photoshop-express-photo-editor.jpg)
@@ -226,6 +280,9 @@ Polarr is a free photo editing app that is easily available for [iOS 12 or above
 
 ### 4. Adobe Lightroom: Photo Editor
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![use Adobe Lightroom to add border to Ins photo](https://images.wondershare.com/filmora/article-images/adobe-lightroom-photo-editor.jpg)
 
 Lightroom is a free photo editing app available for [iOS 12 and above](https://apps.apple.com/us/app/adobe-lightroom-photo-editor/id878783582) and requires [Android 6.0 and above](https://play.google.com/store/apps/details?id=com.adobe.lrmobile&hl=en%5FUS&gl=US). This app has easy-to-use editing tools like filters and sliders. Lightroom is considered to have the best photo editing features. It doesn’t matter even if you are a beginner; Lightroom is a perfect app for all photography levels. To add a border to your image, select your image and switch to print mode. In the bottom left, page setup will appear, click on that. New page size will be created, then add a border to it and scale your image.
@@ -262,6 +319,9 @@ Want to be professional in the Instagram photo? _[Check these tips](https://tool
 
 03 [Things to Consider When Adding Borders to Instagram Photo](#part3)
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: How to Add White Borders to Photo Posts Using the Instagram App?
 
 The most convenient way to add white borders to the photo is through the Instagram app. Following is the step-by-step process of adding an Instagram white frame using the app.
@@ -281,30 +341,51 @@ While Instagram does allow you to add borders to your photos, the options Instag
 
 Some apps are only used to add borders solely, while others can also be used to edit photos, add more filters, add enticing borders, and so much more. Let’s take a look at some of the most comprehensive and effective apps to add borders.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1. VSCO: Photo & Video Editor
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<!-- affiliate ads end -->
 ![VSCO Photo Editor](https://images.wondershare.com/filmora/article-images/vsco-photo-video-editor.jpg)
 
 VSCO is a free app available for [iOS](https://apps.apple.com/us/app/vsco-photo-video-editor/id58801383) and [Android users](https://play.google.com/store/apps/details?id=com.vsco.cam&hl=en&gl=US). You can start using it by creating an account on it. VSCO can edit your Instagram photos and videos. It gives you the option of framing pictures by adding borders to them through the VSCO studio. You just have to select your image and tap on the edit icon. Next, you need to click on the borders icon and add your favorite color frame to your image. It also gives you the option of changing the size and color of the border.
 
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2. Photoshop Express
 
 ![Photoshop Express add border to Ins photo](https://images.wondershare.com/filmora/article-images/photoshop-express-photo-editor.jpg)
 
 Photoshop Express is a free app available for [iPhone](https://apps.apple.com/us/app/photoshop-express-photo-editor/id331975235), [Android phones](https://play.google.com/store/apps/details?id=com.adobe.psmobile&hl=en%5FUS&gl=US), tablets, and Windows phones. It helps its users edit their photos and make collages. This app works on devices with Windows 8 or above. Through this app, you can adjust, resize your images and add text to them. To add a border to your image, you have to click on the border option and a frame will be added to your picture. You can also change the color of the border through it. This app also gives you the option of adding watermarks to your images and enhances them by adding different filters on them.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 3. Polarr
 
 ![use Polarr to add border to Ins photo](https://images.wondershare.com/filmora/article-images/photoshop-express-photo-editor.jpg)
 
 Polarr is a free photo editing app that is easily available for [iOS 12 or above](https://apps.apple.com/us/app/polarr/id988173374), [Android](https://play.google.com/store/apps/details?id=photo.editor.polarr&hl=en&gl=US), Windows, and Mac. Through polar you can add effects, filters, vignettes, shadows, and many more features to your photo. Simple borders can also be added through this app by tapping the borders icon. Even if you know nothing about photography, Polarr will help you become a pro in photo editing through its various enhancing tools.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<!-- affiliate ads end -->
 ### 4. Adobe Lightroom: Photo Editor
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![use Adobe Lightroom to add border to Ins photo](https://images.wondershare.com/filmora/article-images/adobe-lightroom-photo-editor.jpg)
 
 Lightroom is a free photo editing app available for [iOS 12 and above](https://apps.apple.com/us/app/adobe-lightroom-photo-editor/id878783582) and requires [Android 6.0 and above](https://play.google.com/store/apps/details?id=com.adobe.lrmobile&hl=en%5FUS&gl=US). This app has easy-to-use editing tools like filters and sliders. Lightroom is considered to have the best photo editing features. It doesn’t matter even if you are a beginner; Lightroom is a perfect app for all photography levels. To add a border to your image, select your image and switch to print mode. In the bottom left, page setup will appear, click on that. New page size will be created, then add a border to it and scale your image.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 5. Snapspeed
 
 ![use Snapseed to add border to Ins photo](https://images.wondershare.com/filmora/article-images/snapseed-photo-editor.jpg)
@@ -344,3 +425,57 @@ While there are numerous other apps available in the market to aid you in adding
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-masterful-instagram-reel-editors-the-ultimate-top-10-list/"><u>[New] 2024 Approved  Masterful Instagram Reel Editors  The Ultimate Top 10 List</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-supercharging-instagram-videos-on-the-go-mobile/"><u>[New] 2024 Approved  Supercharging Instagram Videos on the Go (Mobile)</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-exclusive-discounts-on-economical-gopro-cameras/"><u>[New] Exclusive Discounts on Economical GoPro Cameras</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-exclusive-melodic-selections-for-video-editing/"><u>[New] Exclusive Melodic Selections for Video Editing</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-free-frameworks-for-every-movie-epilogue-you-dream/"><u>[New] Free Frameworks for Every Movie Epilogue You Dream</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-finessing-voices-in-instagrams-storytelling-and-videos/"><u>[New] In 2024, Finessing Voices in Instagram's Storytelling and Videos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-hidden-viewers-guide-reading-instagram-stories-privately-from-pcandroidios/"><u>[New] In 2024, Hidden Viewers Guide  Reading Instagram Stories Privately From PC/Android/iOS</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-instagram-video-inversion-step-by-step-strategy/"><u>[New] Instagram Video Inversion  Step-by-Step Strategy</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-laughter-and-tears-connected-10-memes-that-resonate-on-ig/"><u>[New] Laughter and Tears Connected  10 Memes That Resonate On IG</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-mastering-the-art-of-igtv-a-comprehensive-guide-for-social-media-pros-for-2024/"><u>[New] Mastering the Art of IGTV  A Comprehensive Guide for Social Media Pros for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-solving-obs-high-bitrate-issues/"><u>[New] Solving OBS High Bitrate Issues</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-avoiding-blur-on-instagram-with-smart-zooms/"><u>[Updated] 2024 Approved  Avoiding Blur on Instagram with Smart Zooms</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-how-to-post-a-vimeo-video-on-instagram/"><u>[Updated] 2024 Approved  How to Post a Vimeo Video on Instagram</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-instagram-stories-unseen-aspects-revealed/"><u>[Updated] 2024 Approved  Instagram Stories  Unseen Aspects Revealed</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-crafting-cinematic-reels-embracing-the-power-of-pause-for-2024/"><u>[Updated] Crafting Cinematic Reels  Embracing the Power of Pause for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-expert-video-grabbing-kit-perfect-for-firefox-browser-users-for-2024/"><u>[Updated] Expert Video Grabbing Kit  Perfect for FireFox Browser Users for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-tall-tales-reimagined-edits-for-vt-videos-on-fcpx/"><u>[Updated] In 2024, Tall Tales Reimagined  Edits for VT Videos on FCPX</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-the-definitive-guide-to-iptv-stream-preservation/"><u>[Updated] In 2024, The Definitive Guide to IPTV Stream Preservation</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-the-ultimate-list-of-trending-instagram-hashtags-for-success/"><u>[Updated] In 2024, The Ultimate List of Trending Instagram Hashtags for Success</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-instagram-flips-mastering-the-video-360-turn/"><u>[Updated] Instagram Flips  Mastering the Video 360-Turn</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-patience-pays-off-the-art-of-slow-motion-video-crafting-for-2024/"><u>[Updated] Patience Pays Off  The Art of Slow-Motion Video Crafting for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-snap-it-all-top-5-windows-11-recording-strategies-for-gamers/"><u>[Updated] Snap It All! Top 5 Windows 11 Recording Strategies for Gamers</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-future-of-followers-posting-in-the-wake-of-changes/"><u>[Updated] The Future of Followers  Posting in the Wake of Changes</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-top-instagram-tagging-strategies-to-skyrocket-likes-and-followers/"><u>[Updated] Top Instagram Tagging Strategies to Skyrocket Likes and Followers</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-unlock-the-secrets-for-a-viral-instagram-account-gain-fans-and-verified-status-in-less-than-150-characters/"><u>[Updated] Unlock the Secrets for a Viral Instagram Account  Gain Fans and Verified Status in Less Than 150 Characters</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-bridging-the-gap-in-vr-storytelling-and-innovation/"><u>2024 Approved  Bridging the Gap in VR Storytelling and Innovation</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-bring-your-world-to-life-delving-into-hp-envy-27s-features/"><u>2024 Approved  Bring Your World to Life  Delving Into HP Envy 27'S Features</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-step-by-step-walkthrough-of-instagram-story-screening/"><u>2024 Approved  Step-by-Step Walkthrough of Instagram Story Screening</u></a></li>
+<li><a href="https://location-social.techidaily.com/4-most-known-ways-to-find-someone-on-tinder-for-xiaomi-14-pro-by-name-drfone-by-drfone-virtual-android/"><u>4 Most-Known Ways to Find Someone on Tinder For Xiaomi 14 Pro by Name | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/analytics-tools-for-an-improved-tracking-of-your-instagram-metrics-for-2024/"><u>Analytics Tools For an Improved Tracking of Your Instagram Metrics for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/dominate-digital-space-secure-a-chain-of-1k-fansmonth/"><u>Dominate Digital Space  Secure a Chain of 1K Fans/Month</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/harmonizing-visuals-and-sound-in-instagram-videos/"><u>Harmonizing Visuals & Sound in Instagram Videos</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-can-realme-c55mirror-share-to-pc-drfone-by-drfone-android/"><u>How Can Realme C55Mirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-my-spouse-from-spying-on-my-vivo-y78t-drfone-by-drfone-virtual-android/"><u>How to Stop My Spouse from Spying on My Vivo Y78t | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-vivo-v30-by-drfone-android/"><u>In 2024, Complete Review & Guide to Techeligible FRP Bypass and More For Vivo V30</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-disabled-iphone-se-how-to-unlock-a-disabled-iphone-se-drfone-by-drfone-ios/"><u>In 2024, Disabled iPhone SE How to Unlock a Disabled iPhone SE? | Dr.fone</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/in-2024-get-started-with-video-editing-on-mac-os-x-yosemite-a-quick-start-guide/"><u>In 2024, Get Started with Video Editing on Mac OS X Yosemite A Quick Start Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-guiding-principles-for-modifying-photographic-identities-on-major-social-platforms/"><u>In 2024, Guiding Principles for Modifying Photographic Identities on Major Social Platforms</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Apple iPhone 14 Pro | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-samsung-galaxy-a25-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Samsung Galaxy A25 5G | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-monitoring-lost-instagram-connections/"><u>In 2024, Monitoring Lost Instagram Connections</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/instagram-filters-a-2023-guide-to-enhanced-photography-for-2024/"><u>Instagram Filters  A 2023 Guide to Enhanced Photography for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/leveraging-instagram-for-monetary-success-for-2024/"><u>Leveraging Instagram for Monetary Success for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/mastering-the-art-of-insta-top-gadgets-for-success-for-2024/"><u>Mastering the Art of Insta  Top Gadgets for Success for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/quickcapture-simplified-windows-screen-record/"><u>QuickCapture  Simplified Windows Screen Record</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/selfies-on-snap-verifying-authenticity-for-2024/"><u>Selfies on Snap  Verifying Authenticity for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/the-ultimate-guide-to-bypassing-icloud-activation-lock-from-apple-iphone-11-pro-by-drfone-ios/"><u>The Ultimate Guide to Bypassing iCloud Activation Lock from Apple iPhone 11 Pro</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/unlock-apple-iphone-se-without-passcode-easily-drfone-by-drfone-ios/"><u>Unlock Apple iPhone SE Without Passcode Easily | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/unlocking-potential-with-instagram-videos-strategic-planning-insights/"><u>Unlocking Potential with Instagram Videos  Strategic Planning Insights</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/visualizationvirtue-the-art-of-resizing-photos-and-videos-in-instagram-for-2024/"><u>VisualizationVirtue  The Art of Resizing Photos and Videos in Instagram for 2024</u></a></li>
+</ul></div>

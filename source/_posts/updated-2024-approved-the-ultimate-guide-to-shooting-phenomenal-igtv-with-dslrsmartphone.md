@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  The Ultimate Guide to Shooting Phenomenal IGTV with DSLR/Smartphone\""
-date: 2024-05-21T23:32:50.439Z
-updated: 2024-05-22T23:32:50.439Z
+date: 2024-07-25T21:03:56.145Z
+updated: 2024-07-26T21:03:56.145Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] 2024 Approved: The Ultimate Guide to Shooting Phenomenal IGTV with DSLR/Smartphone\""
 excerpt: "\"This Article Describes [Updated] 2024 Approved: The Ultimate Guide to Shooting Phenomenal IGTV with DSLR/Smartphone\""
 keywords: "\"IGTV Shooting Tips,DSLR for IGTV,Smartphone Filming Guide,Phenomenal Video Quality,Expert IGTV Techniques,High-Res Mobile Videos,Professional IGTV Creation\""
-thumbnail: https://www.lifewire.com/thmb/JIMkk9-NRTH24rzU4ZyoWplPQU0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/160019707-56a289593df78cf7727747e3-b542ce0cf6404a17a1fd40e42602dac6.jpg
+thumbnail: https://thmb.techidaily.com/402a192fa8f9a76c25001597879db6a11d907dc8fe3db6a194aec02ff3403057.jpg
 ---
 
 ## The Ultimate Guide to Shooting Phenomenal IGTV with DSLR/Smartphone
@@ -27,6 +27,9 @@ thumbnail: https://www.lifewire.com/thmb/JIMkk9-NRTH24rzU4ZyoWplPQU0=/400x300/fi
 
 Instagram has been growing in popularity for a number of years, and the recent addition of the IGTV has only made the platform more diverse in terms of options it offers to its users. Before IGTV was launched the maximum duration of a video on Instagram was limited to just one minute, which made this platform better suited for photos than videos. Today you can upload videos that last up to ten minutes regardless of the type of account you have, and if you own a verified account you can even share hour-long videos on your channel. In case you were trying to find out how you can shoot IGTV videos with your Smartphone or DSLR camera, you’re at the right place because in this article we are going to show you how to create videos that are going to impress your followers.
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ## How to Record IGTV Videos With a Smartphone?
 
 Before you can actually start uploading videos to IGTV, you first need to create your own channel. Once you’ve managed this step, you can then proceed to check if you have all the equipment you need to record a video. Obviously, you’re going to need a Smartphone that has a relatively **powerful rear camera capable of capturing videos in HD or Ultra HD quality**. You can only upload **vertically oriented videos** to IGTV, which is why it is slightly easier to record an IGTV video with a Smartphone than it is with a DSLR camera.
@@ -49,12 +52,24 @@ Unlike smartphones, DSLR cameras allow you to **change the lens**, which enables
 
 Shooting videos on DSLR cameras also mean that you need access to a **video editing software**, because the raw footage often contains parts you don’t want to include in the final cut of your video. Professional video editing software products like **Final Cut Pro or Premiere Pro** may be too challenging for inexperienced video editors, and if you are still learning the ropes of the trade you should try using a less demanding video editing app for Mac and PC computers like [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) or [PowerDirector](https://www.cyberlink.com/products/powerdirector-video-editing-software/features%5Fen%5FUS.html). The editing room is where your next IGTV video is going to get its final form, and you shouldn’t skip this step of the video production process just because it is time-consuming. If you want to impress your audience on IGTV you should work slowly and relentlessly on your footage until you are perfectly happy with the result.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 **Conclusion**
 
 You don’t have to be a professional in order to record an IGTV video, but you still need to have at least basic knowledge about how cameras work and how you can use them to create vertical videos. Do you use a DSLR camera or Smartphone to record IGTV videos? Which one do you like using more? Leave a comment and lets us know.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
+
+ It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
+
+  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
+
+  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -97,6 +112,9 @@ Shooting videos on DSLR cameras also mean that you need access to a **video edit
 
 You don’t have to be a professional in order to record an IGTV video, but you still need to have at least basic knowledge about how cameras work and how you can use them to create vertical videos. Do you use a DSLR camera or Smartphone to record IGTV videos? Which one do you like using more? Leave a comment and lets us know.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -111,6 +129,9 @@ Follow @Shanoon Cox
 
 Instagram has been growing in popularity for a number of years, and the recent addition of the IGTV has only made the platform more diverse in terms of options it offers to its users. Before IGTV was launched the maximum duration of a video on Instagram was limited to just one minute, which made this platform better suited for photos than videos. Today you can upload videos that last up to ten minutes regardless of the type of account you have, and if you own a verified account you can even share hour-long videos on your channel. In case you were trying to find out how you can shoot IGTV videos with your Smartphone or DSLR camera, you’re at the right place because in this article we are going to show you how to create videos that are going to impress your followers.
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## How to Record IGTV Videos With a Smartphone?
 
 Before you can actually start uploading videos to IGTV, you first need to create your own channel. Once you’ve managed this step, you can then proceed to check if you have all the equipment you need to record a video. Obviously, you’re going to need a Smartphone that has a relatively **powerful rear camera capable of capturing videos in HD or Ultra HD quality**. You can only upload **vertically oriented videos** to IGTV, which is why it is slightly easier to record an IGTV video with a Smartphone than it is with a DSLR camera.
@@ -123,6 +144,9 @@ The type of video you’re trying to create determines which pieces of equipment
 
 **You may also like:** [\>> Blue Screen VS Green Screen: All You Need to Know](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Shoot IGTV Videos With a DSLR Camera?
 
 Learning how to operate a DLSR camera takes time and practice, so in order to capture professional-looking videos, you need to use the camera as often as you can. Adjusting the exposure value or pulling focus manually may seem difficult when you first start producing videos, but learning how to do these things will make you a better cinematographer, and it will enable you to create brilliant content for your IGTV channel.
@@ -153,6 +177,9 @@ Follow @Shanoon Cox
 
 Instagram has been growing in popularity for a number of years, and the recent addition of the IGTV has only made the platform more diverse in terms of options it offers to its users. Before IGTV was launched the maximum duration of a video on Instagram was limited to just one minute, which made this platform better suited for photos than videos. Today you can upload videos that last up to ten minutes regardless of the type of account you have, and if you own a verified account you can even share hour-long videos on your channel. In case you were trying to find out how you can shoot IGTV videos with your Smartphone or DSLR camera, you’re at the right place because in this article we are going to show you how to create videos that are going to impress your followers.
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ## How to Record IGTV Videos With a Smartphone?
 
 Before you can actually start uploading videos to IGTV, you first need to create your own channel. Once you’ve managed this step, you can then proceed to check if you have all the equipment you need to record a video. Obviously, you’re going to need a Smartphone that has a relatively **powerful rear camera capable of capturing videos in HD or Ultra HD quality**. You can only upload **vertically oriented videos** to IGTV, which is why it is slightly easier to record an IGTV video with a Smartphone than it is with a DSLR camera.
@@ -165,6 +192,9 @@ The type of video you’re trying to create determines which pieces of equipment
 
 **You may also like:** [\>> Blue Screen VS Green Screen: All You Need to Know](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Shoot IGTV Videos With a DSLR Camera?
 
 Learning how to operate a DLSR camera takes time and practice, so in order to capture professional-looking videos, you need to use the camera as often as you can. Adjusting the exposure value or pulling focus manually may seem difficult when you first start producing videos, but learning how to do these things will make you a better cinematographer, and it will enable you to create brilliant content for your IGTV channel.
@@ -212,3 +242,51 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-developing-dynamic-instagram-highlights-for-2024/"><u>[New] Developing Dynamic Instagram Highlights for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-essential-tactics-for-success-in-instagrams-video-discussions-for-2024/"><u>[New] Essential Tactics for Success in Instagram's Video Discussions for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-discover-novel-webcam-functions-today/"><u>[New] In 2024, Discover Novel Webcam Functions Today</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-essentials-of-using-igtv-effectively-and-efficiently/"><u>[New] In 2024, Essentials of Using IGTV Effectively and Efficiently</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-veiled-realities-an-insight-into-story-viewers-world/"><u>[New] In 2024, Veiled Realities  An Insight Into Story Viewers' World</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-incorporating-instagrams-cutting-edge-filters/"><u>[New] Incorporating Instagram's Cutting Edge Filters</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-influencer-innovation-the-top-5-instagram-tactics-for-maximum-impact/"><u>[New] Influencer Innovation  The Top 5 Instagram Tactics for Maximum Impact</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-instagram-excellence-optimizing-post-reach-for-2024/"><u>[New] Instagram Excellence  Optimizing Post Reach for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-instantvideo-snipper-fb-edition-for-2024/"><u>[New] InstantVideo Snipper - FB Edition for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-navigating-the-realm-of-sponsorships-on-instagram-influencer-edition-for-2024/"><u>[New] Navigating the Realm of Sponsorships on Instagram  Influencer Edition for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-understanding-ip-rules-for-instasongs/"><u>[New] Understanding IP Rules for InstaSongs</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-selecting-the-superior-cloud-storage-hub/"><u>[Updated] 2024 Approved  Selecting the Superior Cloud Storage Hub</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-top-10-invisible-observers-of-instagram-stories/"><u>[Updated] 2024 Approved  Top 10 Invisible Observers of Instagram Stories</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-elevate-your-social-impact-with-these-hashtags-for-2024/"><u>[Updated] Elevate Your Social Impact with These Hashtags for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-how-to-create-and-change-an-igtv-cover-photo-thumbnail-for-2024/"><u>[Updated] How to Create and Change an IGTV Cover Photo (Thumbnail) for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-instagram-verified-posts-do-they-matter/"><u>[Updated] In 2024, Instagram Verified Posts - Do They Matter?</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-seamless-mac-screen-record-with-audio-device/"><u>[Updated] In 2024, Seamless Mac Screen Record with Audio Device</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-the-ultimate-strategy-for-highlight-image-success-in-instagram/"><u>[Updated] In 2024, The Ultimate Strategy for Highlight Image Success in Instagram</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-verified-vids-the-reality-of-instas-self-validation/"><u>[Updated] In 2024, Verified Vids  The Reality of Insta’s Self-Validation</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-navigating-melodic-waters-a-legal-guide-on-instagram/"><u>[Updated] Navigating Melodic Waters  A Legal Guide on Instagram</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-social-sensation-best-insta-stories-effects-for-2024/"><u>[Updated] Social Sensation  Best Insta Stories Effects for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-step-into-the-world-of-slowed-motion-a-comprehensive-ig-reel-guide-for-2024/"><u>[Updated] Step Into the World of Slowed-Motion  A Comprehensive IG Reel Guide for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-swift-solution-tweeting-videos-not-functioning-chrome/"><u>[Updated] Swift Solution  Tweeting Videos Not Functioning Chrome</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-art-of-sprucing-up-instagram-stories-with-branded-graphics/"><u>[Updated] The Art of Sprucing Up Instagram Stories with Branded Graphics</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-ultimate-method-for-recorded-instagram-stories-for-2024/"><u>[Updated] The Ultimate Method for Recorded Instagram Stories for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-expressive-film-conclusions-available-on-the-free-shelf/"><u>2024 Approved  Expressive Film Conclusions Available on the Free Shelf</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-professional-edge-mastering-bordered-videos-on-insta/"><u>2024 Approved  Professional Edge  Mastering Bordered Videos on Insta</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-progressive-presentation-kick-off/"><u>2024 Approved  Progressive Presentation Kick-Off</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/best-3ip-apps-to-record-clear-speech-on-ipads-for-2024/"><u>Best 3iP Apps to Record Clear Speech on iPads for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/blending-beats-fusion-studios-guide-to-cohesive-sound/"><u>Blending Beats  Fusion Studio's Guide to Cohesive Sound</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/boost-your-instagrams-accessibility-with-easy-caption-features/"><u>Boost Your Instagram's Accessibility with Easy Caption Features</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/cutting-edge-strategies-for-efficient-speech-translation-with-google-for-2024/"><u>Cutting Edge Strategies for Efficient Speech Translation with Google for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-convert-avchd-mts-to-mp4-for-xiaomi-14-pro-by-aiseesoft-video-converter-play-mts-on-android/"><u>How to convert AVCHD MTS to MP4 for Xiaomi 14 Pro?</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-xs-without-passcode-or-face-id-by-drfone-ios/"><u>How to Unlock iPhone XS without Passcode or Face ID</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-how-to-screen-record-on-lenovo-laptop/"><u>In 2024, How to Screen Record on Lenovo Laptop</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-15-pro-max-without-passcode-4-easy-methods-by-drfone-ios/"><u>In 2024, How To Unlock Apple iPhone 15 Pro Max Without Passcode? 4 Easy Methods</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-vivo-x100-bootloader-easily-by-drfone-android/"><u>In 2024, How to Unlock Vivo X100 Bootloader Easily</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-legal-tips-and-tricks-for-custom-watermarking-in-instagram/"><u>In 2024, Legal Tips and Tricks for Custom Watermarking in Instagram</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-your-xiaomi-13-ultra-phone-by-drfone-android/"><u>In 2024, Top IMEI Unlokers for Your Xiaomi 13 Ultra Phone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-which-is-the-ultimate-screen-recorder-analyzing-bandicam-vs-camtasia/"><u>In 2024, Which Is the Ultimate Screen Recorder? Analyzing Bandicam vs Camtasia</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/instagram-illuminati-the-top-25-visionaries-you-need-to-see/"><u>Instagram Illuminati  The Top 25 Visionaries You Need to See</u></a></li>
+<li><a href="https://extra-support.techidaily.com/navigating-your-srt-files-with-mac-expertise-for-2024/"><u>Navigating Your SRT Files with Mac Expertise for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/steering-clear-of-echo-chambers-in-instagram-interactions/"><u>Steering Clear of Echo Chambers in Instagram Interactions</u></a></li>
+<li><a href="https://win11.techidaily.com/uncluttered-windows-desktop-at-a-glance/"><u>Uncluttered Windows Desktop at a Glance</u></a></li>
+</ul></div>

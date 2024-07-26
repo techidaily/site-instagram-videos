@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Deactivating Instagram's IGTV Feature\""
-date: 2024-05-21T23:46:53.875Z
-updated: 2024-05-22T23:46:53.875Z
+date: 2024-07-25T21:34:11.513Z
+updated: 2024-07-26T21:34:11.513Z
 tags:
   - ai video
   - ai instagram
@@ -12,13 +12,16 @@ categories:
 description: "\"This Article Describes [New] 2024 Approved: Deactivating Instagram's IGTV Feature\""
 excerpt: "\"This Article Describes [New] 2024 Approved: Deactivating Instagram's IGTV Feature\""
 keywords: "Deactivate IGTV,Remove IGTV on Instagram,Turn Off IGTV,Stop IGTV Service,Disable IGTV Feature,End IGTV Functionality,Removing IGTV Content"
-thumbnail: https://www.lifewire.com/thmb/IbBoUsmodsqtCMucPpWy2WV4IOU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/bing-chat-249ea636b6c9418c885ecee7ef987bcb.png
+thumbnail: https://thmb.techidaily.com/9ce1efb4d78691d1fda3d25f6e0de4e7036d8fbbf749d1e5f5caf96b519e32e1.png
 ---
 
 ## Deactivating Instagram's IGTV Feature
 
 # How to Turn Off IGTV?
 
+<!-- affiliate ads begin -->
+<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -33,6 +36,9 @@ thumbnail: https://www.lifewire.com/thmb/IbBoUsmodsqtCMucPpWy2WV4IOU=/400x300/fi
 
  Select the **Push Notifications option**, and then scroll all the way down to the **IGTV Video Updates section** of the Push Notifications menu. Tap on the **Off** option, and you’re done, you’ll no longer receive notifications from IGTV. If at any point you change your mind and you decide that you want to receive notifications from IGTV you can return to the Push Notifications menu and select the **From People I Follow** or **From Everyone** option in the IGTV Video Update section of the Push Notifications menu.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<!-- affiliate ads end -->
 ## How to Hide IGTV Videos?
 
  At the moment this feature is only available on iPhones, while users who access IGTV from Android devices only have the option to report a video they find offensive or don’t like for any other reason. Once you open IGTV on your iPhone, you will be able to see the videos the platform suggests you should watch in **the For You** section. When you come across an IGTV video you no longer want to see, simply **swipe down**, and then **tap on the three-dot icon** that is located next to the Like, Comment and Share buttons.
@@ -59,12 +65,18 @@ Follow @Shanoon Cox
 
  There is nothing more frustrating than receiving notifications about posts on social media you have zero interest in. Fortunately for all of us, turning off notifications is a quick and simple process that can be completed in just a few clicks or taps. IGTV, Instagram’s latest mobile video platform is no exception, and if you decide to use it, you will occasionally stumble upon the content you don’t necessarily like and you will receive notifications about posts that really have nothing to do with your interests. In case you are looking for a way to get rid of IGTV suggestions, you’ve come to the right place because in this article we are going to show you how to hide videos you don’t want to see and how to switch off notifications.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## How to Turn Off IGTV Notifications on Instagram
 
  Preventing IGTV notifications from bothering you while you are scrolling down your Instagram feed requires a minimum amount of effort. You just have to **launch the Instagram app** and then once the app opens, you should tap on **the profile icon** that is located in the bottom right corner. Upon arriving at your Instagram profile page, you will be able to see **the hamburger icon** in the top right corner. Tapping on the hamburger icon will grant you access to a menu that contains options such as **Your Activity, Nametag or Saved**. At the very bottom of this menu, you’ll spot the **Settings icon**, tap on it and after the **Settings menu opens** tap on the **Notifications icon**.
 
  Select the **Push Notifications option**, and then scroll all the way down to the **IGTV Video Updates section** of the Push Notifications menu. Tap on the **Off** option, and you’re done, you’ll no longer receive notifications from IGTV. If at any point you change your mind and you decide that you want to receive notifications from IGTV you can return to the Push Notifications menu and select the **From People I Follow** or **From Everyone** option in the IGTV Video Update section of the Push Notifications menu.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ## How to Hide IGTV Videos?
 
  At the moment this feature is only available on iPhones, while users who access IGTV from Android devices only have the option to report a video they find offensive or don’t like for any other reason. Once you open IGTV on your iPhone, you will be able to see the videos the platform suggests you should watch in **the For You** section. When you come across an IGTV video you no longer want to see, simply **swipe down**, and then **tap on the three-dot icon** that is located next to the Like, Comment and Share buttons.
@@ -91,12 +103,18 @@ Follow @Shanoon Cox
 
  There is nothing more frustrating than receiving notifications about posts on social media you have zero interest in. Fortunately for all of us, turning off notifications is a quick and simple process that can be completed in just a few clicks or taps. IGTV, Instagram’s latest mobile video platform is no exception, and if you decide to use it, you will occasionally stumble upon the content you don’t necessarily like and you will receive notifications about posts that really have nothing to do with your interests. In case you are looking for a way to get rid of IGTV suggestions, you’ve come to the right place because in this article we are going to show you how to hide videos you don’t want to see and how to switch off notifications.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ## How to Turn Off IGTV Notifications on Instagram
 
  Preventing IGTV notifications from bothering you while you are scrolling down your Instagram feed requires a minimum amount of effort. You just have to **launch the Instagram app** and then once the app opens, you should tap on **the profile icon** that is located in the bottom right corner. Upon arriving at your Instagram profile page, you will be able to see **the hamburger icon** in the top right corner. Tapping on the hamburger icon will grant you access to a menu that contains options such as **Your Activity, Nametag or Saved**. At the very bottom of this menu, you’ll spot the **Settings icon**, tap on it and after the **Settings menu opens** tap on the **Notifications icon**.
 
  Select the **Push Notifications option**, and then scroll all the way down to the **IGTV Video Updates section** of the Push Notifications menu. Tap on the **Off** option, and you’re done, you’ll no longer receive notifications from IGTV. If at any point you change your mind and you decide that you want to receive notifications from IGTV you can return to the Push Notifications menu and select the **From People I Follow** or **From Everyone** option in the IGTV Video Update section of the Push Notifications menu.
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<!-- affiliate ads end -->
 ## How to Hide IGTV Videos?
 
  At the moment this feature is only available on iPhones, while users who access IGTV from Android devices only have the option to report a video they find offensive or don’t like for any other reason. Once you open IGTV on your iPhone, you will be able to see the videos the platform suggests you should watch in **the For You** section. When you come across an IGTV video you no longer want to see, simply **swipe down**, and then **tap on the three-dot icon** that is located next to the Like, Comment and Share buttons.
@@ -172,3 +190,51 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-discreet-viewers-guide-best-hidden-apps-for-stories/"><u>[New] 2024 Approved  Discreet Viewer's Guide  Best Hidden Apps for Stories</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-pure-portrayals-on-platforms-your-guide-to-authentic-snapshots/"><u>[New] 2024 Approved  Pure Portrayals on Platforms  Your Guide to Authentic Snapshots</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-constructing-unique-instagram-post-images-for-2024/"><u>[New] Constructing Unique Instagram Post Images for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-from-zero-to-hero-on-instagram-top-5-tips-with-examples-from-elites/"><u>[New] From Zero to Hero on Instagram  Top 5 Tips with Examples From Elites</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-elevate-your-ig-videos-tips-and-templates/"><u>[New] In 2024, Elevate Your IG Videos  Tips & Templates</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-immortalize-memories-unleash-save-free-magic/"><u>[New] In 2024, Immortalize Memories, Unleash Save-Free Magic</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-rise-to-stardom-on-instagram-adopting-tiktoks-winning-strategies/"><u>[New] In 2024, Rise to Stardom on Instagram  Adopting TikTok's Winning Strategies</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-insta-gone-locating-the-disappeared-fans-for-2024/"><u>[New] Insta Gone? Locating the Disappeared Fans for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-mobile-mastery-recording-your-snapchat-stories-for-2024/"><u>[New] Mobile Mastery  Recording Your Snapchat Stories for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-esteemed-experts-premium-instragram-highlight-designs-online/"><u>[Updated] 2024 Approved  Esteemed Experts  Premium Instragram Highlight Designs Online</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-how-to-add-stickers-to-instagram/"><u>[Updated] 2024 Approved  How to Add Stickers to Instagram?</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-how-to-see-who-unfollowed-you-on-instagram/"><u>[Updated] 2024 Approved  How to See Who Unfollowed You On Instagram</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-instagram-riches-301-safe-and-highest-earning-strategies/"><u>[Updated] 2024 Approved  Instagram Riches 301  Safe and Highest Earning Strategies</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-step-by-step-guide-to-adding-frames-on-instagram-photos/"><u>[Updated] 2024 Approved  Step-by-Step Guide to Adding Frames on Instagram Photos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-amplify-views-effortlessly-discovering-the-best-20-youtube-techniques/"><u>[Updated] Amplify Views Effortlessly  Discovering the Best 20 YouTube Techniques</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-fast-track-your-feed-mastering-instagram-likes-and-vids-artistry/"><u>[Updated] In 2024, Fast-Track Your Feed  Mastering Instagram Likes & Vids Artistry</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-precision-screensaver-for-chromebooks/"><u>[Updated] Precision Screensaver for Chromebooks</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-seamless-audio-integration-in-instagram-visuals-and-stories/"><u>[Updated] Seamless Audio Integration in Instagram Visuals & Stories</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-standing-out-with-personalized-tiktok-pfps-for-2024/"><u>[Updated] Standing Out with Personalized TikTok PFPs for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-swift-methodology-to-weed-out-fake-pals-from-insta-network-for-2024/"><u>[Updated] Swift Methodology to Weed Out Fake Pals From Insta Network for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-ultimate-guide-to-engagement-mastering-instagram-stories/"><u>[Updated] The Ultimate Guide to Engagement  Mastering Instagram Stories</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-unleash-potential-the-best-instagram-hashtags-of-the-day-for-2024/"><u>[Updated] Unleash Potential  The Best Instagram Hashtags of the Day for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-innovative-igtv-thumbnail-upgrades-guide/"><u>2024 Approved  Innovative IGTV Thumbnail Upgrades Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-spin-tiktok-magic-into-viral-instagram-reel-success/"><u>2024 Approved  Spin TikTok Magic Into Viral Instagram Reel Success</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-toggle-off-instagram-tv-feature/"><u>2024 Approved  Toggle Off Instagram TV Feature</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/double-your-reach-youtube-and-facebook-cross-promotion/"><u>Double Your Reach  YouTube & Facebook Cross-Promotion</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/download-instagram-vids-effortlessly-on-your-desktop-system-pcmac/"><u>Download Instagram Vids Effortlessly on Your Desktop System (PC/Mac)</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/from-youtube-to-instagram-sharing-video-content-with-ease-for-2024/"><u>From YouTube to Instagram  Sharing Video Content with Ease for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/how-to-become-an-instagram-influencer-easily-for-2024/"><u>How to Become an Instagram Influencer Easily for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-3-things-you-must-know-about-fake-snapchat-location-on-samsung-galaxy-a14-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Things You Must Know about Fake Snapchat Location On Samsung Galaxy A14 5G | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-a-complete-guide-to-oem-unlocking-on-vivo-y78plus-by-drfone-android/"><u>In 2024, A Complete Guide To OEM Unlocking on Vivo Y78+</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-expedited-guide-to-distinguishing-genuine-followers-on-instagram/"><u>In 2024, Expedited Guide to Distinguishing Genuine Followers on Instagram</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-oppo-reno-10-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Oppo Reno 10 5G | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-instagram-media-transformation-for-audio-mp3/"><u>In 2024, Instagram Media Transformation for Audio (MP3)</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-ultimate-picture-narrative-craft-pro-edition/"><u>In 2024, Ultimate Picture Narrative Craft - Pro Edition</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/insta-reel-power-mimicking-high-flying-tiktok-methods/"><u>Insta Reel Power  Mimicking High-Flying TikTok Methods</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/is-splitcam-the-pinnacle-of-recording-capabilities-for-2024/"><u>Is SplitCam The Pinnacle of Recording Capabilities for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/monitoring-and-measuring-igtv-video-performance/"><u>Monitoring and Measuring IGTV Video Performance</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-how-to-add-music-audio-to-a-gif-on-mac-in-2024/"><u>New How to Add Music/ Audio to a GIF on Mac, In 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/ranked-instagrams-top-8-popular-ae-composition-tools/"><u>Ranked  Instagram's Top 8 Popular AE Composition Tools</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/social-media-strategies-mastering-igs-most-trending-hashtags/"><u>Social Media Strategies  Mastering IG's Most Trending Hashtags</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/step-by-step-the-ultimate-guide-to-borders-on-insta-pics/"><u>Step-By-Step  The Ultimate Guide to Borders on Insta Pics</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/the-ultimate-guide-to-unlocking-apple-watch-or-iphone-15-pro-max-from-icloud-by-drfone-ios/"><u>The Ultimate Guide to Unlocking Apple Watch Or iPhone 15 Pro Max from iCloud</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/unbeatable-tag-analyzers-for-facebook-twitter-and-instagram-sites/"><u>Unbeatable Tag Analyzers for Facebook, Twitter & Instagram Sites</u></a></li>
+</ul></div>

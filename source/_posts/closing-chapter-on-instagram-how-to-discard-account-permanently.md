@@ -1,7 +1,7 @@
 ---
 title: "\"Closing Chapter on Instagram  How to Discard Account Permanently\""
-date: 2024-05-21T21:42:53.960Z
-updated: 2024-05-22T21:42:53.960Z
+date: 2024-07-25T17:00:34.577Z
+updated: 2024-07-26T17:00:34.577Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Closing Chapter on Instagram: How to Discard Account Permanently\""
 excerpt: "\"This Article Describes Closing Chapter on Instagram: How to Discard Account Permanently\""
 keywords: "Abandon Instagram Acc,Delete Insta Profile,End Instagram Use,Close Instagram Acct,Forget Instagram,Permanently Disable Insta,Remove Instagram Account"
-thumbnail: https://www.lifewire.com/thmb/GQnN1xDTyf1WCew2KMfYUeUpvK8=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/WeiliDai-acfe647b60c149869466ebd6d3bd574a.jpg
+thumbnail: https://thmb.techidaily.com/815fea7976911214190dec2e4ce8ef31c5b56fc35aca9555d7d0112a6571e067.jpg
 ---
 
 ## Closing Chapter on Instagram: How to Discard Account Permanently
@@ -31,6 +31,9 @@ This problem is sorted out by deactivating or deleting the Instagram account. Th
 
 Let’s have a look at how both these actions can be performed in case you feel like Instagram is impacting your life more than it’s needed.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<!-- affiliate ads end -->
 ## Part 1: How to Delete an Instagram Account Permanently
 
 If you are choosing to delete an Instagram account it is important to know that this is a permanent process and you will lose all the data along with your account.
@@ -39,6 +42,9 @@ To delete an account:
 
 **Step 1**: [Log in](https://www.instagram.com/) to your Instagram account from your web browser using your credentials
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![log-in-instagram](https://images.wondershare.com/filmora/article-images/1-log-in-instagram.jpg)
 
 **Step 2**: After logging in, [click here](https://www.instagram.com/accounts/remove/request/permanent/) and you will be diverted to the accounts deleting page of Instagram
@@ -61,6 +67,9 @@ To deactivate an Instagram account:
 
 **Step 2**: Click on the mini display pic on the top right corner and then from the dropdown menu tap on Settings.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<!-- affiliate ads end -->
 ![tap-on-instagram-settings](https://images.wondershare.com/filmora/article-images/3-tap-on-instagram-settings.jpg)
 
 **Step 3**: A new window will open where the Edit Profile tab from the left panel will be opened. Towards the bottom of the page, you will find Temporarily disable my account. Tap on it.
@@ -73,6 +82,9 @@ To deactivate an Instagram account:
 
 **Step 5**: A small caution message will be displayed. Tap on Yes and your account will be temporarily removed.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ![confirm-deleting-instagram-account](https://images.wondershare.com/filmora/article-images/6-confirm-deleting-instagram-account.jpg)
 
 You will receive a notification via mail saying that your Instagram account has been deactivated temporarily.
@@ -95,12 +107,18 @@ Instagram is a platform where you post a variety of photos and videos, gain foll
 
 One of the best ways to make wonderful and interesting Instagram videos is by using [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). Wondershare Filmora is one of the best and widely used video editing applications by influencers, filmmakers, content creators, etc. all around the globe to create amazing videos for their audience.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 To create a video using Filmora that stand out among the audience:
 
 **Step 1**: Open the video you wish to edit and upload to Instagram in Filmora and then drag and drop this video to the Filmora timeline.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<!-- affiliate ads end -->
 ![import instagram video](https://images.wondershare.com/filmora/article-images/import-instagram-video-to-filmora1.jpg)
 
 **Step 2**: Change the resolution of the video by tapping on the File – Project Setting. A small window will appear from which you can change the resolution (for example 1080×1080). Tap on OK after selecting your desired resolution
@@ -109,6 +127,9 @@ To create a video using Filmora that stand out among the audience:
 
 **Step 3**: The video can be made attractive by changing the black bars on the top and the bottom of the video. This can be done by selecting a background you like and placing it just below the video on the timeline.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![add background color to instagram video](https://images.wondershare.com/filmora/article-images/add-background-to-instagram-video3.jpg)
 
 **Step 4**: Adding attractive text to the video which is something most audiences notice at the first glance. To add a text go to the Titles tab at the top, select one of the text templates you like, and drag it to the timeline. You can change the text, font, size, color, orientation, animation, etc. of the text.
@@ -139,6 +160,9 @@ This problem is sorted out by deactivating or deleting the Instagram account. Th
 
 Let’s have a look at how both these actions can be performed in case you feel like Instagram is impacting your life more than it’s needed.
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: How to Delete an Instagram Account Permanently
 
 If you are choosing to delete an Instagram account it is important to know that this is a permanent process and you will lose all the data along with your account.
@@ -147,6 +171,9 @@ To delete an account:
 
 **Step 1**: [Log in](https://www.instagram.com/) to your Instagram account from your web browser using your credentials
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<!-- affiliate ads end -->
 ![log-in-instagram](https://images.wondershare.com/filmora/article-images/1-log-in-instagram.jpg)
 
 **Step 2**: After logging in, [click here](https://www.instagram.com/accounts/remove/request/permanent/) and you will be diverted to the accounts deleting page of Instagram
@@ -185,6 +212,9 @@ To deactivate an Instagram account:
 
 You will receive a notification via mail saying that your Instagram account has been deactivated temporarily.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->
 ## Part 3: How to Reactivate an Instagram Account
 
 The benefit of deactivating your Instagram account is that you can return where you left off whenever you wish. All the data will be retrieved once you reactivate your account and you can continue using your Instagram account as before.
@@ -203,6 +233,9 @@ Instagram is a platform where you post a variety of photos and videos, gain foll
 
 One of the best ways to make wonderful and interesting Instagram videos is by using [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). Wondershare Filmora is one of the best and widely used video editing applications by influencers, filmmakers, content creators, etc. all around the globe to create amazing videos for their audience.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 To create a video using Filmora that stand out among the audience:
@@ -217,14 +250,159 @@ To create a video using Filmora that stand out among the audience:
 
 **Step 3**: The video can be made attractive by changing the black bars on the top and the bottom of the video. This can be done by selecting a background you like and placing it just below the video on the timeline.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![add background color to instagram video](https://images.wondershare.com/filmora/article-images/add-background-to-instagram-video3.jpg)
 
 **Step 4**: Adding attractive text to the video which is something most audiences notice at the first glance. To add a text go to the Titles tab at the top, select one of the text templates you like, and drag it to the timeline. You can change the text, font, size, color, orientation, animation, etc. of the text.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<!-- affiliate ads end -->
 ![add titles to instagram video](https://images.wondershare.com/filmora/article-images/add-titles-to-instagram-video4.jpg)
 
 **Step 5**: Once you have finished editing the video, you can Export the video in whichever format you like.
 
+![export instagram video](https://images.wondershare.com/filmora/article-images/click-export-video-output.jpg)
+
+This video can then be uploaded to Instagram for the viewers to enjoy and for you to gain followers.
+
+<!-- affiliate ads begin -->
+<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+Instagram is one of the widely used social media platforms around the world with about [1 million](https://backlinko.com/instagram-users) active users every month and a total of 1.074 billion users in 2021\. Most people don’t realize time flying while using Instagram and it can become very addictive.
+
+This problem is sorted out by deactivating or deleting the Instagram account. The difference between deleting an Instagram account and deactivating an Instagram account is that while deleting is permanent, deactivating is temporary.
+
+Let’s have a look at how both these actions can be performed in case you feel like Instagram is impacting your life more than it’s needed.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<!-- affiliate ads end -->
+## Part 1: How to Delete an Instagram Account Permanently
+
+If you are choosing to delete an Instagram account it is important to know that this is a permanent process and you will lose all the data along with your account.
+
+To delete an account:
+
+**Step 1**: [Log in](https://www.instagram.com/) to your Instagram account from your web browser using your credentials
+
+![log-in-instagram](https://images.wondershare.com/filmora/article-images/1-log-in-instagram.jpg)
+
+**Step 2**: After logging in, [click here](https://www.instagram.com/accounts/remove/request/permanent/) and you will be diverted to the accounts deleting page of Instagram
+
+**Step 3**: Choose the reason why you wish to delete your Instagram account from the drop-down tab and enter your password for security verification. Then click on Delete (Your account name) tab.
+
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![delete-instagram-account-page](https://images.wondershare.com/filmora/article-images/2-delete-instagram-account-page.jpg)
+
+Instagram will display a message saying that your account will be erased within a month and until then it will be hidden from the rest of the Instagram users. You will also be notified via your email id if it was added to your account.
+
+## Part 2: How to Deactivate an Instagram Account Temporarily
+
+In case you have a very interesting Instagram account with a lot of followers and posts, and you wish to take a break from Instagram, then deactivating Instagram would be the best option.
+
+Deactivating your account will only temporarily remove your account and you can start where you left off whenever you will. All your data will be preserved till you return.
+
+To deactivate an Instagram account:
+
+**Step 1**: log in to your Instagram account from a browser using your id and password
+
+**Step 2**: Click on the mini display pic on the top right corner and then from the dropdown menu tap on Settings.
+
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<!-- affiliate ads end -->
+![tap-on-instagram-settings](https://images.wondershare.com/filmora/article-images/3-tap-on-instagram-settings.jpg)
+
+**Step 3**: A new window will open where the Edit Profile tab from the left panel will be opened. Towards the bottom of the page, you will find Temporarily disable my account. Tap on it.
+
+![disable-instagram-account](https://images.wondershare.com/filmora/article-images/4-disable-instagram-account.jpg)
+
+**Step 4**: On the new page, select the reason why you wish to take a break from the drop-down menu and enter your password. Then click on the Temporarily Disable Account bar.
+
+![delete-instagram-account-temporarily](https://images.wondershare.com/filmora/article-images/5-delete-instagram-account-temporarily.jpg)
+
+**Step 5**: A small caution message will be displayed. Tap on Yes and your account will be temporarily removed.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
+![confirm-deleting-instagram-account](https://images.wondershare.com/filmora/article-images/6-confirm-deleting-instagram-account.jpg)
+
+You will receive a notification via mail saying that your Instagram account has been deactivated temporarily.
+
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 3: How to Reactivate an Instagram Account
+
+The benefit of deactivating your Instagram account is that you can return where you left off whenever you wish. All the data will be retrieved once you reactivate your account and you can continue using your Instagram account as before.
+
+To reactivate your deactivated Instagram account:
+
+**Step 1**: Open the Instagram login page on your web browser
+
+**Step 2**: Simply enter your Instagram user name and password, and tap on Log In.
+
+Your account will be reactivated and all your posts, followers, messages can be accessed.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
+## Bonus Part-The Best Instagram Video Editor You Can Try
+
+Instagram is a platform where you post a variety of photos and videos, gain followers and follow a lot of people. The quality of the Instagram content, especially videos always attracts more followers. So the more interesting your Instagram videos are, the more followers you will gain.
+
+One of the best ways to make wonderful and interesting Instagram videos is by using [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). Wondershare Filmora is one of the best and widely used video editing applications by influencers, filmmakers, content creators, etc. all around the globe to create amazing videos for their audience.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+To create a video using Filmora that stand out among the audience:
+
+**Step 1**: Open the video you wish to edit and upload to Instagram in Filmora and then drag and drop this video to the Filmora timeline.
+
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![import instagram video](https://images.wondershare.com/filmora/article-images/import-instagram-video-to-filmora1.jpg)
+
+**Step 2**: Change the resolution of the video by tapping on the File – Project Setting. A small window will appear from which you can change the resolution (for example 1080×1080). Tap on OK after selecting your desired resolution
+
+![adjust instagram video ratio](https://images.wondershare.com/filmora/article-images/fit-instagram-aspect-ratio2.jpg)
+
+**Step 3**: The video can be made attractive by changing the black bars on the top and the bottom of the video. This can be done by selecting a background you like and placing it just below the video on the timeline.
+
+![add background color to instagram video](https://images.wondershare.com/filmora/article-images/add-background-to-instagram-video3.jpg)
+
+**Step 4**: Adding attractive text to the video which is something most audiences notice at the first glance. To add a text go to the Titles tab at the top, select one of the text templates you like, and drag it to the timeline. You can change the text, font, size, color, orientation, animation, etc. of the text.
+
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![add titles to instagram video](https://images.wondershare.com/filmora/article-images/add-titles-to-instagram-video4.jpg)
+
+**Step 5**: Once you have finished editing the video, you can Export the video in whichever format you like.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![export instagram video](https://images.wondershare.com/filmora/article-images/click-export-video-output.jpg)
 
 This video can then be uploaded to Instagram for the viewers to enjoy and for you to gain followers.
@@ -247,6 +425,9 @@ This problem is sorted out by deactivating or deleting the Instagram account. Th
 
 Let’s have a look at how both these actions can be performed in case you feel like Instagram is impacting your life more than it’s needed.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: How to Delete an Instagram Account Permanently
 
 If you are choosing to delete an Instagram account it is important to know that this is a permanent process and you will lose all the data along with your account.
@@ -255,12 +436,18 @@ To delete an account:
 
 **Step 1**: [Log in](https://www.instagram.com/) to your Instagram account from your web browser using your credentials
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![log-in-instagram](https://images.wondershare.com/filmora/article-images/1-log-in-instagram.jpg)
 
 **Step 2**: After logging in, [click here](https://www.instagram.com/accounts/remove/request/permanent/) and you will be diverted to the accounts deleting page of Instagram
 
 **Step 3**: Choose the reason why you wish to delete your Instagram account from the drop-down tab and enter your password for security verification. Then click on Delete (Your account name) tab.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![delete-instagram-account-page](https://images.wondershare.com/filmora/article-images/2-delete-instagram-account-page.jpg)
 
 Instagram will display a message saying that your account will be erased within a month and until then it will be hidden from the rest of the Instagram users. You will also be notified via your email id if it was added to your account.
@@ -281,10 +468,16 @@ To deactivate an Instagram account:
 
 **Step 3**: A new window will open where the Edit Profile tab from the left panel will be opened. Towards the bottom of the page, you will find Temporarily disable my account. Tap on it.
 
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![disable-instagram-account](https://images.wondershare.com/filmora/article-images/4-disable-instagram-account.jpg)
 
 **Step 4**: On the new page, select the reason why you wish to take a break from the drop-down menu and enter your password. Then click on the Temporarily Disable Account bar.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![delete-instagram-account-temporarily](https://images.wondershare.com/filmora/article-images/5-delete-instagram-account-temporarily.jpg)
 
 **Step 5**: A small caution message will be displayed. Tap on Yes and your account will be temporarily removed.
@@ -317,10 +510,16 @@ To create a video using Filmora that stand out among the audience:
 
 **Step 1**: Open the video you wish to edit and upload to Instagram in Filmora and then drag and drop this video to the Filmora timeline.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![import instagram video](https://images.wondershare.com/filmora/article-images/import-instagram-video-to-filmora1.jpg)
 
 **Step 2**: Change the resolution of the video by tapping on the File – Project Setting. A small window will appear from which you can change the resolution (for example 1080×1080). Tap on OK after selecting your desired resolution
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<!-- affiliate ads end -->
 ![adjust instagram video ratio](https://images.wondershare.com/filmora/article-images/fit-instagram-aspect-ratio2.jpg)
 
 **Step 3**: The video can be made attractive by changing the black bars on the top and the bottom of the video. This can be done by selecting a background you like and placing it just below the video on the timeline.
@@ -329,6 +528,9 @@ To create a video using Filmora that stand out among the audience:
 
 **Step 4**: Adding attractive text to the video which is something most audiences notice at the first glance. To add a text go to the Titles tab at the top, select one of the text templates you like, and drag it to the timeline. You can change the text, font, size, color, orientation, animation, etc. of the text.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<!-- affiliate ads end -->
 ![add titles to instagram video](https://images.wondershare.com/filmora/article-images/add-titles-to-instagram-video4.jpg)
 
 **Step 5**: Once you have finished editing the video, you can Export the video in whichever format you like.
@@ -337,114 +539,9 @@ To create a video using Filmora that stand out among the audience:
 
 This video can then be uploaded to Instagram for the viewers to enjoy and for you to gain followers.
 
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+<!-- affiliate ads begin -->
 
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
-Instagram is one of the widely used social media platforms around the world with about [1 million](https://backlinko.com/instagram-users) active users every month and a total of 1.074 billion users in 2021\. Most people don’t realize time flying while using Instagram and it can become very addictive.
-
-This problem is sorted out by deactivating or deleting the Instagram account. The difference between deleting an Instagram account and deactivating an Instagram account is that while deleting is permanent, deactivating is temporary.
-
-Let’s have a look at how both these actions can be performed in case you feel like Instagram is impacting your life more than it’s needed.
-
-## Part 1: How to Delete an Instagram Account Permanently
-
-If you are choosing to delete an Instagram account it is important to know that this is a permanent process and you will lose all the data along with your account.
-
-To delete an account:
-
-**Step 1**: [Log in](https://www.instagram.com/) to your Instagram account from your web browser using your credentials
-
-![log-in-instagram](https://images.wondershare.com/filmora/article-images/1-log-in-instagram.jpg)
-
-**Step 2**: After logging in, [click here](https://www.instagram.com/accounts/remove/request/permanent/) and you will be diverted to the accounts deleting page of Instagram
-
-**Step 3**: Choose the reason why you wish to delete your Instagram account from the drop-down tab and enter your password for security verification. Then click on Delete (Your account name) tab.
-
-![delete-instagram-account-page](https://images.wondershare.com/filmora/article-images/2-delete-instagram-account-page.jpg)
-
-Instagram will display a message saying that your account will be erased within a month and until then it will be hidden from the rest of the Instagram users. You will also be notified via your email id if it was added to your account.
-
-## Part 2: How to Deactivate an Instagram Account Temporarily
-
-In case you have a very interesting Instagram account with a lot of followers and posts, and you wish to take a break from Instagram, then deactivating Instagram would be the best option.
-
-Deactivating your account will only temporarily remove your account and you can start where you left off whenever you will. All your data will be preserved till you return.
-
-To deactivate an Instagram account:
-
-**Step 1**: log in to your Instagram account from a browser using your id and password
-
-**Step 2**: Click on the mini display pic on the top right corner and then from the dropdown menu tap on Settings.
-
-![tap-on-instagram-settings](https://images.wondershare.com/filmora/article-images/3-tap-on-instagram-settings.jpg)
-
-**Step 3**: A new window will open where the Edit Profile tab from the left panel will be opened. Towards the bottom of the page, you will find Temporarily disable my account. Tap on it.
-
-![disable-instagram-account](https://images.wondershare.com/filmora/article-images/4-disable-instagram-account.jpg)
-
-**Step 4**: On the new page, select the reason why you wish to take a break from the drop-down menu and enter your password. Then click on the Temporarily Disable Account bar.
-
-![delete-instagram-account-temporarily](https://images.wondershare.com/filmora/article-images/5-delete-instagram-account-temporarily.jpg)
-
-**Step 5**: A small caution message will be displayed. Tap on Yes and your account will be temporarily removed.
-
-![confirm-deleting-instagram-account](https://images.wondershare.com/filmora/article-images/6-confirm-deleting-instagram-account.jpg)
-
-You will receive a notification via mail saying that your Instagram account has been deactivated temporarily.
-
-## Part 3: How to Reactivate an Instagram Account
-
-The benefit of deactivating your Instagram account is that you can return where you left off whenever you wish. All the data will be retrieved once you reactivate your account and you can continue using your Instagram account as before.
-
-To reactivate your deactivated Instagram account:
-
-**Step 1**: Open the Instagram login page on your web browser
-
-**Step 2**: Simply enter your Instagram user name and password, and tap on Log In.
-
-Your account will be reactivated and all your posts, followers, messages can be accessed.
-
-## Bonus Part-The Best Instagram Video Editor You Can Try
-
-Instagram is a platform where you post a variety of photos and videos, gain followers and follow a lot of people. The quality of the Instagram content, especially videos always attracts more followers. So the more interesting your Instagram videos are, the more followers you will gain.
-
-One of the best ways to make wonderful and interesting Instagram videos is by using [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). Wondershare Filmora is one of the best and widely used video editing applications by influencers, filmmakers, content creators, etc. all around the globe to create amazing videos for their audience.
-
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-To create a video using Filmora that stand out among the audience:
-
-**Step 1**: Open the video you wish to edit and upload to Instagram in Filmora and then drag and drop this video to the Filmora timeline.
-
-![import instagram video](https://images.wondershare.com/filmora/article-images/import-instagram-video-to-filmora1.jpg)
-
-**Step 2**: Change the resolution of the video by tapping on the File – Project Setting. A small window will appear from which you can change the resolution (for example 1080×1080). Tap on OK after selecting your desired resolution
-
-![adjust instagram video ratio](https://images.wondershare.com/filmora/article-images/fit-instagram-aspect-ratio2.jpg)
-
-**Step 3**: The video can be made attractive by changing the black bars on the top and the bottom of the video. This can be done by selecting a background you like and placing it just below the video on the timeline.
-
-![add background color to instagram video](https://images.wondershare.com/filmora/article-images/add-background-to-instagram-video3.jpg)
-
-**Step 4**: Adding attractive text to the video which is something most audiences notice at the first glance. To add a text go to the Titles tab at the top, select one of the text templates you like, and drag it to the timeline. You can change the text, font, size, color, orientation, animation, etc. of the text.
-
-![add titles to instagram video](https://images.wondershare.com/filmora/article-images/add-titles-to-instagram-video4.jpg)
-
-**Step 5**: Once you have finished editing the video, you can Export the video in whichever format you like.
-
-![export instagram video](https://images.wondershare.com/filmora/article-images/click-export-video-output.jpg)
-
-This video can then be uploaded to Instagram for the viewers to enjoy and for you to gain followers.
-
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -476,3 +573,56 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-elite-7-film-downloader-apps/"><u>[New] 2024 Approved  Elite 7 Film Downloader Apps</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-pinpointing-factors-that-influence-igtv-video-performance/"><u>[New] 2024 Approved  Pinpointing Factors that Influence IGTV Video Performance</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-the-essential-guide-to-tracking-igtv-viewership-metrics/"><u>[New] 2024 Approved  The Essential Guide to Tracking IGTV Viewership Metrics</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-unlock-the-potential-of-your-instagram-content-with-video-edits/"><u>[New] 2024 Approved  Unlock the Potential of Your Instagram Content with Video Edits</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-best-gear-for-comprehensively-filmed-action-for-2024/"><u>[New] Best Gear for Comprehensively Filmed Action for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-essentials-of-creating-share-worthy-instagram-videos/"><u>[New] In 2024, Essentials of Creating Share-Worthy Instagram Videos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-innovative-posting-add-youtube-to-your-insta-narratives-for-2024/"><u>[New] Innovative Posting  Add YouTube to Your Insta Narratives for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-instagrams-filter-arsenal-for-revamping-your-archive-for-2024/"><u>[New] Instagram's Filter Arsenal for Revamping Your Archive for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-master-the-art-of-instagram-live-chats-a-comprehensive-guide-for-2024/"><u>[New] Master the Art of Instagram Live Chats  A Comprehensive Guide for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-maximize-engagement-on-instagram-using-these-top-25-tags/"><u>[New] Maximize Engagement on Instagram Using These Top 25 Tags</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-prove-your-skills-with-flawless-ps4-screen-capture-for-gamers-for-2024/"><u>[New] Prove Your Skills with Flawless PS4 Screen Capture for Gamers for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-advanced-gaming-setup-for-nintendo-switch/"><u>[Updated] 2024 Approved  Advanced Gaming Setup for Nintendo Switch</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-instavision-blend-androidplusios-video-tiles/"><u>[Updated] 2024 Approved  InstaVision Blend  Android+iOS Video Tiles</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-the-pitfall-of-superficial-engagement-on-insta/"><u>[Updated] 2024 Approved  The Pitfall of Superficial Engagement on Insta</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-chuckle-and-sob-with-these-top-10-instagram-meme-collectives-for-2024/"><u>[Updated] Chuckle & Sob with These Top 10 Instagram Meme Collectives for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-clandestine-snapsnapper-concealed-techniques-for-image-capturing/"><u>[Updated] Clandestine SnapSnapper  Concealed Techniques for Image Capturing</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-decoding-the-best-screen-recorder-bandicam-and-camtasia/"><u>[Updated] Decoding the Best Screen Recorder  Bandicam & Camtasia</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-crafting-your-instagram-business-blueprint/"><u>[Updated] In 2024, Crafting Your Instagram Business Blueprint</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-elevate-your-feed-top-10-instagram-hashtags-for-success/"><u>[Updated] In 2024, Elevate Your Feed  Top 10 Instagram Hashtags for Success</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-pinpointing-the-10-most-discreet-story-advocates/"><u>[Updated] In 2024, Pinpointing the 10 Most Discreet Story Advocates</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-vimeo-captions-101-the-essential-guide/"><u>[Updated] Vimeo Captions 101  The Essential Guide</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-which-iphone-video-editor-stands-tall-cameo-vs-filmorago/"><u>[Updated] Which iPhone Video Editor Stands Tall? Cameo Vs. FilmoraGo</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-expert-level-quick-fixes-the-ultimate-5-diy-filmmaking-tricks/"><u>2024 Approved  Expert-Level Quick Fixes  The Ultimate 5 DIY Filmmaking Tricks</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-from-novice-to-pro-instagram-live-walkthrough/"><u>2024 Approved  From Novice to Pro  Instagram Live Walkthrough</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-premiere-vr-developers-shaping-the-future/"><u>2024 Approved  Premiere VR Developers Shaping the Future</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-unveiling-the-veil-insta-story-exploration-without-trace/"><u>2024 Approved  Unveiling the Veil  Insta Story Exploration without Trace</u></a></li>
+<li><a href="https://extra-information.techidaily.com/crafting-artful-pictures-on-android-devices-for-2024/"><u>Crafting Artful Pictures on Android Devices for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/developing-dynamic-instagram-feed-slides-for-2024/"><u>Developing Dynamic Instagram Feed Slides for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/diving-into-the-world-of-instagrams-reels-and-stories/"><u>Diving Into the World of Instagram's Reels & Stories</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/forgot-pattern-lock-heres-how-you-can-unlock-lava-yuva-3-pro-pattern-lock-screen-by-drfone-android/"><u>Forgot Pattern Lock? Heres How You Can Unlock Lava Yuva 3 Pro Pattern Lock Screen</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/how-to-use-filters-on-instagram-2023-for-2024/"><u>How to Use Filters on Instagram 2023 for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-lava-blaze-2-5g-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Lava Blaze 2 5G</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-elevate-your-feed-top-10-instagram-hashtags-for-success/"><u>In 2024, Elevate Your Feed  Top 10 Instagram Hashtags for Success</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fake-the-location-to-get-around-the-mlb-blackouts-on-lava-blaze-curve-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Fake the Location to Get Around the MLB Blackouts on Lava Blaze Curve 5G | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-find-the-perfect-blend-of-joy-and-sorrow-in-these-meme-feeds/"><u>In 2024, Find the Perfect Blend of Joy and Sorrow in These Meme Feeds</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-ig-beats-unleashed-an-insiders-guide-to-music-integration/"><u>In 2024, IG Beats Unleashed  An Insider’s Guide to Music Integration</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-leading-directory-30-premier-websites-for-accessible-vector-design-tools/"><u>In 2024, Leading Directory  30 Premier Websites for Accessible Vector Design Tools</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-resolving-common-instagram-video-glitches/"><u>In 2024, Resolving Common Instagram Video Glitches</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-starting-point-connecting-seamlessly-via-instagram/"><u>In 2024, Starting Point  Connecting Seamlessly via Instagram</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-the-messenger-maestros-guide-to-capturing-social-media-videos/"><u>In 2024, The Messenger Maestro's Guide to Capturing Social Media Videos</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-meizu-21-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Meizu 21 Pro | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/instavision-twists-the-art-of-creating-instagram-loops-for-2024/"><u>InstaVision Twists  The Art of Creating Instagram Loops for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ipogo-will-be-the-new-ispoofer-on-nubia-z50s-pro-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Nubia Z50S Pro? | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/leveraging-text-overlays-for-engaging-visual-posts-for-2024/"><u>Leveraging Text Overlays for Engaging Visual Posts for 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/optimize-windows-10-graphics-via-driver-refresh/"><u>Optimize Windows 10 Graphics via Driver Refresh</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/reign-supreme-with-these-ultimate-10-innovative-ideas-for-igtv-video-content-for-2024/"><u>Reign Supreme with These Ultimate 10 Innovative Ideas for IGTV Video Content for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/strategies-for-eye-popping-fb-ad-videos/"><u>Strategies for Eye-Popping FB Ad Videos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/the-roadmap-to-an-influential-instagram-profile-six-simple-steps-for-following-and-verified-recognition/"><u>The Roadmap to an Influential Instagram Profile  Six Simple Steps for Following and Verified Recognition</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/top-5-hidden-gems-to-watch-insta-stories/"><u>Top 5 Hidden Gems to Watch Insta Stories</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] VisualVoyage  Mastering the Art of Image and Video Size on Instagram for 2024\""
-date: 2024-05-21T22:27:59.444Z
-updated: 2024-05-22T22:27:59.444Z
+date: 2024-07-25T18:45:20.526Z
+updated: 2024-07-26T18:45:20.526Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] VisualVoyage: Mastering the Art of Image and Video Size on Instagram for 2024\""
 excerpt: "\"This Article Describes [New] VisualVoyage: Mastering the Art of Image and Video Size on Instagram for 2024\""
 keywords: "\"Instagram Image Optimization,Insta-Video Sizing Tips,Instagram Media Balance,Visual Content Scaling,Instagram Picture Perfect,Video Size for Instagram,Imagery Mastery on Instagram\""
-thumbnail: https://www.lifewire.com/thmb/hcb4VjSx2v1IdQ8Ipb16PkbYJe0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Pikachulita1-87a993aab8d94a93830a26b6bed77df3.jpg
+thumbnail: https://thmb.techidaily.com/6be6dd71eae640fe0dafe922a0c9856b8d53d7857f2711632e7fcb56b1cec9df.jpg
 ---
 
 ## VisualVoyage: Mastering the Art of Image and Video Size on Instagram
@@ -75,6 +75,81 @@ The photos you post as stories on Instagram are always vertically oriented and f
 
 The profile pictures on Instagram are tiny, and the optimum size for them is 160X160 px, while their shape is always a square which means that you'll have to set their aspect ratio to 1:1.
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+Taking photos with iPhones and Android Smartphones and posting them to Instagram is easy because you only have to snap a photo, launch the Instagram app, and apply filters that this amazing platform offers. There's no need to worry about photo sizes or aspect ratios because Instagram is going to the all the heavy work for you.
+
+Troubles begin when you want to upload photos and videos that weren't captured with a Smartphone to Instagram. In most cases, the photos and videos produced by DSLR cameras and other semi-professional and professional equipment are much larger than the sizes supported by Instagram. That is the reason why we created this guide that will help you post visual content that is perfectly adjusted to Instagram in 2021.
+
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+</a>
+<!-- affiliate ads end -->
+## Types of Files Accepted by Instagram
+
+The first thing you need to pay attention to when uploading images and videos to Instagram is that the files you are uploading are in one of the photo or video formats that Instagram supports.
+
+**Photo File Types**
+
+Unfortunately, Instagram supports only two file formats. You should make sure that your photo is either saved in **JPEG** or **PNG** file format because all other file formats won't do the trick, and you'll be forced to go back to the photo editor you used and change the file format before you can upload a photo to Instagram. Posting GIF files is not possible without apps such as GIPHY CAM or GifLab because this type of files isn't supported by Instagram.
+
+**Video File Types**
+
+Things get much easier when it comes to video since Instagram supports nearly all video file formats you can think of. However, the most commonly used types of video files uploaded to Instagram are have an  codec and a MP.4 file extension, which is the reason why we recommend converting your video files into this file format before uploading them to Instagram.
+
+Duration of Videos on Instagram
+
+You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
+
+## Best Image Sizes for Instagram Posts
+
+A couple of years ago, Instagram has finally allowed its users to upload images that aren't square shaped. In 2021, you can also upload horizontally and vertically oriented photos in addition to the standard square shape. However, in order to create a perfect Instagram post, and prevent the platform from cropping your photos you need to use the Instagram image sizes featured below.
+
+#### Instagram's Main Feed
+
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
+![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
+
+The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
+
+* **Square**
+
+Most digital cameras don't produce this shape of a photo, which means that you'll have to change width and height values before you upload a photo to Instagram. The best Instagram photo size for square-shaped images is 1080 px X 1080 px in 1:1 aspect ratio because if you use a picture that has fewer or more pixels than that, the platform may resize your photo automatically.
+
+* **Landscape**
+
+This type of picture orientation is frequently used for both videos and photos, however, if you want to upload a horizontally oriented photo to Instagram, we recommend that you use 1,91:1 aspect ratio and 1080 px X 566 px values for the size of a photo.
+
+* **Portrait**
+
+Portrait or vertically oriented photos on Instagram should have 8:10 aspect ratio and a 1080 px size value for the shorter side of a photo, and 1350 px value for the longer side of a photo you'd like to post to Instagram.
+
+#### Instagram Stories
+
+The photos you post as stories on Instagram are always vertically oriented and for that reason, you should change their aspect ratio to 9:16 and set their size to 1080X1920px.
+
+#### Instagram Profile Pictures
+
+The profile pictures on Instagram are tiny, and the optimum size for them is 160X160 px, while their shape is always a square which means that you'll have to set their aspect ratio to 1:1.
+
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -107,6 +182,9 @@ Duration of Videos on Instagram
 
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Best Image Sizes for Instagram Posts
 
 A couple of years ago, Instagram has finally allowed its users to upload images that aren't square shaped. In 2021, you can also upload horizontally and vertically oriented photos in addition to the standard square shape. However, in order to create a perfect Instagram post, and prevent the platform from cropping your photos you need to use the Instagram image sizes featured below.
@@ -153,6 +231,9 @@ Taking photos with iPhones and Android Smartphones and posting them to Instagram
 
 Troubles begin when you want to upload photos and videos that weren't captured with a Smartphone to Instagram. In most cases, the photos and videos produced by DSLR cameras and other semi-professional and professional equipment are much larger than the sizes supported by Instagram. That is the reason why we created this guide that will help you post visual content that is perfectly adjusted to Instagram in 2021.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Types of Files Accepted by Instagram
 
 The first thing you need to pay attention to when uploading images and videos to Instagram is that the files you are uploading are in one of the photo or video formats that Instagram supports.
@@ -175,6 +256,9 @@ A couple of years ago, Instagram has finally allowed its users to upload images 
 
 #### Instagram's Main Feed
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
@@ -199,68 +283,9 @@ The photos you post as stories on Instagram are always vertically oriented and f
 
 The profile pictures on Instagram are tiny, and the optimum size for them is 160X160 px, while their shape is always a square which means that you'll have to set their aspect ratio to 1:1.
 
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
-Taking photos with iPhones and Android Smartphones and posting them to Instagram is easy because you only have to snap a photo, launch the Instagram app, and apply filters that this amazing platform offers. There's no need to worry about photo sizes or aspect ratios because Instagram is going to the all the heavy work for you.
-
-Troubles begin when you want to upload photos and videos that weren't captured with a Smartphone to Instagram. In most cases, the photos and videos produced by DSLR cameras and other semi-professional and professional equipment are much larger than the sizes supported by Instagram. That is the reason why we created this guide that will help you post visual content that is perfectly adjusted to Instagram in 2021.
-
-## Types of Files Accepted by Instagram
-
-The first thing you need to pay attention to when uploading images and videos to Instagram is that the files you are uploading are in one of the photo or video formats that Instagram supports.
-
-**Photo File Types**
-
-Unfortunately, Instagram supports only two file formats. You should make sure that your photo is either saved in **JPEG** or **PNG** file format because all other file formats won't do the trick, and you'll be forced to go back to the photo editor you used and change the file format before you can upload a photo to Instagram. Posting GIF files is not possible without apps such as GIPHY CAM or GifLab because this type of files isn't supported by Instagram.
-
-**Video File Types**
-
-Things get much easier when it comes to video since Instagram supports nearly all video file formats you can think of. However, the most commonly used types of video files uploaded to Instagram are have an  codec and a MP.4 file extension, which is the reason why we recommend converting your video files into this file format before uploading them to Instagram.
-
-Duration of Videos on Instagram
-
-You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
-
-## Best Image Sizes for Instagram Posts
-
-A couple of years ago, Instagram has finally allowed its users to upload images that aren't square shaped. In 2021, you can also upload horizontally and vertically oriented photos in addition to the standard square shape. However, in order to create a perfect Instagram post, and prevent the platform from cropping your photos you need to use the Instagram image sizes featured below.
-
-#### Instagram's Main Feed
-
-![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
-
-The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
-
-* **Square**
-
-Most digital cameras don't produce this shape of a photo, which means that you'll have to change width and height values before you upload a photo to Instagram. The best Instagram photo size for square-shaped images is 1080 px X 1080 px in 1:1 aspect ratio because if you use a picture that has fewer or more pixels than that, the platform may resize your photo automatically.
-
-* **Landscape**
-
-This type of picture orientation is frequently used for both videos and photos, however, if you want to upload a horizontally oriented photo to Instagram, we recommend that you use 1,91:1 aspect ratio and 1080 px X 566 px values for the size of a photo.
-
-* **Portrait**
-
-Portrait or vertically oriented photos on Instagram should have 8:10 aspect ratio and a 1080 px size value for the shorter side of a photo, and 1350 px value for the longer side of a photo you'd like to post to Instagram.
-
-#### Instagram Stories
-
-The photos you post as stories on Instagram are always vertically oriented and for that reason, you should change their aspect ratio to 9:16 and set their size to 1080X1920px.
-
-#### Instagram Profile Pictures
-
-The profile pictures on Instagram are tiny, and the optimum size for them is 160X160 px, while their shape is always a square which means that you'll have to set their aspect ratio to 1:1.
-
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -292,3 +317,47 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-enriching-the-instagram-experience-with-background-sounds/"><u>[New] 2024 Approved  Enriching the Instagram Experience with Background Sounds</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-instagram-video-speed-boosting-for-smooth-playbacks-mobiledesktop/"><u>[New] 2024 Approved  Instagram Video Speed Boosting for Smooth Playbacks (Mobile/Desktop)</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-quick-guide-sharing-igtv-in-the-world-of-insta-stories/"><u>[New] 2024 Approved  Quick Guide  Sharing IGTV in the World of Insta Stories</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-4k-spectacle-top-10-monitors-compatible-with-macs/"><u>[New] 4K Spectacle  Top 10 Monitors Compatible with Macs</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-chasingpeakperformance-after-mycam/"><u>[New] ChasingPeakPerformance After MyCam</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-engaging-audiences-with-smart-instavideo-marketing-tactics/"><u>[New] Engaging Audiences with Smart InstaVideo Marketing Tactics</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-grid-artistry-at-its-peak-the-definitive-10-for-insta-posts-for-2024/"><u>[New] Grid Artistry at Its Peak  The Definitive 10 for Insta Posts for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-how-to-archive-instagram-movies-a-comprehensive-pc-and-mac-approach-for-2024/"><u>[New] How to Archive Instagram Movies  A Comprehensive PC & Mac Approach for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-taking-a-step-back-inverting-image-queries-in-instagram/"><u>[New] In 2024, Taking a Step Back  Inverting Image Queries in Instagram</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-understanding-image-validity-on-insta/"><u>[New] In 2024, Understanding Image Validity on Insta</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-mastering-google-meet-creation-and-scheduling-guide/"><u>[New] Mastering Google Meet  Creation & Scheduling Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-navigating-igtv-essential-knowledge-and-usage-for-2024/"><u>[New] Navigating IGTV  Essential Knowledge & Usage for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-pro-tips-for-capturing-stunning-igtv-content-on-mobile-and-dslr/"><u>[New] Pro Tips for Capturing Stunning IGTV Content on Mobile & DSLR</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-adding-music-mini-banners-on-instagram-profiles-for-2024/"><u>[Updated] Adding Music Mini-Banners on Instagram Profiles for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-compiling-top-iphone-video-apps/"><u>[Updated] Compiling Top iPhone Video Apps</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-curated-igtv-channels-that-matter-today/"><u>[Updated] Curated IGTV Channels That Matter Today</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-fresh-content-massive-traction-secrets-to-a-thriving-insta-account/"><u>[Updated] Fresh Content, Massive Traction  Secrets to a Thriving Insta Account</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-how-to-capturing-and-saving-instagrams-transient-media/"><u>[Updated] How-To  Capturing and Saving Instagram's Transient Media</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-ideal-titles-and-sizes-maximizing-click-through-rates-for-2024/"><u>[Updated] Ideal Titles & Sizes  Maximizing Click Through Rates for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-live-footage-at-its-best-gamers-recording-tips/"><u>[Updated] Live Footage at Its Best  Gamers' Recording Tips</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-propel-participation-through-unique-custom-story-queries-for-2024/"><u>[Updated] Propel Participation Through Unique, Custom Story Queries for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-streamlining-your-creative-process-with-effective-instagram-video-editing-tips-for-2024/"><u>[Updated] Streamlining Your Creative Process with Effective Instagram Video Editing Tips for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-meme-magic-sending-laughs-across-fb-and-insta-with-video-content/"><u>2024 Approved  Meme Magic  Sending Laughs Across FB & Insta with Video Content</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/crafting-gentle-volume-declines-in-premiere-pro-videos-for-2024/"><u>Crafting Gentle Volume Declines in Premiere Pro Videos for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/demystifying-instagrams-videography-cap-constraint/"><u>Demystifying Instagram’s Videography Cap Constraint</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/discover-10-secret-followers-on-stories/"><u>Discover 10 Secret Followers on Stories</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/elevate-your-content-from-instagram-vids-to-crisp-mp4-files/"><u>Elevate Your Content  From Instagram Vids to Crisp MP4 Files</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/engaging-stories-through-customized-instagram-quests-for-2024/"><u>Engaging Stories Through Customized Instagram Quests for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-samsung-galaxy-a25-5g-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>How to Cast Samsung Galaxy A25 5G to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-part-of-the-touch-screen-not-working-on-infinix-zero-30-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Part of the Touch Screen Not Working on Infinix Zero 30 5G | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-learn-how-everything-works-on-oneplus-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Learn How Everything Works On OnePlus 11 5G | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-new-multiple-ways-how-to-remove-icloud-activation-lock-on-your-apple-iphone-xs-by-drfone-ios/"><u>In 2024, New Multiple Ways How To Remove iCloud Activation Lock On your Apple iPhone XS</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-perfecting-screenshots-editing-vids-vertically-on-fcpx/"><u>In 2024, Perfecting Screenshots  Editing Vids Vertically on FCPX</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-social-sensation-best-insta-stories-effects/"><u>In 2024, Social Sensation  Best Insta Stories Effects</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-the-complete-guide-to-mastering-instagrams-filter-features/"><u>In 2024, The Complete Guide to Mastering Instagram's Filter Features</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/swift-techniques-for-shifting-iphone-media-to-pc/"><u>Swift Techniques for Shifting iPhone Media to PC</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/the-3-step-structure-for-successful-subscriber-profit-analysis-a-guide-from-google/"><u>The 3-Step Structure for Successful Subscriber Profit Analysis  A Guide From Google</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-blueprint-for-successful-individual-podcasts/"><u>The Blueprint for Successful Individual Podcasts</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/turning-gaming-moments-into-legacy-proven-methods-for-documenting-your-sims-journey-in-sims-4/"><u>Turning Gaming Moments Into Legacy  Proven Methods for Documenting Your Sims' Journey in Sims 4</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/tutorial-uploading-youtube-to-instagram-stories-effortlessly/"><u>Tutorial  Uploading YouTube to Instagram Stories Effortlessly</u></a></li>
+</ul></div>
