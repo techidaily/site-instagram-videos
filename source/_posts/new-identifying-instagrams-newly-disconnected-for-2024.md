@@ -1,0 +1,279 @@
+---
+title: "[New] Identifying Instagram's Newly Disconnected for 2024"
+date: 2024-08-20T05:12:57.484Z
+updated: 2024-08-21T05:12:57.484Z
+tags:
+  - ai video
+  - ai instagram
+  - ai instagram video
+categories:
+  - ai
+  - instagram
+description: "This Article Describes [New] Identifying Instagram's Newly Disconnected for 2024"
+excerpt: "This Article Describes [New] Identifying Instagram's Newly Disconnected for 2024"
+keywords: "Instagram Deactivation Signs,Lost Followers Analysis,Account Status Confirmation,Social Media Disconnection,Profile Isolation Detection,User Unlinked Tracking,Connection Breakdown Identification"
+thumbnail: https://thmb.techidaily.com/f858bf5f9e0327b42a985f450fae85190a7aad26feb7ee5b800247a93a2f3bb0.png
+---
+
+## Identifying Instagram's Newly Disconnected
+
+# How to See Who Unfollowed You On Instagram
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+Instagram is among the most popular photo-sharing sites, with over one billion daily active users. It's comparable to Twitter in that you may follow and be followed by other people.
+
+Whenever anyone wants to follow you on Instagram, you are notified and have the option to accept or refuse the invitation. But, people also unfollow accounts frequently due to many reasons. You don't want to lose followers regularly, do you? Sharing your stories with thousands of people on Instagram is everyone's dream. But while Instagram may not tell you if anybody unfollows you, we will tell you **how to see who unfollowed you on Instagram** in this article!
+
+* [Part 1: How to Figure Out Who Unfollowed You On Instagram?](#part1)
+* [Part 2: How to See Who Unfollowed You on Instagram 2021with NO APPS?](#part2)
+* [Part 3: Best Apps to Check Who Unfollowed You On Instagram](#part3)
+* [Part 4: How to Prevent Organic Followers from Unfollowing?](#part4)
+
+---
+
+## Part 1: How to Figure Out Who Unfollowed You On Instagram?
+
+Instagram is one of the most used social media websites in recent times. Many people are trying to become influencers on Instagram daily. To do that, they have to keep the check on their followers' counts. No one wants their follower count to decrease. But if that happens, then you would like to know who has unfollowed you. There are many ways to check it, but the most basic form of how to see who unfollowed you on Instagram is by inspecting manually. The following steps can assist you in that:
+
+**Step 1: Launch the app**
+
+First things first, you have to launch the Instagram app or website on your phone or on a computer.
+
+**Step 2: Check the following**
+
+Now, look at the following box in the profile of the person you want to check manually. If you don't see your profile in the **Following tab**, then you can assume that they have unfollowed you.
+
+![Instagram following list](https://images.wondershare.com/filmora/article-images/instagram-following-list.jpg)
+
+**Step 3: Search the name**
+
+Go to the **Search bar** and search the person by that person's username. This will tell whether the person is following you or not as well.
+
+![search in Instagram following list](https://images.wondershare.com/filmora/article-images/search-instagram-following-list.jpg)
+
+**Pros**
+
+You don't need any third-party app to know who unfollowed you. So, it is not much complicated.
+
+**Cons**
+
+if your followers are in thousands, it is pretty hectic to go to each person's profile to check that. So this way is quite time-consuming.
+
+---
+
+## Part 2: How to See Who Unfollowed You on Instagram 2021with NO APPS \[ 100% Safe Method\]
+
+Many of you are not aware of a third-party app-free method that is quick, reliable, and safe. But now, you don't have to worry about it because we will cover a 100% secure way of how to know who unfollowed you on Instagram. The following steps can help you in understanding that method:
+
+**Step 1: Open Security**
+
+Open the Instagram app and go to **Profile.** You need to select the **three horizontal dots** at the top right corner of the screen, tap on **Settings** \-> **Security** from that list.
+
+![Instagram Security Option](https://images.wondershare.com/filmora/article-images/instagram-security-option.jpg)
+
+**Step 2: Download Data and Information from Instagram**
+
+Now, you have to tap on **Download Data** from the panel, and a confirmation window will appear, tap on Download Data again. Instagram will email a copy of your data to you in about 48 hours. You need to download the data from there.
+
+![download Instagram information](https://images.wondershare.com/filmora/article-images/download-instagram-information.jpg)
+
+**Step 3: Copy followers and Following list**
+
+**Unzip** the file you have downloaded. Open the **Followers\_Following** option and open **Followers.html** and **Following.html. Copy** the data from both lists.
+
+**Step 4: Open ListDiff.com**
+
+Open [ListDiff.com](http://www.listdiff.com/) and paste the data copied from **Followers.html in list A and Follwing.html in list B.** Now click on **Compare Lists.** Once the results are generated, **sort** them from A to Z, and at the bottom of **list B,** you will get to know the accounts that have unfollowed you.
+
+![compare  Instagram follower list](https://images.wondershare.com/filmora/article-images/compare-instagram-followers-following-list-listdiff.jpg)
+
+For the detailed information about checking who unfollowed you on Instagram 2021, you can watch the video tutorial made by YouTuber Ben Leavitt below.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->
+## Part 3: Best Apps to Check Who Unfollowed You On Instagram
+
+There are quite a few apps to know who has unfollowed you on Instagram right now. These apps work as Third-party apps to keep track of people following you and the people who have unfollowed you. Instagram has modified its API over time, so it isn't easy to keep tabs on the followers. Many outdated apps have failed to do the job on updated Instagram versions due to their privacy modifications.
+
+However, some third-party apps do the job without any security breach, so they are safe to use. We have covered some of the best third-party apps to check who unfollowed you on Instagram.
+
+### 1\.  Follow Meter
+
+Follow Meter allows you to know about the popularity of your Instagram account, secret admirers, people who have unfollowed you, and your ghost followers. You will have to **log in** to your Instagram account once the app is downloaded. After that, you can see the accounts you're not following, the accounts that have not followed you back, and the accounts you are following on the dashboard. However, some of the features are limited, which can only be accessible any purchasing its premium packages.
+
+![Follow Meter](https://images.wondershare.com/filmora/article-images/followmeter-for-instagram.jpg)
+
+**Features**
+
+* It helps in tracking the accounts that have unfollowed you
+* You can monitor your post-performance by using this app
+
+**Pricing**
+
+It offers its premium version for $4.99 a month, $17.99 per 6 months, and $24.99 per year.
+
+**Supported OS**
+
+[Android](https://play.google.com/store/apps/details?id=com.beakerapps.instameter2&hl=en&gl=US) and [iOS](https://apps.apple.com/us/app/followmeter-for-instagram/id651309421).
+
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<!-- affiliate ads end -->
+### 2\.  Followers Trackers Pro
+
+Follower Tracker Pro works as a tracker of Instagram followers. You have to sign in to your Instagram account once you have downloaded the app. After that, a menu will appear where you have the options to see the lists of accounts that have unfollowed you, followers, new followers, and the people who are not following you back.
+
+![Followers Trackers Pro](https://images.wondershare.com/filmora/article-images/tracker-pro-followers-reports.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<!-- affiliate ads end -->
+You can tap on one of these options to see the list. And despite having a "pro" in its name, this app is free to download. It updates multiple times a month to keep its drivers up-to-date.
+
+**Features**
+
+* You can see the lists of the accounts that are not following you back
+* You can track the average likes, comments on your Instagram posts
+
+**Pricing**
+
+It offers one premium package that is $29.99 a year.
+
+**Supported OS**
+
+[iOS](https://apps.apple.com/us/app/tracker-pro-followers-reports/id1486844902) only.
+
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### 3\.  Followers Track, For Instagram
+
+This app helps you in being updated about your relationship with your followers. You can see individual interactions with your followers, including the likes and comments you two have done on each other's posts. It enables you to analyze your posts and tells you who has liked one picture and not the other. You can see the list of the accounts that have blocked you and the accounts that watch your story or interact on your posts but are not following you. This app enables the best chance for you to keep track of your follower's interactions with you.
+
+![Followers Track, For Instagram](https://images.wondershare.com/filmora/article-images/followers-track-for-instagram.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+**Features**
+
+* Shows individual interaction of you and your follower
+* Allows you to see the accounts that are stalking your Profile
+
+**Pricing**
+
+It offers a one-month premium subscription for $9.99.
+
+**Supported OS**
+
+[iOS](https://apps.apple.com/us/app/followers-track-for-instagram/id1274225386#?platform=iphone)only.
+
+**Pros of using third-party apps to track** **Instagram** **followers**
+
+* You can track the people who have never followed you or the people who have unfollowed you.
+* You can get to know about the interaction of your followers with your posts.
+
+**Cons of using third-party apps**
+
+* If someone has unfollowed you before setting up the third-party app, it won't track them.
+* These apps are not guaranteed, so you are exposed to data breaches if you are using them.
+
+---
+
+## Part 4: How to Prevent Organic Followers from Unfollowing?
+
+Organic followers are the followers that have followed you recently. These followers are somehow interested in your personality, posts, or what you show on your Instagram account. So, if you are an Instagram influencer, you would want to prevent people from unfollowing you. The best is by maintaining their expectations and hopes with your account. The following tips can assist you in preventing organic followers from unfollowing:
+
+* **Going Live**
+
+One of the most effective ways is going live on Instagram to know what people expect from you. You can let your followers see the real you to maintain an excellent relationship with them.
+
+* **Stay Active**
+
+If you are not staying active for whatever reason, there's a high chance people will start unfollowing you. You need to keep your feed presence by posting more often to prevent the organic followers from unfollowing you.
+
+* **Engage with audience**
+
+Start engaging with your follower, reply to their comments on your posts with interactive stickers. Otherwise, they would think that you are rude and will start unfollowing you. Also, try to engage on their posts as well.
+
+### FAQs about Instagram Followers Tracking
+
+#### 1\. Are you notified if someone unfollows you on Instagram?
+
+The obvious answer to this question is no. Instagram does not notify if someone has unfollowed you due to any reason. Instagram tends to keep its user's privacy, and also it is against the application's privacy policy. But if you still want to know, you can either check manually or use a third-party app.
+
+#### 2\. Is it immature to unfollow someone on Instagram?
+
+It is not immature to unfollow someone if you have a legitimate reason. If you don't want to interact with someone or see their posts or stories, then it is mature to unfollow them for good. But to unfollow people for fun, then it is pretty immature.
+
+#### 3\. How do I stop a follower from seeing my Instagram posts?
+
+To hide your content from someone on Instagram, you will have to go to their Profile and click on three horizontal lines on the top right corner. A menu bar will appear. Select mute from that menu to stop that person from seeing your posts.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-enhance-your-photos-with-top-insta-editors/"><u>[New] 2024 Approved  Enhance Your Photos with Top Insta Editors</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-premium-6-services-for-live-video-localization/"><u>[New] 2024 Approved  Premium 6 Services for Live Video Localization</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-uncomplicated-technique-changing-vocal-pattern-in-winos/"><u>[New] 2024 Approved  Uncomplicated Technique  Changing Vocal Pattern in WinOS</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-how-to-upload-longer-videos-to-instagram-on-mac/"><u>[New] How to Upload Longer Videos to Instagram on Mac</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-crafting-excellence-in-instagram-grids-with-these-elite-tools/"><u>[New] In 2024, Crafting Excellence in Instagram Grids with These Elite Tools</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-insta-photo-carousel-magic-for-2024/"><u>[New] Insta-Photo Carousel Magic for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-list-of-10-invisible-stories-watchers/"><u>[New] List of 10 Invisible Stories Watchers</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-the-rhythm-rulebook-seamlessly-mixing-music-into-instagram-posts/"><u>[New] The Rhythm Rulebook  Seamlessly Mixing Music Into Instagram Posts</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-the-smart-approach-for-posting-igtv-on-your-story/"><u>[New] The Smart Approach for Posting IGTV on Your Story</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-the-stealthiest-instagram-story-viewers-for-2024/"><u>[New] The Stealthiest Instagram Story Viewers for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-the-ultimate-blueprint-to-dominate-instagram-with-puzzles/"><u>[New] The Ultimate Blueprint to Dominate Instagram With Puzzles</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-revolutionize-your-social-media-strategy-essential-instagram-analytics-platforms/"><u>[Updated] 2024 Approved  Revolutionize Your Social Media Strategy  Essential Instagram Analytics Platforms</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-scrutinizing-the-importance-of-honesty-in-online-self-portraits/"><u>[Updated] 2024 Approved  Scrutinizing the Importance of Honesty in Online Self-Portraits</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-the-follow-up-formula-climbing-to-1k-monthly-instagram-likes/"><u>[Updated] 2024 Approved  The Follow-Up Formula  Climbing to 1K Monthly Instagram Likes</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-unlocking-creative-potential-integrating-custom-graphic-elements-into-your-story/"><u>[Updated] 2024 Approved  Unlocking Creative Potential  Integrating Custom Graphic Elements Into Your Story</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-aimp-pro-541-wmsps-advanced-desktop-companion/"><u>[Updated] AIMP Pro 5.41  WMSP's Advanced Desktop Companion</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-chuckles-on-the-clouds-designing-hits-for-fb-and-instagram-meme-culture-for-2024/"><u>[Updated] Chuckles on the Clouds  Designing Hits for FB & Instagram Meme Culture for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-easy-recording-setups-for-lol-enthusiasts-3-ways/"><u>[Updated] Easy Recording Setups for LOL Enthusiasts (3 Ways)</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-easy-techniques-to-download-gif-images-from-social-media-for-2024/"><u>[Updated] Easy Techniques to Download GIF Images From Social Media for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-get-1k-followers-every-month-on-instagram-for-2024/"><u>[Updated] Get 1K Followers Every Month on Instagram for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-how-to-live-without-the-convenience-of-youtube-shorts-for-2024/"><u>[Updated] How To Live Without the Convenience of YouTube Shorts for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-10-best-tags-analyzing-apps-fb-twt-and-ig-platforms/"><u>[Updated] In 2024, 10 Best Tags Analyzing Apps  FB, Twt & IG Platforms</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-best-practices-in-youtube-thumbnail-sizes-and-ratios/"><u>[Updated] In 2024, Best Practices in YouTube Thumbnail Sizes and Ratios</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-effortless-link-up-merging-instagram-posts-with-facebook/"><u>[Updated] In 2024, Effortless Link Up  Merging Instagram Posts with Facebook</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-insta-rapid-rise-mastering-engagement-with-likes-and-vids/"><u>[Updated] In 2024, Insta Rapid Rise  Mastering Engagement with Likes & Vids</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-innovative-approaches-to-supercharge-your-editing-workflow/"><u>[Updated] Innovative Approaches to Supercharge Your Editing Workflow</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-instagram-insights-ultimate-guide-to-understand-ig-data/"><u>[Updated] Instagram Insights  Ultimate Guide to Understand IG Data</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-beyond-the-screen-shaping-perceptions-on-instagram-through-captions/"><u>2024 Approved  Beyond the Screen - Shaping Perceptions on Instagram Through Captions</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-how-to-download-windows-movie-maker-6/"><u>2024 Approved  How to Download Windows Movie Maker 6</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-master-the-art-of-instagram-looped-footage/"><u>2024 Approved  Master the Art of Instagram Looped Footage</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/can-advanced-algorithms-by-chatgpt-eclipse-classic-horoscope-predictions/"><u>Can Advanced Algorithms by ChatGPT Eclipse Classic Horoscope Predictions?</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/guaranteeing-your-stream-uninterrupted-by-ads-on-fb/"><u>Guaranteeing Your Stream Uninterrupted by Ads on FB</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/honor-x50iplus-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>Honor X50i+ ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-vivo-y28-5g-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Vivo Y28 5G | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-step-by-step-guide-inserting-captions-in-instagram-clips/"><u>In 2024, Step-by-Step Guide  Inserting Captions in Instagram Clips</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-unlock-additional-instagram-filters-a-step-by-step-guide/"><u>In 2024, Unlock Additional Instagram Filters  A Step-by-Step Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/quickening-instagram-video-streams-on-mobile-devices-for-2024/"><u>Quickening Instagram Video Streams on Mobile Devices for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/reversed-video-techniques-for-instagram-savvy-users-for-2024/"><u>Reversed Video Techniques for Instagram Savvy Users for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/social-stardom-awaits-add-1k-to-your-insta-profile-each-month/"><u>Social Stardom Awaits  Add 1K to Your Insta Profile Each Month</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/unleash-creativity-with-these-top-10-instagram-reel-apps/"><u>Unleash Creativity with These Top 10 Instagram Reel Apps</u></a></li>
+</ul></div>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
