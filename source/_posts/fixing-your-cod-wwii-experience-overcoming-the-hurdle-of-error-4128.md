@@ -1,7 +1,7 @@
 ---
 title: "Fixing Your COD: WWII Experience - Overcoming the Hurdle of Error #4128"
-date: 2024-08-20T05:16:33.784Z
-updated: 2024-08-21T05:16:33.784Z
+date: 2024-09-04T13:23:48.138Z
+updated: 2024-09-05T13:23:48.138Z
 tags:
   - win11
   - win10
@@ -32,7 +32,10 @@ One of the first things you do when you run into problems with your PC programs 
 Faulty installed NVIDIA drivers can be one of the causes of this problem according to may users. You can uninstall all the possible NVIDIA drivers from your computer and then reinstall them again. If you need, you can use software such as Display Driver Uninstaller to help you with the NVIDIA display driver uninstall. Or you can just go to Device Manager to uninstall NVIDIA drivers one by one. Pick whatever suits you best. When the uninstall finishes, restart your PC. Search for the needed NVIDIA drivers from its support website, and update them as instructed. If you don’t have the time, patience or computer skills to update your drivers manually, you can do it automatically with[**Driver Easy**](https://tools.techidaily.com/drivereasy/download/). Driver Easy will automatically recognize your system and find the correct drivers for it. To ensure that you have safe and secure drivers, Driver Easy prioritizes in providing you with drivers that have passed WHQL test. You can update your drivers automatically with either the FREE or the Pro version of Driver Easy. But with the Pro version it takes just 2 clicks (and you get full support and a 30-day money back guarantee): 1)[**Download**](https://tools.techidaily.com/drivereasy/download/)and install Driver Easy. 2) Run Driver Easy and click the**Scan Now**button. Driver Easy will then scan your computer and detect any problem drivers. ![](https://images.drivereasy.com/wp-content/uploads/2017/07/img_595772546bc1c.png)3) Click the**Update**button next to all flagged devices to automatically download and install the correct version of their drivers (you can do this with the FREE version). Or click**Update All**to automatically download and install the correct version of all the drivers that are missing or out of date on your system (this requires the[**Pro version**](https://tools.techidaily.com/drivereasy/download/)– you’ll be prompted to upgrade when you click Update All). ![](https://images.drivereasy.com/wp-content/uploads/2017/04/img_58e8b44fc8c34.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Method 3: Reinstall Microsoft .NET Framework
 
