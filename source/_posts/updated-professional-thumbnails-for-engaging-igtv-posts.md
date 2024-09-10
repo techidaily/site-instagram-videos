@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Professional Thumbnails for Engaging IGTV Posts"
-date: 2024-09-04T13:23:45.302Z
-updated: 2024-09-05T13:23:45.302Z
+date: 2024-09-09T20:22:02.345Z
+updated: 2024-09-10T20:22:02.345Z
 tags:
   - ai video
   - ai instagram
@@ -15,12 +15,24 @@ keywords: "\"Thumbnail Design Tips,Captivating IGTV Images,Professional Image Ma
 thumbnail: https://thmb.techidaily.com/3fc4ce39cf32e051d437369f1ad4829a21ac17b8d3ad76e322c0705c64d5daa2.png
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Professional Thumbnails for Engaging IGTV Posts
 
 # How to Create and Change an IGTV Cover Photo (Thumbnail)?
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Shanoon Cox
 
  Mar 27, 2024• Proven solutions
@@ -31,6 +43,12 @@ There are so many different things you need to pay attention to when sharing new
 * Part 2: How to Create a Cover Photo for Your IGTV Channel?
 * Part 3: Bonus! Edit Your IGTV Video with Filmora
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: Dimensions and Specifications for Cover Photos on IGTV
 
 IGTV is centered around the idea that people hold their phones vertically while watching videos, and for that reason, all videos on this platform are in the **9:16 aspect ratio**. Hence the cover photos you can add to your IGTV videos have to be **vertically oriented** as well, and if you would like to prevent IGTV from cropping your cover photo, you need to make sure that the picture matches the platform’s specifications. If you follow these specifications the cover photos for your IGTV videos are going to look equally good inside the IGTV app, the Instagram.com website, Instagram app search grid or Instagram app search feed.
@@ -43,6 +61,12 @@ The images you use as cover photos for your videos will be displayed in differen
 
 ![IGTV Cover Photo Safe Zone ](https://images.wondershare.com/filmora/article-images/igtv-cover-photo-dimensions.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 While creating a cover photo for an IGTV video you need to keep in mind that different graphics and text overlays are going to be displayed over the picture once you upload it to your channel. During the process of uploading IGTV video’s cover photo, you will be able to add text to it, but the **Title Safe Area** suggests where you can place the text without the risk of it being cropped while being viewed from different devices won’t be shown. So, make sure that all text you add to your IGTV video cover photo is **placed in the central area of the image** in order for it to be clearly visible on all devices.
 
 ## Part 2: How to Create a Cover Photo for Your IGTV Channel?
@@ -54,10 +78,10 @@ Adding a cover photo to your IGTV video is easy since you just have **to upload 
 Learn more details about [How to edit IGTV videos with best app on mobile](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2030395/7443" target="_top" id="2030395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2030395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Part 3: Bonus! Edit Your IGTV Video with Filmora
 
@@ -68,10 +92,16 @@ Filmora is a video editing software for people at different levels. Should you b
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 **Conclusion**
 
@@ -79,18 +109,6 @@ A small and seemingly insignificant detail like a cover photo of an IGTV video c
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.

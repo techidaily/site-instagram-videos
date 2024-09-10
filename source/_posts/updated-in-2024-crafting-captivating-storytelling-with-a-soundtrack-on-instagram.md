@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Crafting Captivating Storytelling with a Soundtrack on Instagram"
-date: 2024-09-04T13:23:45.010Z
-updated: 2024-09-05T13:23:45.010Z
+date: 2024-09-09T20:22:02.052Z
+updated: 2024-09-10T20:22:02.052Z
 tags:
   - ai video
   - ai instagram
@@ -15,6 +15,12 @@ keywords: "\"Stellar Storytelling,Music-Driven Tales,Visual Narratives,Audiobook
 thumbnail: https://thmb.techidaily.com/286866a306a63ee3881a3e82bbbdfd6a5621a0735c9f349a630ef1e39c65837d.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2121331/18498" target="_top" id="2121331">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121331" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121331/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Crafting Captivating Storytelling with a Soundtrack on Instagram
 
 # How to Add Music to Instagram Story?
@@ -36,6 +42,12 @@ You may have stunning pictures to post on stories, but your audience may not get
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: How to Add Music to Instagram Stories with Music Stickers?
 
 Multiple formats have been released since the launch of Instagram music stories but adding a music sticker is one of the simplest. In this section, we will explore how to do that and how you can make your stories a lot more entertaining for the viewers by adding music with the sticker.
@@ -50,6 +62,12 @@ After you have added a filter or edited your story, **click on the sticker icon*
 
 ![Instagram Music  Sticker](https://images.wondershare.com/filmora/article-images/instagram-music-sticker.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120861/26400?prodsku=Saturn" target="_top" id="2120861">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120861" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120861/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 3: Add music**
 
 After you **click on the music sticker**, you will be presented with many song suggestions. You can use a search tab to find your favorite song or artist.
@@ -58,6 +76,12 @@ After you **click on the music sticker**, you will be presented with many song s
 
 ![Share Music with Instagram   Sticker](https://images.wondershare.com/filmora/article-images/share-music-with-sticker-instagram.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123468/16836" target="_top" id="2123468">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123468" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123468/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### How to Edit Music Stickers?
 
 While adding music to Instagram stories via sticker, you can edit them in any way you want. While editing, you cannot only adjust the length of the clip, the color of the music sticker, size and type, and even the font lyrics as well.
@@ -70,12 +94,6 @@ You can tap on the music sticker to change the icon. You can also switch to the 
 
 You can also press the color wheel at the top corner of the screen to adjust the color of music stickers and the lyrics as well.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How to Add Lyrics to Stories through Instagram Music?
 
 Some songs have options to play music with lyrics to the story. Here is how you can add lyrics.
@@ -94,15 +112,21 @@ Before you post a story or send it to your close friends, you can enlarge or min
 
 ![Add Lyrics to Instagram Music](https://images.wondershare.com/filmora/article-images/add-lyrics-to-instagram-music.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: How to Add Music to Instagram without Music Stickers?
 
 Instagram music works in most cases, but it may be useless if you do not find music of your choice. Sometimes, you want to add a specific song to go with the video's vibe or a photo. In that case, you can upload music using other methods as well. Here, we will share four ways to put music to Instagram stories without stickers.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### **Method 1: Add music** **to Instagram through Spotify Music**
 
@@ -120,15 +144,21 @@ When you click on the three dots, you will be presented with a few options; clic
 
 ![Share Spotify Music to Instagram Story](https://images.wondershare.com/filmora/article-images/share-spotify-music-to-instagram-stories.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 3: Post**
 
 When you **click on the Instagram stories option**, the cover art will automatically upload to your stories. You can add a filter or change its placement before posting.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Method 2: Upload music on Instagram stories through SoundCloud
 
@@ -144,16 +174,16 @@ When you **select the ellipsis sign,** you will see a few options and an Instagr
 
 ![Share SoundCloud Music to Instagram Story](https://images.wondershare.com/filmora/article-images/share-soundcloud-music-instagram.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 3: Post**
 
 The song will be shared to the stories, **make changes you want, and post**.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Method 3: Share Music to Instagram through Apple Music
 
 Apple Music is one of the best music apps which many people use to listen to their favorite songs. It is an iOS app through which you can also post music on Instagram stories. Let's see how to post music through Apple Music on Instagram stories.
@@ -197,10 +227,16 @@ Once selected, you can edit and customize that video or photo as per your choice
 ![Add Music to Filmora](https://images.wondershare.com/filmora/article-images/add-music-to-video-filmorago.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1938141">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 **Step 4: Share the** **Video** **with Music to Instagram**
 
@@ -208,12 +244,6 @@ Finally, you can share your edited Instagram Story Video to your Instagram accou
 
 ![Share video with Music to Ins](https://images.wondershare.com/filmora/article-images/share-video-with-music-to-instagram.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2030370/7443" target="_top" id="2030370">
-  <img src="//a.impactradius-go.com/display-ad/7443-2030370" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030370/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Frequently Asked Questions About Instagram Music
 
 1. **Why can't I add music to my Instagram Story?**
@@ -230,18 +260,6 @@ If you wish to add music to your Instagram stories, there are many ways to do it
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] SnapSizeSecrets  Perfecting Photo and Video Sizes in Instagram\""
-date: 2024-09-04T13:23:46.629Z
-updated: 2024-09-05T13:23:46.629Z
+date: 2024-09-09T20:22:03.672Z
+updated: 2024-09-10T20:22:03.672Z
 tags:
   - ai video
   - ai instagram
@@ -15,12 +15,24 @@ keywords: "InstaPhotoOptimize,ImageVideoResize,SnapImageTips,SnapSizerGuide,Perf
 thumbnail: https://thmb.techidaily.com/5b80927e68923eec1d1361008f6bde3827f135dcc6188baf767c77fe55f4ad9e.png
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## SnapSizeSecrets: Perfecting Photo and Video Sizes in Instagram
 
 # Latest Instagram Photo and Video Size Checklist
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Shanoon Cox
 
  Mar 27, 2024• Proven solutions
@@ -29,6 +41,12 @@ Taking photos with iPhones and Android Smartphones and posting them to Instagram
 
 Troubles begin when you want to upload photos and videos that weren't captured with a Smartphone to Instagram. In most cases, the photos and videos produced by DSLR cameras and other semi-professional and professional equipment are much larger than the sizes supported by Instagram. That is the reason why we created this guide that will help you post visual content that is perfectly adjusted to Instagram in 2021.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Types of Files Accepted by Instagram
 
 The first thing you need to pay attention to when uploading images and videos to Instagram is that the files you are uploading are in one of the photo or video formats that Instagram supports.
@@ -45,6 +63,12 @@ Duration of Videos on Instagram
 
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Best Image Sizes for Instagram Posts
 
 A couple of years ago, Instagram has finally allowed its users to upload images that aren't square shaped. In 2021, you can also upload horizontally and vertically oriented photos in addition to the standard square shape. However, in order to create a perfect Instagram post, and prevent the platform from cropping your photos you need to use the Instagram image sizes featured below.
@@ -53,6 +77,12 @@ A couple of years ago, Instagram has finally allowed its users to upload images 
 
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
 
 * **Square**
@@ -77,6 +107,18 @@ The profile pictures on Instagram are tiny, and the optimum size for them is 160
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -125,9 +167,3 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
-  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

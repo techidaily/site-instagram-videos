@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Balancing Focus  Zooming Tips for Clear Instagram Stories\""
-date: 2024-09-04T13:23:43.628Z
-updated: 2024-09-05T13:23:43.628Z
+date: 2024-09-09T20:22:00.685Z
+updated: 2024-09-10T20:22:00.685Z
 tags:
   - ai video
   - ai instagram
@@ -21,6 +21,12 @@ thumbnail: https://thmb.techidaily.com/1ddec9a0b5a6c3e1804c33a43db9c91ffd9d92f92
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Shanoon Cox
 
  Mar 27, 2024• Proven solutions
@@ -34,6 +40,12 @@ Here, in this article, we are going to introduce various methods of **zooming in
 * [Part 1: 4 Ways to Zoom in/out on Instagram Stories](#part1)
 * [Part 2: Edit Instagram Videos with Excellent Video Editor](#part2)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to zoom in/out in Instagram Stories
 
 #### 1\. Normal Mode
@@ -42,6 +54,12 @@ You can zoom in/out while clicking a picture for Instagram Stories, by pinching 
 
 ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-normal-mode.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Image resource: later.com
 
 **Note:** Make sure to hold your finger on the record button while zooming in/out, else the recording will stop.
@@ -50,6 +68,18 @@ Image resource: later.com
 
 ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-rewind-mode.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983545">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Image resource: techjunkie.com
 
 We know a video in 'Rewind' mode is pretty cute and funny, as the chain of events occurs in the reverse order. So, to zoom in/out while shooting one such video in 'Rewind' mode, you need to press the record button and then swipe up/down your finger, just like in the 'Normal' mode. Here also, if you remove your finger, the recording will stop. Master how to zoom in Instagram Stories, while recording in 'Rewind' mode.
@@ -66,6 +96,12 @@ Shooting a video in 'Boomerang' is exciting while creating Instagram Stories. We
 
 ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-hands-free-mode.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Image resource: later.com
 
 There are two-options while you want to zoom in/out using the 'Hands-Free' mode. You can pinch the screen and zoom in or out prior to recording the video. Now, tap the record button, the video will be automatically recorded after a few seconds. Remember! You are using the 'Hands-Free' mode, so no holding the record button. The second method is similar to the previous methods of zooming in/out videos for Instagram Stories. Tap the record button and wait till the point where you want to zoom in/out. At that very point, hold the record button and slide your finger up/down to zoom in/out the video. This is how to zoom in/out Instagram Stories using 'Hands-Free' mode.
@@ -79,10 +115,10 @@ Editing Instagram videos is not difficult at all as long as you installed a powe
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Final Verdict
 
@@ -101,18 +137,6 @@ You May also like
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983473">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.

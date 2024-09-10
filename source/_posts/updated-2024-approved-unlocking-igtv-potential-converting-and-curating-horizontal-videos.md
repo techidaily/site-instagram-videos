@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Unlocking IGTV Potential  Converting and Curating Horizontal Videos\""
-date: 2024-09-04T13:23:47.118Z
-updated: 2024-09-05T13:23:47.118Z
+date: 2024-09-09T20:22:04.137Z
+updated: 2024-09-10T20:22:04.137Z
 tags:
   - ai video
   - ai instagram
@@ -15,6 +15,12 @@ keywords: "IGTV Power Unlocked,IGTV Video Engagement,Curate IGTV Content,Convert
 thumbnail: https://thmb.techidaily.com/5b1555b7146633872fd56d30125d7101353d43d4ee7f4ba1a4a67766b9a7e657.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Unlocking IGTV Potential: Converting and Curating Horizontal Videos
 
 # How to Upload Horizontal Videos to IGTV
@@ -30,6 +36,18 @@ Vertically oriented videos were never a part of a filmmaker’s dictionary, befo
 * [IGTV Video Specs You Should Know Before Uploading a Video to Your Channel](#part1)
 * [How to Upload a Landscape Video to IGTV from a Mac or a PC computer?](#part2)
 
+<!-- affiliate ads begin -->
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## IGTV Video Specs You Should Know Before Uploading a Video to Your Channel
 
 Instagram is famous for severely limiting the options its users have at their disposal because it only allowed them to post square-shaped photos for years. IGTV seems to be following the same pattern, not only because you can’t upload horizontally oriented videos, but also because your videos must be in **MP4 format**. Yes, that’s right, the platform currently doesn’t support any other video file format.
@@ -40,24 +58,18 @@ Even though you can now share videos that last up to ten minutes or an entire ho
 [What is IGTV and How to Use It: Everything You Need to Know>>](https://tools.techidaily.com/wondershare/filmora/download/)
 [How to Download/Save Instagram Photos/Videos on iPhone>>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115913/19272" target="_top" id="2115913">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115913" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115913/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Save Instagram photos/videos on iPhone
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Upload a Landscape Video to IGTV from a Mac or a PC computer?
 
 If you already have an Instagram account, you can upload your videos to IGTV directly from your computer. All you have to do is head over to **Instagram.com** and then click on the **IGTV icon** on your profile page. This means that you can use Mac and PC-based video editing software products to edit your videos before you share them on IGTV.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Using Filmora Video Editor to Edit IGTV Videos
 
 If you decide to edit the videos you want to upload to IGTV on a Mac or a PC computer, then we suggest using the Filmora video editor, because it offers all the tools you’re going to need to create a landscape video you can share on your IGTV channel.
@@ -67,10 +79,10 @@ Check out our video guide about how to edit videos for Instagram.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2121335/18498" target="_top" id="2121335">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121335" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121335/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Here is the process in word format in case you don't have time to check the video.
 
@@ -87,10 +99,10 @@ Optionally, you can **take a snapshot of your video** by clicking on the **Photo
 Once your video is exported from Filmora, you should go to Instagram.com, click on the IGTV icon on your profile page and upload the horizontal video to your IGTV channel.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118310/7443" target="_top" id="2118310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118310" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118310/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Using the Instagram App to Upload Horizontal Videos to IGTV from Smartphones
 
@@ -102,12 +114,6 @@ After you’ve selected the video you’ll be able to see **two arrows on the sc
 
 Tap on the **Save icon** to confirm the changes and proceed to upload the video to your IGTV channel.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Creating a Horizontal Video from a Mobile Device with GoPro Splice
 
 iPhone users can easily create landscape videos for their IGTV channels with GoPro’s [Splice](https://itunes.apple.com/us/app/splice-video-editor-maker/id409838725?mt=8) app. You can **download the app for free from the App Store** and you won’t have to make any in-app purchases after you install Splice on your device.
@@ -123,16 +129,10 @@ None of the options for creating vertical videos for IGTV are perfect because ea
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Shanoon Cox
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] The Essentials of Creating and Curating Instagram Highlights"
-date: 2024-09-04T13:23:47.431Z
-updated: 2024-09-05T13:23:47.431Z
+date: 2024-09-09T20:22:04.438Z
+updated: 2024-09-10T20:22:04.438Z
 tags:
   - ai video
   - ai instagram
@@ -15,6 +15,12 @@ keywords: "Insta Highlight Basics,Instagram Curate Guide,Elevated Highlight Cont
 thumbnail: https://thmb.techidaily.com/4d762caa04f98755e083fa6f19084871af3024b44e5497cff1919865c9f50ec3.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The Essentials of Creating and Curating Instagram Highlights
 
 # What is Instagram Story Highlight?
@@ -37,6 +43,12 @@ Story Highlights allows you to display all sides of your personality, and you ca
 
 An amazing feature of Instagram highlights is that you can group your stories into sections and create them as folder sections (i.e highlights) on your profile. Once you post a story, you can save it in a Highlight (which is like a folder) and that will automatically be featured on your profile permanently until you decide to delete it or archive it. With this tool, you can design your profile in a unique way that best expresses you.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115949/19272" target="_top" id="2115949">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115949" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115949/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: How to Create Instagram Highlights from Stories Archive?
 
 As mentioned above, Highlights are created through your Stories. You have two options for creating a Highlight. The first is that you either create a Highlight from a current Story or your Stories Archive.
@@ -49,6 +61,12 @@ Your Stories Archive is a feature that when enabled, ensures your Stories are au
 
 ![ Instagram Highlight Archive](https://images.wondershare.com/filmora/article-images/save-story-to-archive-instagram.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123469/16836" target="_top" id="2123469">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123469" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123469/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 If you choose to create Highlights from your Stories archive, this is how you go about it:
 
 1. Go to your profile, click on the circle (the circular icon) with a **plus** **sign**, located directly below your **bio** and **Edit** **profile** icon.
@@ -68,18 +86,6 @@ Another way to create a highlight from archived stories is by;
 
 Above are the ways to create highlights on Instagram from Archive. They are pretty easy as long as you follow instructions correctly.
 
-<!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: How to Add New Stories to a Highlight?
 
 Some like to categorize their highlights by certain qualities. It can be that you want one highlight folder to contain only Stories that are related to everything shoes. Your second highlight might be customized for only images/videos of food, and your third highlight may be for only trips and vacations. However, how you choose to customize the highlights on your profile is up to you. If for instance, you decide you want to add a new story to a highlight, this is how it is done:
@@ -100,10 +106,10 @@ You can choose to create a highlight from your current Story, all you need to do
 * Click on the **plus** **sign** if you want to create a new highlight, customize the name of the highlight and click
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2024329/7443" target="_top" id="2024329">
-  <img src="//a.impactradius-go.com/display-ad/7443-2024329" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024329/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Part 4: How to Delete Instagram Highlights?
 
@@ -120,10 +126,10 @@ If for instance, you decide that you want to remove some stories from a highligh
 * Click **Remove highlight,** then you are done!
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## FAQs About Instagram Highlights
 
@@ -156,10 +162,10 @@ attire need to be easy to find. You create a Highlight that you refer them to so
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2123481/16836" target="_top" id="2123481">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123481" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123481/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Shanoon Cox
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Crafting Stellar Highlight Photos on Instagram"
-date: 2024-09-04T13:23:47.624Z
-updated: 2024-09-05T13:23:47.624Z
+date: 2024-09-09T20:22:04.616Z
+updated: 2024-09-10T20:22:04.616Z
 tags:
   - ai video
   - ai instagram
@@ -46,6 +46,12 @@ Insta highlight covers are an excellent way to save and categorize your stories.
 
 ![insta highlight cover photo](https://images.wondershare.com/filmora/article-images/2021/insta-highlight-cover-photo.png)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: 10 Eye-Catching Cover Photos For IG Highlights
 
 Looking for some inspiration to create an attractive cover photo for Instagram highlights? Listed below are some great examples for businesses.
@@ -56,6 +62,12 @@ The New York Times takes Instagram Stories literally. They populate their highli
 
 ![ig highlight cover photo nytimes](https://images.wondershare.com/filmora/article-images/2021/ig-highlight-cover-photo-nytimes.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### 2.Toyota
 
 The Instagram Highlights of Toyota collate information about their cars as well as the primary in-car features. They have a simple and clean design for their Highlight icons. This way, Toyota has ensured that they can grab the attention of people who missed their IG story the first time it was posted.
@@ -74,18 +86,36 @@ The Kitchn’s all-things-food account has cooking how-tos and recipes, along wi
 
 ![insta highlight cover kitchn](https://images.wondershare.com/filmora/article-images/2021/insta-highlight-cover-kitchn.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### 5.Glossier Inc
 
 Glossier Inc. is a people-powered beauty ecosystem. The brand uses pink color only for their profile image (not a logo). For the Highlights Covers, they use only white images. This makes their Highlights very minimalistic and very different than other accounts where product images or icons are generally used.
 
 ![insta highlight cover glossier](https://images.wondershare.com/filmora/article-images/2021/insta-highlight-cover-glossier.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### 6.Fashion Nova
 
 Fashion Nova, an international fashion brand, relies heavily on its ability to ship worldwide quickly. So, it’s not surprising that one of their Highlights is dedicated just to shipping. It seems as if some of their customers had certain shipping issues in the past. So, their Highlight uses rave reviews for showing that the issues have been solved, while simultaneously communicating to the new customers that they have lightning-fast shipping.
 
 ![insta highlight cover fashion](https://images.wondershare.com/filmora/article-images/2021/insta-highlight-cover-fashion.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### 7.Red Bull
 
 Earlier, Red Bull’s IG Highlights used to be fairly conservative like projects, videos, events, etc. But, this has changed. Now their athletes have their own dedicated highlight. All one gets is a name, face, and emoji. Very intriguing, isn’t it? This is a great inspiration.
@@ -98,12 +128,24 @@ In their Instagram Highlights, Tide Bank uses colors that are consistent with th
 
 ![insta highlight cover tide](https://images.wondershare.com/filmora/article-images/2021/insta-highlight-cover-tide.png)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123465/16836" target="_top" id="2123465">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123465" border="0" alt="https://techidaily.com" width="80" height="31"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123465/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### 9.Perfect Bar
 
 Perfect Bar – the makers of non-GMO and organic protein bars – is another brand you can take inspiration from for creating great Insta highlight cover images. Their account has an Insta Highlight called ‘In a Nutshell’ where they answer the commonly asked questions of their customers. Every In a Nutshell session has a theme and even the older FAQ sessions are included in their Highlights.
 
 ![insta highlight cover perfect bar](https://images.wondershare.com/filmora/article-images/2021/insta-highlight-cover-perfect-bar.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### 10.Anthropologie
 
 Anthropologie is one brand that does many things right. So, it’s no surprise that they have nailed their IG Story Highlights, too. What sets them apart from most other businesses are their branded Highlights, such as #AnthroHome and MyAnthro.
@@ -113,10 +155,10 @@ With the #AnthroHome Highlight, they do a few things differently. Occasionally, 
 ![insta highlight cover anthropologie](https://images.wondershare.com/filmora/article-images/2021/insta-highlight-cover-anthropologie.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Part 3: How to Make Your Own Insta Highlight Cover?
 
@@ -208,10 +250,16 @@ Now you can change your cover image. Also, you can resize your cover image. For 
 You’re all done!
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Part 4: Tips for Making Your Brand Look Polished
 
@@ -229,30 +277,12 @@ Beautiful aesthetics may go a long way, but your highlight cover image must act 
 
 Once you have landed on your selected cover style, it’s essential to keep your covers cohesive. Therefore, if you have decided to utilize icons for your covers, ensure every highlight cover uses an icon or at least looks great alongside an icon. Keep in mind that a mixture of jarring covers will confuse all your aesthetics and could make your brand seem less professional on Instagram.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Conclusion
 
 Think about your brand and the Instagram Highlights Covers that will best represent your business, using the above examples as an inspiration. Putting some time and effort into creating beautiful highlight covers can help you boost brand awareness, attract new followers, and drive more views to your Highlights. Time to elevate your brand with the best Insta highlight cover photo!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983545">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.

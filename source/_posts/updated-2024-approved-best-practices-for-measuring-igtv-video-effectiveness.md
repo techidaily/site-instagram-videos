@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Best Practices for Measuring IGTV Video Effectiveness\""
-date: 2024-09-04T13:23:44.389Z
-updated: 2024-09-05T13:23:44.389Z
+date: 2024-09-09T20:22:01.419Z
+updated: 2024-09-10T20:22:01.419Z
 tags:
   - ai video
   - ai instagram
@@ -15,18 +15,36 @@ keywords: "IGTV Analytics,Video Engagement Tracking,IGTV Impact Study,Content Re
 thumbnail: https://www.lifewire.com/thmb/JH9ABBpQILZF0nd_xtnHpy6yUXI=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/facebook_dark_mode_fix_nico_de_pasquale_photography-6f02eb383e884f748870de4aae05d676.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Best Practices for Measuring IGTV Video Effectiveness
 
 # How to Measure the Performance of IGTV Videos?
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123473/16836" target="_top" id="2123473">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123473" border="0" alt="https://techidaily.com" width="254" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123473/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Shanoon Cox
 
  Mar 27, 2024• Proven solutions
 
  Social media have entirely changed the way we communicate, either privately or professionally. Facebook, YouTube or Instagram TV all offer effective ways to advertise the products a company offers and ultimately boost its revenue streams. However, your posts on IGTV or any other social media platform may not be getting the kind of attention you were hoping for. If that’s the case, then you are at the right place because in this article we are going to show you how you can measure the performance of the videos you share on your IGTV channel.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Measure the Performance of IGTV Videos?
 
  It has been less than a year since IGTV was launched, and it is already becoming obvious that this video sharing platform is here to stay. Such state of affairs presents a huge opportunity for anyone who wants to promote their products or services, as well as for video content creators who are looking for a new way to monetize their content.
@@ -48,16 +66,16 @@ thumbnail: https://www.lifewire.com/thmb/JH9ABBpQILZF0nd_xtnHpy6yUXI=/540x405/fi
 **Engagement Rate –** This option is only available if you’re using an Instagram analytics app, such as [Delmondo](https://delmondo.co/instagram-analytics/) that enables you to measure the engagement rate on each of your IGTV videos.
 
 <!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## How and Where to Check the Performance of IGTV Videos?
 
@@ -65,12 +83,6 @@ thumbnail: https://www.lifewire.com/thmb/JH9ABBpQILZF0nd_xtnHpy6yUXI=/540x405/fi
 
  The **Audience Retention Graph** is located directly below these statistics, and you can use it at any moment to see **the percentage of viewers** who watched the entire video. These metrics can help you discover the type of content that can attract a large audience on IGTV. It is worth noting that these metrics are only available for IGTV videos, so if you’re also using Instagram and Instagram Stories you might want to consider installing an Instagram analytics app that enables you to conduct a more thorough analysis of the metrics the content you’re sharing is generating.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Promote IGTV Videos and Get More Views?
 
  Focusing on a single social network during an online marketing campaign isn’t necessarily a good choice, since sharing a video on multiple platforms can improve its visibility significantly. That’s why you should share your IGTV videos on Twitter, Facebook and all other popular online destinations that grant you access to a large audience. What’s more, you can also **create a blog post that includes additional information about the topic** a video is covering. If you scripted your IGTV video, then you can simply copy **that script into a blog post and then just embed that IGTV video into the blog post**. Alternatively, you can write a short description of the video that helps potential viewers get a better idea of what the video is about.
@@ -78,16 +90,16 @@ thumbnail: https://www.lifewire.com/thmb/JH9ABBpQILZF0nd_xtnHpy6yUXI=/540x405/fi
  Each time you upload a new video to your IGTV channel you can use Instagram stories and Instagram live to promote your new post. The **IGTV’s algorithm is relatively young and it still has a lot of room for improvement**, which is why you have to use all means available to you that allow you to increase the number of views and likes your content is getting.
 
 <!-- affiliate ads begin -->
-<span id="1531879">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Can You See Who Who Watched Your IGTV Videos?
 
@@ -100,10 +112,16 @@ thumbnail: https://www.lifewire.com/thmb/JH9ABBpQILZF0nd_xtnHpy6yUXI=/540x405/fi
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Shanoon Cox
 

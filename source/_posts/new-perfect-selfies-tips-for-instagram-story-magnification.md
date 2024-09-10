@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Perfect Selfies  Tips for Instagram Story Magnification\""
-date: 2024-09-04T13:23:46.704Z
-updated: 2024-09-05T13:23:46.704Z
+date: 2024-09-09T20:22:03.744Z
+updated: 2024-09-10T20:22:03.744Z
 tags:
   - ai video
   - ai instagram
@@ -15,6 +15,12 @@ keywords: "Perfect Photo Snap,Insta Stories Zoom,Enhance Selfie Views,Magnify Pi
 thumbnail: https://thmb.techidaily.com/9420d8c67dc649498f45244e433ec706e66933c2bf2f2b4b3c5585601cba7b98.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Perfect Selfies: Tips for Instagram Story Magnification
 
 # How to Zoom in/Out in Instagram Stories
@@ -42,6 +48,12 @@ You can zoom in/out while clicking a picture for Instagram Stories, by pinching 
 
 ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-normal-mode.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Image resource: later.com
 
 **Note:** Make sure to hold your finger on the record button while zooming in/out, else the recording will stop.
@@ -50,6 +62,12 @@ Image resource: later.com
 
 ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-rewind-mode.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Image resource: techjunkie.com
 
 We know a video in 'Rewind' mode is pretty cute and funny, as the chain of events occurs in the reverse order. So, to zoom in/out while shooting one such video in 'Rewind' mode, you need to press the record button and then swipe up/down your finger, just like in the 'Normal' mode. Here also, if you remove your finger, the recording will stop. Master how to zoom in Instagram Stories, while recording in 'Rewind' mode.
@@ -58,6 +76,12 @@ We know a video in 'Rewind' mode is pretty cute and funny, as the chain of event
 
 ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-superzoom-mode.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Image resource: metro.com
 
 Shooting a video in 'Boomerang' is exciting while creating Instagram Stories. We will explain to you how to zoom in/out Instagram Stories in 'Superzoom' mode in Boomerang. Press your record button longer and slide your finger up/down to zoom in/out, while recording the video for your Insta Stories. As long as you hold the button, the recording continues until it reaches the maximum duration.
@@ -79,10 +103,10 @@ Editing Instagram videos is not difficult at all as long as you installed a powe
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Final Verdict
 
@@ -102,10 +126,10 @@ You May also like
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Shanoon Cox
 

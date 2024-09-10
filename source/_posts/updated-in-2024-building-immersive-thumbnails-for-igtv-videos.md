@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Building Immersive Thumbnails for IGTV Videos"
-date: 2024-09-04T13:23:47.721Z
-updated: 2024-09-05T13:23:47.721Z
+date: 2024-09-09T20:22:04.718Z
+updated: 2024-09-10T20:22:04.718Z
 tags:
   - ai video
   - ai instagram
@@ -15,12 +15,30 @@ keywords: "\"IGTV Immersive Thumbnails,Video Thumbnail Design,Engaging IG Thumbn
 thumbnail: https://thmb.techidaily.com/ed24203618acc19422dc1e656e53cdd94b542178679b34754816329310d98db4.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Building Immersive Thumbnails for IGTV Videos
 
 # How to Create and Change an IGTV Cover Photo (Thumbnail)?
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Shanoon Cox
 
  Mar 27, 2024• Proven solutions
@@ -31,6 +49,12 @@ There are so many different things you need to pay attention to when sharing new
 * Part 2: How to Create a Cover Photo for Your IGTV Channel?
 * Part 3: Bonus! Edit Your IGTV Video with Filmora
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115930/19272" target="_top" id="2115930">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115930" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115930/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: Dimensions and Specifications for Cover Photos on IGTV
 
 IGTV is centered around the idea that people hold their phones vertically while watching videos, and for that reason, all videos on this platform are in the **9:16 aspect ratio**. Hence the cover photos you can add to your IGTV videos have to be **vertically oriented** as well, and if you would like to prevent IGTV from cropping your cover photo, you need to make sure that the picture matches the platform’s specifications. If you follow these specifications the cover photos for your IGTV videos are going to look equally good inside the IGTV app, the Instagram.com website, Instagram app search grid or Instagram app search feed.
@@ -43,6 +67,12 @@ The images you use as cover photos for your videos will be displayed in differen
 
 ![IGTV Cover Photo Safe Zone ](https://images.wondershare.com/filmora/article-images/igtv-cover-photo-dimensions.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120863/26400?prodsku=Mercury" target="_top" id="2120863">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120863/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 While creating a cover photo for an IGTV video you need to keep in mind that different graphics and text overlays are going to be displayed over the picture once you upload it to your channel. During the process of uploading IGTV video’s cover photo, you will be able to add text to it, but the **Title Safe Area** suggests where you can place the text without the risk of it being cropped while being viewed from different devices won’t be shown. So, make sure that all text you add to your IGTV video cover photo is **placed in the central area of the image** in order for it to be clearly visible on all devices.
 
 ## Part 2: How to Create a Cover Photo for Your IGTV Channel?
@@ -53,12 +83,6 @@ Adding a cover photo to your IGTV video is easy since you just have **to upload 
 
 Learn more details about [How to edit IGTV videos with best app on mobile](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: Bonus! Edit Your IGTV Video with Filmora
 
 Now that you have learned about how to create an attractive IGTV thumbnail, don't let it get wasted! Create a video that is as attractive as your thumbnail with Filmora.
@@ -68,10 +92,16 @@ Filmora is a video editing software for people at different levels. Should you b
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
-  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977020">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 **Conclusion**
 
@@ -80,10 +110,10 @@ A small and seemingly insignificant detail like a cover photo of an IGTV video c
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120862/26400?prodsku=Saturn" target="_top" id="2120862">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120862" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120862/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Shanoon Cox
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Fine-Tune Your IGTV Video's Appeal  A Tale of Titles & Descriptions for 2024\""
-date: 2024-09-04T13:23:44.506Z
-updated: 2024-09-05T13:23:44.506Z
+date: 2024-09-09T20:22:01.544Z
+updated: 2024-09-10T20:22:01.544Z
 tags:
   - ai video
   - ai instagram
@@ -29,20 +29,56 @@ A **title of a video and its description** can often be the reason why someone w
 
 You may also like: [8 Best Popular Instagram After Effects Templates](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Add Titles and Descriptions to Videos You’re Uploading to IGTV?
 
 Regardless of the device, you’re using to upload a video to your IGTV account, you will be asked to give a title to the video and to add a description. The video’s title **can’t have more than 75 characters**, while the **description can’t exceed the 2200-character limit** and these constrain are the same if you are **[uploading a video to IGTV from web, Instagram or IGTV app](https://tools.techidaily.com/wondershare/filmora/download/)**.
 
 ![IGTV Edit Title Description](https://images.wondershare.com/filmora/article-images/edit-igtv-title-description.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1912746">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **After granting the IGTV access to the videos stored on your phone’s camera roll** you will be able to **add a cover photo, choose a title or write a description of the video**. You don’t have to be a social media expert in order to know that **the title should tell your audience what the video is about**. The **description of an IGTV video can be a mini blog post** that tells the story of a video or conveys important messages related to the topic of a video. Furthermore, you can add **clickable mentions of other IGTV users** or up to **30 searchable hashtags** to improve the visibility of your video. You can also **include links to your podcast, Facebook page, YouTube channel or your website** so that the viewers can find out more about the video’s topic. When you’re done, just click or tap on the **Post button** and the video you shared will contain all the information you added to it.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Edit IGTV Video Descriptions and Titles After You Upload Them?
 
 Upon posting the video you can see the title by simply viewing the video in the full-screen mode. Just **tap on the center of the video** to start viewing it in full screen and **the title will be displayed in the left corner of the video**. Tap on the **drop-down arrow** next to the video’s title if you want to view the video’s description.
 
 ![IGTV Edit Title Description](https://images.wondershare.com/filmora/article-images/change-igtv-video-title-description.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Editing titles, however, is only possible from a **web browser**, because the IGTV and Instagram apps still don’t offer this option. Go to your IGTV channel and **click on a video** you’d like to edit and then click on **the three-dot icon**. Select **the Edit Video option** from the menu and proceed to edit the video’s title by either clicking on the **Change Title or the Change Description** option. Don’t forget to click on the **Save button** to confirm the adjustments you’ve just made, and the text displayed in the **Title and Description boxes** will be automatically updated.
 
 **Conclusion**
@@ -53,8 +89,26 @@ Besides add the Titles and Description for the IGTV videos when uploading, you c
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982462">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -112,15 +166,3 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
-<!-- affiliate ads begin -->
-<span id="1982462">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

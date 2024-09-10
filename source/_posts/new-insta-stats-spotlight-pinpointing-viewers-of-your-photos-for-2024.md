@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Insta Stats Spotlight  Pinpointing Viewers of Your Photos for 2024\""
-date: 2024-09-04T13:23:47.243Z
-updated: 2024-09-05T13:23:47.243Z
+date: 2024-09-09T20:22:04.258Z
+updated: 2024-09-10T20:22:04.258Z
 tags:
   - ai video
   - ai instagram
@@ -27,6 +27,12 @@ thumbnail: https://thmb.techidaily.com/946eb20cab96390f79aadddebd59f08cdd8697ebf
 
 ![instagram-poster](https://images.wondershare.com/filmora/article-images/instagram-poster.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123467/16836" target="_top" id="2123467">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123467" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123467/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Instagram is one of the most popular and widely used social media apps that is mostly used for sharing photos. Around 95 million images are uploaded on Instagram regularly. Apart from sharing photos, it is also used to share videos. If you love using Instagram, you might have wondered how to see who viewed your Instagram posts. It is one of the most popularly asked questions on the internet. Before we proceed to See who viewed your Instagram post, keep in mind that you can only see the number of times your post was viewed but not who viewed your post. You can only see who viewed your photo or video if you have placed it in your story.
 
 Unfortunately, you can't see who viewed your Instagram post. If you have uploaded a video or image directly into your feed, then there are only two stats that you can view, the number of views you have received and who liked your post. Instagram doesn't provide its user with access to this data. But the access to see who liked your posts is the same as who viewed them. Because all those who liked your post have also viewed it. But this only shows a limited number of people, and you will not be able to see who viewed and not liked your post.
@@ -47,10 +53,22 @@ Does it mean you will never know who viewed your post? Yes, you can. You can see
 
 ![how to check who view your instagram](https://images.wondershare.com/filmora/article-images/who-viewed-your-instagram-step1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115938/19272" target="_top" id="2115938">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115938" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115938/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 2:** When you tap on 'Your Story', a new window will open up showing you your image or video that you have uploaded. Now at the bottom left corner, you will number of people who have viewed your story, tap on it.
 
 ![methods to check who viewed your Instagram](https://images.wondershare.com/filmora/article-images/who-viewed-your-instagram-step2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115940/19272" target="_top" id="2115940">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115940" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115940/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 3:** Now you can see the number of people who viewed your story and all those people who have viewed your Instagram story.
 
 ![check who viewed your instagram](https://images.wondershare.com/filmora/article-images/who-viewed-your-instagram-step3.jpg)
@@ -70,20 +88,26 @@ Since this method doesn't show you who viewed your Instagram post, it gives your
 ![use Instagram Likes to check who viewed your Instagram](https://images.wondershare.com/filmora/article-images/viewed-your-instagram-using-likes-step2.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115912/19272" target="_top" id="2115912">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115912" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115912/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## How to see who viewed your Instagram post using third-party apps? Is it really possible?
 
 After knowing that Instagram doesn't provide the service to see who viewed your post, most users try to find alternative third-party apps that can help them achieve this task. You can easily find hundreds of apps that claim to show you who viewed your post as well as your profile. But don't be fooled by these apps. When Instagram itself is not providing this data to its users and hiding this data, no one can do that for you. All the apps that claim to show you who viewed your profile and illegitimate and not trustworthy. By downloading and installing these apps into your phone, you are risking your privacy and security. Facebook acquired Instagram in 2016 ensures that there is no other way of how to see who viewed your Instagram posts because both Facebook and Instagram are using the same policies and site. Facebook doesn't allow its user to access such data so does Instagram. There is no other way except the above two methods of how to see who viewed your Instagram post.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Edit Your Instagram Video using [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -97,18 +121,18 @@ A well-made video is a secret to getting more followers on your Instagram. That'
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Liza Brown
 
