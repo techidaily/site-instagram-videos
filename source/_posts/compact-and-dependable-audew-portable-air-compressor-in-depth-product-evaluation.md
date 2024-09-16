@@ -1,7 +1,7 @@
 ---
 title: Compact and Dependable Audew Portable Air Compressor - In-Depth Product Evaluation
-date: 2024-09-04T13:23:48.681Z
-updated: 2024-09-05T13:23:48.681Z
+date: 2024-09-09T02:59:44.110Z
+updated: 2024-09-15T20:00:59.948Z
 categories:
   - BestProducts
 description: This Article Describes Compact and Dependable Audew Portable Air Compressor - In-Depth Product Evaluation
@@ -63,12 +63,6 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design and Features: Maximum portability, but not maximum flexibility**
 
  The form factor of the Kensun Portable Tire Inflator is a case study in maximum portability. It weighs a mere 5 pounds, and the sturdy handle makes it easy to pick up and move around. Moreover, at 11.8 inches long, 4.3 inches wide and 6.7 inches tall, it’s quite compact. And it’s hard plastic casing means it can withstand some punishment and still deliver top performance.
@@ -91,30 +85,12 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
-  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: T-minus one minute**
 
  Once you’ve read the user manual, you’ll know how to use the Kensun portable tire inflator. Nevertheless, you’ll want to do some test runs before you take it on the road. During our testing phase, we timed how long it takes from getting out of the car to the pump inflating one of our tires. It took about one minute, which is good time if you’re on the side of the highway with an unexpected flat.
 
  Lifewire / Jeffrey Daniel Chadwick
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="864" height="1296" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Performance: Reliable, accurate, quick and loud**
 
  When we tested the tire inflator, we took it on a road trip that took us to the states of Nevada, Utah, Idaho, and Wyoming. Along the way, we stopped at rural rest areas and gas stations. In order to use them in the circumstances, they were designed for. Throughout it all, the Kensun Portable Tire Inflator never failed to work when we needed it.
@@ -136,21 +112,23 @@ Lifewire / Jeffrey Daniel Chadwick
  One of the most convenient things about this portable air pump is its auto-shutdown feature. This allows you to select the precise tire pressure you want before you start pumping. Once the tire is inflated to the desired pressure, it shuts down. This means that you don’t have to babysit the pump while it's going, and all but guarantees that you won’t over-inflate your tires.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Price: A decent buy considering its versatility**
 
  The Kensun Portable Tire Inflator has an MSRP of $80 on Amazon, which is a good price for what you get. It’s not nearly as affordable as some budget models we’ve seen, such as the Audew Portable Air Compressor Pump, which will only run you $40, but it gives you the convenience of not having to be tethered to your car to inflate something.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
+  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Kensun Portable Tire Inflator vs. Jaco Digital Tire Inflator**
 
  The Kensun Portable Tire Inflator is similar to the Jaco Digital Tire Inflator, they have similar cord and hose lengths, and can continually run for about half an hour. But the Kensun is more than twice the size of the Jaco, so it can deliver more power to fill your tires faster. Additionally, the Jaco lacks the ability to plug into an AC socket, so you can only use it in your car.
@@ -165,18 +143,6 @@ Lifewire / Jeffrey Daniel Chadwick
 
  The Kensun Portable Tire Inflator is a great choice to keep in your truck, garage, or wherever you keep your “just-in-case” supplies. It’s a device that is as necessary for drivers as jumper cables and an emergency flashlight. You can count on it to be reliable when you need it, and fill your tires quickly and accurately. Plus, the added benefit of being able to plug it into your wall can’t be overstated. It has its foibles, but in the grand scheme of things, they’re minor inconveniences.
 
-<!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  AC/DC Portable Air Pump Tire Inflator
@@ -193,8 +159,6 @@ Lifewire / Jeffrey Daniel Chadwick
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -204,48 +168,13 @@ Lifewire / Jeffrey Daniel Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-effortlessly-record-time-lapses-on-apple-devices/"><u>[New] 2024 Approved  Effortlessly Record Time-Lapses on Apple Devices</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-the-social-media-analysts-toolkit-making-sense-of-instagram-stats/"><u>[New] 2024 Approved  The Social Media Analyst's Toolkit  Making Sense of Instagram Stats</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-top-11-video-cameras-under-500-a-frugal-filmmakers-list/"><u>[New] 2024 Approved  Top 11 Video Cameras Under $500  A Frugal Filmmaker's List</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-unveiling-sources-instagram-pictures-inverse-search-guide/"><u>[New] 2024 Approved  Unveiling Sources  Instagram Pictures' Inverse Search Guide</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-capture-without-capsule-the-no-limit-story-saving-app/"><u>[New] Capture Without Capsule  The No-Limit Story Saving App</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-capturing-moments-logitech-webcam-filming-tutorials-for-2024/"><u>[New] Capturing Moments  Logitech Webcam Filming Tutorials for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-enhance-engagement-with-these-4-looping-video-techniques-for-2024/"><u>[New] Enhance Engagement with These 4 Looping Video Techniques for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-laugh-out-loud-with-cartoon-face-tricks-in-snapchat/"><u>[New] Laugh Out Loud with Cartoon Face Tricks in Snapchat</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-photo-finesse-leading-edits-for-social-media-savvy/"><u>[New] Photo Finesse  Leading Edits for Social Media Savvy</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-top-8-instagram-story-filters-for-2024/"><u>[New] Top 8 Instagram Story Filters for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-instagram-images-deciphered-your-source-hunting-companion/"><u>[Updated] 2024 Approved  Instagram Images Deciphered  Your Source Hunting Companion</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-leveraging-hashtags-and-collaborations-for-1k-insta-following/"><u>[Updated] 2024 Approved  Leveraging Hashtags & Collaborations for 1K Insta Following</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-ascending-the-rankings-iphones-top-selfie-accessories/"><u>[Updated] Ascending the Rankings  IPhone's Top Selfie Accessories</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-breaking-down-instagrams-hashtag-system-tips-and-techniques/"><u>[Updated] Breaking Down Instagram's Hashtag System  Tips and Techniques</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-crafting-beautiful-image-arrangements-with-iphone/"><u>[Updated] Crafting Beautiful Image Arrangements with iPhone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-how-to-create-and-change-an-igtv-cover-photo-thumbnail-in-2024/"><u>[Updated] How to Create and Change an IGTV Cover Photo (Thumbnail), In 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-dive-into-fixes-for-your-troublesome-instagram-video/"><u>[Updated] In 2024, Dive Into Fixes for Your Troublesome Instagram Video</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-how-to-add-border-to-instagram-photos-with-best-apps/"><u>[Updated] In 2024, How to Add Border to Instagram Photos with Best Apps</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-instagram-to-device-direct-and-indirect-video-transfers/"><u>[Updated] In 2024, Instagram to Device  Direct and Indirect Video Transfers</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-navigating-the-world-of-insta-influencers-5-pivotal-moves-and-results/"><u>[Updated] In 2024, Navigating the World of Insta Influencers  5 Pivotal Moves and Results</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-recording-techniques-for-instagrams-ephemeral-content/"><u>[Updated] In 2024, Recording Techniques for Instagram's Ephemeral Content</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-innovative-strategies-for-top-10-ig-grid-design-software/"><u>[Updated] Innovative Strategies for Top 10 IG Grid Design Software</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-mastering-instagrams-filter-system-free-at-your-fingertips/"><u>[Updated] Mastering Instagram's Filter System – Free, at Your Fingertips</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-prime-8-instagram-managers-for-mobile-devices-for-2024/"><u>[Updated] Prime 8 Instagram Managers for Mobile Devices for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-comparing-future-cloud-bill-predictions/"><u>2024 Approved  Comparing Future Cloud Bill Predictions</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-efficient-steps-recording-on-apples-ipad/"><u>2024 Approved  Efficient Steps  Recording on Apple's iPad</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-the-enchanted-realm-of-bygone-writings-a-literary-pilgrimage/"><u>2024 Approved  The Enchanted Realm of Bygone Writings  A Literary Pilgrimage</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-the-photographers-edge-innovating-with-instagrams-bokeh-features/"><u>2024 Approved  The Photographer's Edge  Innovating with Instagram’s Bokeh Features</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/captivating-creations-top-editors-for-videos-on-your-win11-pc/"><u>Captivating Creations: Top Editors for Videos on Your Win11 PC</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/catalan-language-sprint-10-minsday/"><u>Catalan Language Sprint – 10 Mins/Day</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/crafting-content-that-captivates-for-virality-on-ig/"><u>Crafting Content that Captivates for Virality on IG</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/crafting-visual-narratives-adding-memorable-story-emoji-images-for-2024/"><u>Crafting Visual Narratives  Adding Memorable Story Emoji Images for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/harnessing-instagram-video-power-strategizing-for-impact-for-2024/"><u>Harnessing Instagram Video Power  Strategizing for Impact for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-changeadd-location-filters-on-snapchat-for-your-infinix-note-30-vip-racing-edition-drfone-by-drfone-virtual-android/"><u>How to Change/Add Location Filters on Snapchat For your Infinix Note 30 VIP Racing Edition | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-professional-mix-techniques-for-crossfading-sounds-with-audacity/"><u>In 2024, Professional Mix Techniques for Crossfading Sounds with Audacity</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-the-essential-guide-to-tracking-igtv-viewership-metrics/"><u>In 2024, The Essential Guide to Tracking IGTV Viewership Metrics</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-unleash-your-photo-flair-insta-covers-for-tech-giants/"><u>In 2024, Unleash Your Photo Flair  Insta Covers for Tech Giants</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-unveiling-simplicity-in-ipad-screen-saving-tactics/"><u>In 2024, Unveiling Simplicity in iPad Screen Saving Tactics</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/minecraft-homes-innovative-and-stylish-designs/"><u>Minecraft Homes  Innovative & Stylish Designs</u></a></li>
-<li><a href="https://extra-support.techidaily.com/optimal-free-tools-5-gif-to-video-conversion-websites-without-downloads-for-2024/"><u>Optimal Free Tools  5 GIF-to-Video Conversion Websites Without Downloads for 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/possible-ways-to-recover-deleted-files-from-infinix-hot-40i-by-fonelab-android-recover-data/"><u>Possible ways to recover deleted files from Infinix Hot 40i</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/precision-based-adjustments-for-maximum-impact-on-instagram-tv-for-2024/"><u>Precision-Based Adjustments for Maximum Impact on Instagram TV for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/the-science-behind-optimal-instagram-timings-for-2024/"><u>The Science Behind Optimal Instagram Timings for 2024</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-top-best-15-apps-to-cartoon-yourself-with-ease-iphone-and-android/"><u>Updated Top Best 15 Apps to Cartoon Yourself with Ease iPhone & Android</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-transform-photos-with-the-premier-11-edits/"><u>[Updated] 2024 Approved Transform Photos with the Premier 11 Edits</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-cutting-edge-techniques-for-saving-insta-videos-for-2024/"><u>[Updated] Cutting-Edge Techniques for Saving Insta Videos for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-simple-windows-11-techniques-for-video-editing/"><u>[Updated] In 2024, Simple Windows 11 Techniques for Video Editing</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/comprehensive-guide-how-to-incorporate-text-annotations-in-instagram-posts/"><u>Comprehensive Guide: How to Incorporate Text Annotations in Instagram Posts</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/elite-sound-enhancements-best-headphones-for-televisions/"><u>Elite Sound Enhancements: Best Headphones for Televisions</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/silence-unwanted-post-suggestions-on-insta-for-2024/"><u>Silence Unwanted Post Suggestions on Insta for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/solving-d3dx927dll-file-not-detected-step-by-step-guidance/"><u>Solving d3dx9_27.dll File Not Detected: Step-by-Step Guidance</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unlocking-full-potential-in-depth-review-of-lgs-monitor-tech-for-2024/"><u>Unlocking Full Potential In-Depth Review of LG's Monitor Tech for 2024</u></a></li>
 </ul></div>
+

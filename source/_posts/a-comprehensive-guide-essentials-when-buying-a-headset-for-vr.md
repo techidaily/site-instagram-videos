@@ -1,7 +1,7 @@
 ---
 title: "A Comprehensive Guide: Essentials When Buying a Headset for VR"
-date: 2024-09-04T13:23:52.459Z
-updated: 2024-09-05T13:23:52.459Z
+date: 2024-09-10T03:05:48.363Z
+updated: 2024-09-15T16:16:24.798Z
 categories:
   - BestProducts
 description: "This Article Describes A Comprehensive Guide: Essentials When Buying a Headset for VR"
@@ -64,12 +64,6 @@ Lifewire / Kelsey Simon
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/b1_d8ikgtdkSH_Y0F510q_BXpK0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-03-d99b43959fa74b31a15f336852f14d75.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Kelsey Simon
 
  This whole introduction is slow moving and boring, and getting through it is rough. But even past this, things don’t necessarily pick up and get more interesting. The game has such a heavy hand with its narration, telling you the game’s visuals even though you can see them right there on your screen. The whole game reads like someone wrote a novel, couldn’t publish it, and then decided making a[video game](https://www.lifewire.com/best-gaming-consoles-4154610) was a better idea, and instead of trimming the fat, they left every unnecessary description and detail in the game’s prompt.
@@ -78,11 +72,25 @@ Lifewire / Kelsey Simon
 
  You’re a castoff of the powerful Changing God, and you’ve got a lot to figure out―the question is, do you want to read a poorly written novel in video game format?
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115933/19272" target="_top" id="2115933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115933" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Gameplay: Dialogue prompts and effort**
 
  The Tides of Numenera is a third-person[role-playing game](https://www.lifewire.com/best-free-offline-rpg-games-4177675) where almost 75 percent of the gameplay is scrolling dialogue boxes and the various prompts that will pop up as the game tells you the story. These prompts will allow you control over how the story unfolds, and this, more than anything else, is the game’s main mechanic.
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/8H4QhkgilcsrFlNL40KO1tDnKvs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-02-cca6ebdc67d6477ab973b796fb7e773c.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115908/19272" target="_top" id="2115908">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115908" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115908/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -98,12 +106,6 @@ Lifewire / Kelsey Simon
 
  The one thing the game does have to offer is a rich and unique world that combines elements of fantasy and science fiction in an interesting way.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Graphics: Outdated and simplistic**
 
  Tides of Numenera was created in 2017―however, you wouldn’t know this if you jumped into the game and made a guess based upon the[graphics](https://www.lifewire.com/optimizing-video-game-frame-rates-811784) . The graphics look more like they’re stuck in the early 2000s, with blocky, almost pixelated characters. There is some forgiveness to be had because the game isn’t focused on the visuals―it’s more about the words and the story. But there is a limit to how forgiving one can be considering the game isn’t that old.
@@ -113,19 +115,14 @@ Lifewire / Kelsey Simon
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/DfXjCwwtXMVBL58JZmix5sR3vBQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-04-7f9c8617b9cd41738ad2ac02abf0aec9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Only worth it if you’re keen on the story**
 
  Torment: Tides of Numenera is still an expensive game, costing $50 on[Steam](https://www.lifewire.com/best-free-steam-games-4176308) when it’s not on sale. It’s a game created with a very specific type of player in mind―and I suspect most people are not going to like it.
@@ -134,18 +131,6 @@ Lifewire / Kelsey Simon
 
  While Tides of Numenera wasn’t really my thing, it could be a fun adventure for someone else.
 
-<!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Competition: Other story focused RPGs**
 
  There are quite a few other games available that are story-focused RPGs besides Tides of Numenera. Wasteland 2 (view on[Amazon](https://www.amazon.com/Wasteland-2-Directors-Cut-PlayStation-4/dp/B013CQHQFU/?tag=lifewire-onsite-prod-20&ascsubtag=5077302%7Cnac6eb02defc3413da4da5d4ed0dc77ea21%7C) ) is a very similar game, as it is made by the same developers, but where Numenera falls flat with its heavy-handed storytelling, Wasteland 2 stands apart with a fun, tactical combat system.
@@ -158,18 +143,6 @@ Lifewire / Kelsey Simon
 
  Torment: Tides of Numenera is a role-playing game focused on creating an experience that is more novel than video game. The storytelling is text heavy, but the world is rich and unique, mixing sci-fi and fantasy elements. Unfortunately, the unique world wasn’t enough to carry me through the outdated graphics and boring gameplay.
 
-<!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Torment: Tides of Numenera
@@ -178,14 +151,11 @@ Lifewire / Kelsey Simon
 * ESRB Rating  M for Mature
 * Available Platforms  PC, MaxOS,Xbox One, PlayStation 4
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -196,42 +166,16 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-influence-unleashed-5-crucial-steps-to-thriving-on-instagram-marketing/"><u>[New] 2024 Approved  Influence Unleashed  5 Crucial Steps to Thriving on Instagram Marketing</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-snapshot-safeguarding-an-easy-tutorial-for-your-phone/"><u>[New] 2024 Approved  Snapshot Safeguarding  An Easy Tutorial for Your Phone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-stepwise-insta-story-image-integration-techniques-for-maximum-impact/"><u>[New] 2024 Approved  Stepwise Insta Story Image Integration Techniques for Maximum Impact</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-the-instagram-strategists-toolkit-understanding-metrics-trends-and-user-insights/"><u>[New] 2024 Approved  The Instagram Strategist’s Toolkit  Understanding Metrics, Trends & User Insights</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-diy-ig-videos-tips-and-template-inspirations-for-2024/"><u>[New] DIY IG Videos  Tips & Template Inspirations for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-crafting-the-ultimate-mc-community-dwellings/"><u>[New] In 2024, Crafting the Ultimate MC Community Dwellings</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-dreaming-through-the-viewfinder-inspiring-photo-ideas/"><u>[New] In 2024, Dreaming Through the Viewfinder  Inspiring Photo Ideas</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-how-to-make-instagram-slow-motion-video/"><u>[New] In 2024, How to Make Instagram Slow Motion Video</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-instagram-insights-identifying-your-posts-audience-for-2024/"><u>[New] Instagram Insights  Identifying Your Post's Audience for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-spotlight-on-stories-crafting-three-effective-highlights/"><u>[New] Spotlight on Stories  Crafting Three Effective Highlights</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-the-ultimate-tutorial-for-turning-followers-into-cash-via-instagram-for-2024/"><u>[New] The Ultimate Tutorial for Turning Followers Into Cash via Instagram for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-unveiling-the-ultimate-methods-for-high-quality-video-conversion/"><u>[New] Unveiling the Ultimate Methods for High Quality Video Conversion</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-beyond-the-lens-the-complete-selfie-confirmation-on-ig/"><u>[Updated] 2024 Approved  Beyond the Lens  The Complete Selfie Confirmation on IG</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-essential-list-best-video-platforms-for-secure-businesses/"><u>[Updated] Essential List  Best Video Platforms for Secure Businesses</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-harnessing-ig-videos-effectively-blueprint-for-a-dynamic-marketing-plan/"><u>[Updated] Harnessing IG Videos Effectively  Blueprint for a Dynamic Marketing Plan</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-hidden-viewers-guide-reading-instagram-stories-privately-from-pcandroidios/"><u>[Updated] Hidden Viewers Guide  Reading Instagram Stories Privately From PC/Android/iOS</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-how-to-share-igtv-video-on-instagram-story-with-ease-for-2024/"><u>[Updated] How to Share IGTV Video on Instagram Story with Ease for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-step-forward-with-borders-on-instagram-videos/"><u>[Updated] In 2024, Step Forward with Borders on Instagram Videos</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-the-insiders-guide-to-mastering-fb-live-recordings/"><u>[Updated] In 2024, The Insider's Guide to Mastering FB Live Recordings</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-innovative-audio-tools-crafting-perfect-virtual-performances/"><u>[Updated] Innovative Audio Tools  Crafting Perfect Virtual Performances</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-make-your-instagram-posts-pop-with-correct-video-dimensions-for-2024/"><u>[Updated] Make Your Instagram Posts Pop with Correct Video Dimensions for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-scouring-influencers-tailoring-your-niches-insta-community-for-2024/"><u>[Updated] Scouring Influencers  Tailoring Your Niche's Insta Community for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-the-instagram-edge-bulk-image-and-video-post-strategies-explored-for-2024/"><u>[Updated] The Instagram Edge  Bulk Image and Video Post Strategies Explored for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-weekly-must-see-elite-igtv-talents-for-2024/"><u>[Updated] Weekly Must-See  Elite IGTV Talents for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-the-blueprint-for-buzz-elevating-interactions-on-instagram/"><u>2024 Approved  The Blueprint for Buzz  Elevating Interactions on Instagram</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/5-ways-to-send-ringtones-from-apple-iphone-14-plus-to-iphone-including-iphone-15-drfone-by-drfone-transfer-from-ios/"><u>5 Ways to Send Ringtones from Apple iPhone 14 Plus to iPhone Including iPhone 15 | Dr.fone</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/best-mkv-cutting-tools-2023-edition-no-cost/"><u>Best MKV Cutting Tools 2023 Edition (No Cost!)</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-directors-cut-analysis-delving-into-the-wasteland-2s-turn-based-strategy-gameplay/"><u>Comprehensive Director’s Cut Analysis: Delving Into The Wasteland 2'S Turn-Based Strategy Gameplay</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/hear-the-difference-mastering-instagram-voice-customizations-for-2024/"><u>Hear the Difference  Mastering Instagram Voice Customizations for 2024</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-use-phone-clone-to-migrate-your-samsung-galaxy-s23-ultra-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Use Phone Clone to Migrate Your Samsung Galaxy S23 Ultra Data? | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-5-solutions-for-samsung-unlock-without-password-by-drfone-android/"><u>In 2024, 5 Solutions For Samsung Unlock Without Password</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-samsung-galaxy-a24withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Samsung Galaxy A24with/without a PC</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/in-2024-top-7-phone-number-locators-to-track-apple-iphone-13-location-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 7 Phone Number Locators To Track Apple iPhone 13 Location | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-unlocking-apple-iphone-6s-plus-passcode-without-a-computer-drfone-by-drfone-ios/"><u>In 2024, Unlocking Apple iPhone 6s Plus Passcode without a Computer | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/navigating-instagrams-posting-video-count-for-2024/"><u>Navigating Instagram's Posting Video Count for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/next-level-ai-interaction-is-it-gemini-or-chatgpt-plus-for-you/"><u>Next-Level AI Interaction: Is It Gemini or ChatGPT Plus for You?</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/top-10-photo-repair-tools-reviving-images-on-windows-and-macos/"><u>Top 10 Photo Repair Tools: Reviving Images on Windows & macOS</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/transformative-techniques-for-high-quality-mp4s-from-instagram-for-2024/"><u>Transformative Techniques for High-Quality MP4s From Instagram for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-fostering-followers-with-flashy-instagram-puzzles-that-stand-out/"><u>[New] Fostering Followers with Flashy Instagram Puzzles that Stand Out</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-no-cost-speedy-tips-for-exposing-deceptive-instagram-acquaintances/"><u>[New] In 2024, No-Cost, Speedy Tips for Exposing Deceptive Instagram Acquaintances</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-maximizing-visibility-how-to-upload-videos-to-instagram-desktop-for-2024/"><u>[New] Maximizing Visibility How to Upload Videos to Instagram Desktop for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-ultimate-blueprint-to-dominate-instagram-with-puzzles-for-2024/"><u>[Updated] The Ultimate Blueprint to Dominate Instagram With Puzzles for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-expert-analysis-the-full-spectrum-of-bublcam-360/"><u>2024 Approved Expert Analysis The Full Spectrum of Bublcam 360</u></a></li>
+<li><a href="https://solve-helper.techidaily.com/abbyy-ocr-boosting-workflow-efficiency-in-recruitment-software-solutions/"><u>ABBYY OCR: Boosting Workflow Efficiency in Recruitment Software Solutions</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/basketball-enthusiasts-choice-nba-2k19-official-sports-game/"><u>Basketball Enthusiasts' Choice - NBA 2K19 Official Sports Game</u></a></li>
+<li><a href="https://win-answers.techidaily.com/1722995393949-forza-horizon-npc-gameplay-stability-improvement-fps-enhancements/"><u>Forza Horizon nPC Gameplay Stability Improvement - FPS Enhancements!</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/harness-free-ai-power-create-executive-level-emails-through-chatgpt-for-swift-inbox-management/"><u>Harness Free AI Power: Create Executive-Level Emails Through ChatGPT for Swift Inbox Management</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-infinix-note-30i-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Infinix Note 30i? | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/nurturing-a-thriving-community-for-more-insta-views-for-2024/"><u>Nurturing a Thriving Community for More Insta Views for 2024</u></a></li>
 </ul></div>
+

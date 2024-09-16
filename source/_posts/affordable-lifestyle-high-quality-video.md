@@ -1,7 +1,7 @@
 ---
 title: Affordable Lifestyle, High-Quality Video
-date: 2024-09-09T20:21:59.809Z
-updated: 2024-09-10T20:21:59.809Z
+date: 2024-09-11T04:14:34.147Z
+updated: 2024-09-16T01:45:48.791Z
 categories:
   - BestProducts
 description: This Article Describes Affordable Lifestyle, High-Quality Video
@@ -17,12 +17,6 @@ thumbnail: https://www.lifewire.com/thmb/uRCgNw-CUKlAX2NVz76xLIumjts=/400x300/fi
 
 ![Kensun Portable Tire Inflator](https://www.lifewire.com/thmb/NWhMBmuK3pkL9EGvdNCEAF8sWEo=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/KensunPortableTireInflator_HeroSquare-c74ce1562bed43b897087fa89d11df23.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Jeffrey Daniel Chadwick
 
  What We Like
@@ -47,18 +41,6 @@ Lifewire / Jeffrey Daniel Chadwick
 
 ![Kensun Portable Tire Inflator](https://www.lifewire.com/thmb/MEKNaqKs5klEYPtoc5EGv7lAyJU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/KensunPortableTireInflator_HeroSquare-c74ce1562bed43b897087fa89d11df23.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Jeffrey Daniel Chadwick
 
 [View On Amazon $100](https://www.amazon.com/Kensun-Performance-Portable-Compressor-Inflator/dp/B01J8Y91GC/?tag=lifewire-onsite-prod-20&ascsubtag=4776821%7Cn7137248c5e6f4b0b979879dcac87fc7908%7CB01J8Y91GC)
@@ -81,12 +63,6 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115911/19272" target="_top" id="2115911">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115911" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115911/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design and Features: Maximum portability, but not maximum flexibility**
 
  The form factor of the Kensun Portable Tire Inflator is a case study in maximum portability. It weighs a mere 5 pounds, and the sturdy handle makes it easy to pick up and move around. Moreover, at 11.8 inches long, 4.3 inches wide and 6.7 inches tall, it’s quite compact. And it’s hard plastic casing means it can withstand some punishment and still deliver top performance.
@@ -116,11 +92,12 @@ Lifewire / Jeffrey Daniel Chadwick
  Lifewire / Jeffrey Daniel Chadwick
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Performance: Reliable, accurate, quick and loud**
 
  When we tested the tire inflator, we took it on a road trip that took us to the states of Nevada, Utah, Idaho, and Wyoming. Along the way, we stopped at rural rest areas and gas stations. In order to use them in the circumstances, they were designed for. Throughout it all, the Kensun Portable Tire Inflator never failed to work when we needed it.
@@ -142,21 +119,16 @@ Lifewire / Jeffrey Daniel Chadwick
  One of the most convenient things about this portable air pump is its auto-shutdown feature. This allows you to select the precise tire pressure you want before you start pumping. Once the tire is inflated to the desired pressure, it shuts down. This means that you don’t have to babysit the pump while it's going, and all but guarantees that you won’t over-inflate your tires.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Price: A decent buy considering its versatility**
 
  The Kensun Portable Tire Inflator has an MSRP of $80 on Amazon, which is a good price for what you get. It’s not nearly as affordable as some budget models we’ve seen, such as the Audew Portable Air Compressor Pump, which will only run you $40, but it gives you the convenience of not having to be tethered to your car to inflate something.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Kensun Portable Tire Inflator vs. Jaco Digital Tire Inflator**
 
  The Kensun Portable Tire Inflator is similar to the Jaco Digital Tire Inflator, they have similar cord and hose lengths, and can continually run for about half an hour. But the Kensun is more than twice the size of the Jaco, so it can deliver more power to fill your tires faster. Additionally, the Jaco lacks the ability to plug into an AC socket, so you can only use it in your car.
@@ -187,8 +159,6 @@ Lifewire / Jeffrey Daniel Chadwick
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -198,51 +168,20 @@ Lifewire / Jeffrey Daniel Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-making-friends-across-networks-instagram-plus-facebook/"><u>[New] 2024 Approved  Making Friends Across Networks  Instagram + Facebook</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-crafting-immersive-experiences-with-captions-on-stories-and-reels/"><u>[New] Crafting Immersive Experiences with Captions on Stories & Reels</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-assessing-the-credibility-of-online-self-imaging-on-instagram/"><u>[New] In 2024, Assessing the Credibility of Online Self-Imaging on Instagram</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-elevate-content-with-properly-sized-videos-on-instagram/"><u>[New] In 2024, Elevate Content with Properly Sized Videos on Instagram</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-essential-editing-software-for-horizontal-and-vertical-igtv/"><u>[New] In 2024, Essential Editing Software for Horizontal & Vertical IGTV</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-iphone-video-editing-showdown-cameo-against-filmorago/"><u>[New] In 2024, IPhone Video Editing Showdown  Cameo Against FilmoraGo</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-making-history-shine-again-instagram-effects-for-your-archive/"><u>[New] In 2024, Making History Shine Again  Instagram Effects for Your Archive</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-masterclass-in-business-creating-an-enterprise-instagram-profile/"><u>[New] In 2024, Masterclass in Business  Creating an Enterprise Instagram Profile</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-navigating-melody-rights-on-instagram-a-full-breakdown/"><u>[New] In 2024, Navigating Melody Rights on Instagram  A Full Breakdown</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-the-ultimate-guide-to-finding-instagram-filters-for-no-cost/"><u>[New] In 2024, The Ultimate Guide to Finding Instagram Filters for No Cost</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-instagram-sounds-policy-explained/"><u>[New] Instagram Sounds Policy Explained</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-leveraging-insta-archive-features-a-step-by-step-approach/"><u>[New] Leveraging Insta Archive Features  A Step-by-Step Approach</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-mastering-hashtags-with-leading-apps-on-fb-twitter-and-instagram-for-2024/"><u>[New] Mastering Hashtags with Leading Apps on FB, Twitter & Instagram for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-mastering-instagram-reel-creating-stunning-slow-motion-content/"><u>[New] Mastering Instagram Reel  Creating Stunning Slow-Motion Content</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-the-art-of-audio-alteration-for-stories-and-reels-on-ig-for-2024/"><u>[New] The Art of Audio Alteration  For Stories and Reels on IG for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-beginning-with-youtube-essential-steps-to-create-your-space/"><u>[Updated] 2024 Approved  Beginning with YouTube  Essential Steps to Create Your Space</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-instagram-lost-and-found-follower-hunt/"><u>[Updated] 2024 Approved  Instagram Lost and Found Follower Hunt</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-master-the-art-of-uploading-vimeo-to-instagram/"><u>[Updated] 2024 Approved  Master the Art of Uploading Vimeo to Instagram</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-capturing-elegance-with-bokeh-effects-in-stories/"><u>[Updated] In 2024, Capturing Elegance with Bokeh Effects in Stories</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-ideal-tools-to-craft-professional-igtv-videos/"><u>[Updated] In 2024, Ideal Tools to Craft Professional IGTV Videos</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-instagrams-best-practices-for-influential-engagement-top-5-tips-with-examples/"><u>[Updated] In 2024, Instagram's Best Practices for Influential Engagement  Top 5 Tips with Examples</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-visual-impact-blueprint-for-success-in-instagram-video-campaigns/"><u>[Updated] In 2024, Visual Impact  Blueprint for Success in Instagram Video Campaigns</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-instagrams-edge-transforming-your-videography-with-precision-cropping/"><u>[Updated] Instagram's Edge  Transforming Your Videography with Precision Cropping</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-shining-up-photos-on-instagram-three-effective-ways-for-2024/"><u>[Updated] Shining Up Photos on Instagram  Three Effective Ways for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-supreme-top-4k-tvs-for-gamers/"><u>[Updated] Supreme Top 4K TVs for Gamers</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-the-role-of-authenticity-checks-in-social-media-posts/"><u>[Updated] The Role of Authenticity Checks in Social Media Posts</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-unlocking-instagrams-top-spot-in-minutes/"><u>[Updated] Unlocking Instagram's Top Spot in Minutes</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-behind-the-scenes-of-effective-instagram-caption-use/"><u>2024 Approved  Behind the Scenes of Effective Instagram Caption Use</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-essential-hashtag-analyzers-facebook-twitter-and-instagram-edition/"><u>2024 Approved  Essential Hashtag Analyzers  Facebook, Twitter & Instagram Edition</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-instagram-stories-screen-capture-made-simple/"><u>2024 Approved  Instagram Stories Screen Capture Made Simple</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-diaries-deciphered-are-phones-making-marketing-decisions/"><u>Digital Diaries Deciphered: Are Phones Making Marketing Decisions?</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/dive-deep-into-video-a-compreenas-guide-to-sharing-pictures-online/"><u>Dive Deep Into Video  A Compreenas Guide to Sharing Pictures Online</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/framing-for-instagram-techniques-for-vertical-footage-in-fcpx-for-2024/"><u>Framing for Instagram  Techniques for Vertical Footage in FCPX for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-tecno-camon-20-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Tecno Camon 20</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-vivo-y100a-without-the-home-button-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Vivo Y100A Without the Home Button | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-use-ispoofer-on-xiaomi-redmi-a2-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Xiaomi Redmi A2? | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-elevate-your-igtv-presence-with-edited-titles-and-descriptions/"><u>In 2024, Elevate Your IGTV Presence with Edited Titles and Descriptions</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-social-media-power-up-grouping-multiple-photos-and-vids-for-instagram/"><u>In 2024, Social Media Power-Up  Grouping Multiple Photos & Vids for Instagram</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-ten-instagram-feeds-blending-funny-and-sentimental-posts/"><u>In 2024, Ten Instagram Feeds Blending Funny & Sentimental Posts</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-the-ultimate-companion-for-a-seamless-instagram-video-journey/"><u>In 2024, The Ultimate Companion for a Seamless Instagram Video Journey</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-time-savers-screen-recording-on-instagrams-story/"><u>In 2024, Time Savers  Screen Recording on Instagram's Story</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-unleash-potential-the-best-instagram-hashtags-of-the-day/"><u>In 2024, Unleash Potential  The Best Instagram Hashtags of the Day</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-lenovo-p11-pro-tablet-exceptional-quality-minor-concerns/"><u>In-Depth Analysis of the Lenovo P11 Pro Tablet: Exceptional Quality, Minor Concerns</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/instant-on-maximizing-your-video-playback-time-for-2024/"><u>Instant-On  Maximizing Your Video Playback Time for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/mastering-video-directorship-with-powerdirector-24/"><u>Mastering Video Directorship with PowerDirector '24</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/skyrocketing-popularity-on-igtv-with-powerful-targeted-hash-tags/"><u>Skyrocketing Popularity on IGTV with Powerful, Targeted Hash Tags</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/turn-every-instagram-moment-into-a-shareable-mp4-file-for-2024/"><u>Turn Every Instagram Moment Into a Shareable MP4 File for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-a-step-by-step-strategy-to-design-engaging-youtube-teasers-for-2024/"><u>[New] A Step-by-Step Strategy to Design Engaging YouTube Teasers for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-capturing-screen-content-via-built-in-recorders-in-the-mate-and-p-series-for-2024/"><u>[New] Capturing Screen Content via Built-In Recorders in the Mate and P Series for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-instagram-friendships-unlocked-leading-free-and-safe-follower-finding-tools-iosandroid/"><u>[New] In 2024, Instagram Friendships Unlocked Leading Free & Safe Follower-Finding Tools (iOS/Android)</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/eimagining-cityscapes-the-integration-of-ecosystem-services/"><u>[New] Reimagining Cityscapes The Integration of Ecosystem Services</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-shut-down-instagram-suggestions-for-2024/"><u>[New] Shut Down Instagram Suggestions for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-the-safest-15-apps-for-instagram-followings-on-both-systems/"><u>[Updated] 2024 Approved The Safest 15 Apps for Instagram Followings on Both Systems</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-how-to-get-verified-on-instagram-6-tips-to-grow-followers/"><u>[Updated] How to Get Verified on Instagram 6 Tips to Grow Followers</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-navigating-the-dangers-of-fabricated-followers-on-feed-for-2024/"><u>[Updated] Navigating the Dangers of Fabricated Followers on Feed for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-six-easy-steps-to-acquire-fb-links-for-free/"><u>[Updated] Six Easy Steps to Acquire FB Links for FREE</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-tips-for-efficiently-editing-videos-for-social-media-engagement-for-2024/"><u>[Updated] Tips for Efficiently Editing Videos for Social Media Engagement for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/guide-how-to-remove-subtitles-from-amazon-prime-video-watches/"><u>Guide: How to Remove Subtitles From Amazon Prime Video Watches</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/quick-solution-guide-realtek-hd-sound-manager-failure-resolution/"><u>Quick Solution Guide: Realtek HD Sound Manager Failure Resolution</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/screenplay-sensation-roundup/"><u>Screenplay Sensation Roundup</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/squaring-the-circle-your-imovie-path-to-perfect-instagram-videos/"><u>Squaring the Circle Your iMovie Path to Perfect Instagram Videos</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-zte-blade-a73-5g-phone-by-drfone-android/"><u>Top IMEI Unlokers for Your ZTE Blade A73 5G Phone</u></a></li>
 </ul></div>
+
