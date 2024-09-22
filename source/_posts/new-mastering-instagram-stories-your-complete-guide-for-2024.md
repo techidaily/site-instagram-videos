@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Mastering Instagram Stories  Your Complete Guide for 2024\""
-date: 2024-09-08T20:17:03.136Z
-updated: 2024-09-16T02:01:08.101Z
+date: 2024-09-20T01:12:17.671Z
+updated: 2024-09-21T20:39:08.765Z
 tags:
   - ai video
   - ai instagram
@@ -118,6 +118,13 @@ You can add 'Polls', 'Location', and 'Hashtags' to your Insta Stories by tapping
 
 To turn your own face into a sticker, you can tap the camera icon under the 'Stickers' section and take a selfie. Then tap on the selfie to pin it as a sticker on your picture or video, and then share as your Instagram Story.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Use your pen
 
 ![](https://images.wondershare.com/filmora/article-images/instagram-pen.jpg)
@@ -126,25 +133,11 @@ Now that you have used funny stickers to make your picture (for Insta Story) att
 
 Whoa! You are becoming a sport at how to use Instagram Stories.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115914/19272" target="_top" id="2115914">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115914" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115914/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Add text
 
 ![](https://images.wondershare.com/filmora/article-images/add-text-to-instagram.jpg)
 
 You can also add text to make your Instagram Stories more attractive. Tap on the 'Aa' icon on the extreme right corner of your screen (in Instagram camera) and start typing. You can change the font style by tapping the style available on top of the screen, as well as select the color of the 'Text'. You can also tag people in 'Text' by typing '@' and then the handle name of the person, then click on their image.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Add color overlays
 
@@ -161,10 +154,10 @@ First add a video or picture and then click on the paperclip icon from the top r
 **You May Also Like:** [How to Post a Link to Instagram Stories and Posts](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115940/19272" target="_top" id="2115940">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115940" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115940/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Add music
@@ -176,6 +169,13 @@ If adding 'Stickers', 'Text', and choosing filters aren't enough for your perfec
 With this complete guide for Instagram Stories, we are hopeful that you are going to be a pro in how to use Instagram Stories. Bring out that creative soul in you and explore the world of Insta Stories with these amazingly cool features. Keep telling your stories through your camera lens (the Instagram one!).
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -192,16 +192,15 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-unlocking-the-full-potential-of-your-instagram-story-with-multiple-images/"><u>[New] Unlocking the Full Potential of Your Instagram Story with Multiple Images</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-unlock-instagram-videos-on-pc-and-mac-with-free-conversion-software/"><u>[Updated] 2024 Approved Unlock Instagram Videos on PC & Mac with Free Conversion Software</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-unveiling-secrets-for-converting-instagram-vids-into-high-quality-mp4/"><u>[Updated] 2024 Approved Unveiling Secrets for Converting Instagram Vids Into High-Quality MP4</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-guide-to-creating-unique-tiktok-cover-art/"><u>2024 Approved Guide to Creating Unique TikTok Cover Art</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-honor-90-pro-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Honor 90 Pro Phones with/without a PC</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-top-10-best-hexacopter-drones/"><u>In 2024, Top 10 Best Hexacopter Drones</u></a></li>
-<li><a href="https://windows11.techidaily.com/optimizing-windows-performance-by-curbing-tiworkerexe-resources/"><u>Optimizing Windows Performance by Curbing TiWorker.exe Resources</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/the-ultimate-guide-to-boosting-gaming-graphics-card-replacement-made-easy/"><u>The Ultimate Guide to Boosting Gaming: Graphics Card Replacement Made Easy</u></a></li>
-<li><a href="https://fox-that.techidaily.com/ultimate-technique-for-booting-your-ipad-into-recovery-mode-safely/"><u>Ultimate Technique for Booting Your iPad Into Recovery Mode Safely</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/understanding-and-meeting-aspect-ratios-on-twitter/"><u>Understanding and Meeting Aspect Ratios on Twitter</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/your-monetized-channel-blueprint-for-online-creators/"><u>Your Monetized Channel Blueprint for Online Creators</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-bridging-platforms-for-broad-sharing-instagram-and-facebook/"><u>[New] In 2024, Bridging Platforms for Broad Sharing Instagram & Facebook</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-playflixapp-user-feedback-synopsis-for-2024/"><u>[New] PlayFlixApp User Feedback Synopsis for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-unveiling-the-secrets-maximizing-video-reach-on-igtv-with-horizinas/"><u>[Updated] 2024 Approved Unveiling the Secrets Maximizing Video Reach on IGTV with Horizinas</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-classic-crimson-codec-for-2024/"><u>[Updated] Classic Crimson Codec for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-top-trending-ig-filters-ranked/"><u>[Updated] Top Trending IG Filters Ranked</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-twitters-reactive-content-unveiled/"><u>[Updated] Twitter's Reactive Content Unveiled</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-bridging-the-gap-between-classic-and-contemporary-videos/"><u>2024 Approved Bridging the Gap Between Classic and Contemporary Videos</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-infinix-smart-8-drfone-by-drfone-virtual-android/"><u>How to Detect and Stop mSpy from Spying on Your Infinix Smart 8 | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-the-ultimate-guide-to-selecting-screen-recorder-software/"><u>In 2024, The Ultimate Guide to Selecting Screen Recorder Software</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/sharing-your-favorite-tunes-a-guide-to-jointly-streaming-on-spotify/"><u>Sharing Your Favorite Tunes: A Guide to Jointly Streaming on Spotify</u></a></li>
 </ul></div>
 

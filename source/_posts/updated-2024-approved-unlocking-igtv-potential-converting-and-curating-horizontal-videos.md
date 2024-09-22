@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Unlocking IGTV Potential  Converting and Curating Horizontal Videos\""
-date: 2024-09-11T18:17:18.914Z
-updated: 2024-09-15T23:13:07.232Z
+date: 2024-09-18T03:08:01.519Z
+updated: 2024-09-22T01:13:48.152Z
 tags:
   - ai video
   - ai instagram
@@ -55,10 +55,10 @@ Check out our video guide about how to edit videos for Instagram.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Here is the process in word format in case you don't have time to check the video.
@@ -85,13 +85,6 @@ After you’ve selected the video you’ll be able to see **two arrows on the sc
 
 Tap on the **Save icon** to confirm the changes and proceed to upload the video to your IGTV channel.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Creating a Horizontal Video from a Mobile Device with GoPro Splice
 
 iPhone users can easily create landscape videos for their IGTV channels with GoPro’s [Splice](https://itunes.apple.com/us/app/splice-video-editor-maker/id409838725?mt=8) app. You can **download the app for free from the App Store** and you won’t have to make any in-app purchases after you install Splice on your device.
@@ -105,6 +98,13 @@ The app will then take you to the **Project Settings** window and you should jus
 None of the options for creating vertical videos for IGTV are perfect because each of them leaves portions of the frame empty. Basically, you will be creating a vertically oriented frame with a 9:16 aspect ratio, that contains a centrally positioned and horizontally oriented video. This is only a good option if the video you want to upload to IGTV doesn’t make any sense when it is vertically oriented, which can be the case more often than you’d expect. Which method of creating landscape videos for IGTV do you like to use the most? Leave a comment below and let us know.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -121,17 +121,15 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-creating-a-multimedia-guide-adding-videos-to-text-articles/"><u>[New] 2024 Approved Creating a Multimedia Guide Adding Videos to Text Articles</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-hashtag-hacks-the-top-25-tactics-to-elevate-your-instagram-profile/"><u>[New] Hashtag Hacks The Top 25 Tactics to Elevate Your Instagram Profile</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-understanding-the-dynamics-of-instagram-unfollows/"><u>[New] In 2024, Understanding the Dynamics of Instagram Unfollows</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-one-minute-color-magic/"><u>[New] One Minute Color Magic</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-explore-the-ultimate-list-of-comedy-tears-on-instagram/"><u>[Updated] 2024 Approved Explore the Ultimate List of Comedy-Tears On Instagram</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-how-to-prevent-thumbnail-absence-in-shorts-uploads/"><u>[Updated] In 2024, How to Prevent Thumbnail Absence in Shorts Uploads</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-simplify-passport-photography-with-these-top-10-low-cost-solutions/"><u>[Updated] In 2024, Simplify Passport Photography with These Top 10 Low-Cost Solutions</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-motorola-edge-2023-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Motorola Edge 2023 | Dr.fone</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-ultimate-screen-recorder-companion-for-windows-10/"><u>2024 Approved Ultimate Screen Recorder Companion for Windows 10</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/quick-start-guide-utilizing-aiseesoft-for-effortless-screen-recordings/"><u>Quick Start Guide Utilizing Aiseesoft for Effortless Screen Recordings</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-social-media-paradox-navigating-its-darker-impacts/"><u>The Social Media Paradox: Navigating Its Darker Impacts</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/ultimate-tutorial-on-linking-a-ps4-contoller-to-console/"><u>Ultimate Tutorial on Linking a PS4 Contoller to Console</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-transforming-viewership-into-viewer-funds-on-youtube/"><u>[New] 2024 Approved Transforming Viewership Into Viewer Funds on YouTube</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-instagram-enhancement-the-top-tactics-for-better-storytelling/"><u>[New] Instagram Enhancement The Top Tactics for Better Storytelling</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-breaking-down-instagrams-per-video-ceiling/"><u>[Updated] 2024 Approved Breaking Down Instagram's Per-Video Ceiling</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-effortless-visual-transitions-using-instagram-chroma-keying/"><u>[Updated] 2024 Approved Effortless Visual Transitions Using Instagram Chroma Keying</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-facetime-call-screen-recording-the-beginners-guide/"><u>[Updated] In 2024, FaceTime Call Screen Recording The Beginner's Guide</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-liveaudiovideocasting-network/"><u>2024 Approved LiveAudioVideocasting Network</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-pro-editor-tips-cropping-and-export-your-videos-for-instagram-success/"><u>2024 Approved Pro Editor Tips Cropping & Export Your Videos for Instagram Success</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-finalized-choices-best-10-video-editing-tools-for-reels/"><u>In 2024, Finalized Choices Best 10 Video Editing Tools for Reels</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/privacy-precautions-minimizing-the-risks-when-using-individualized-generative-pre-trained-transformer-technologies/"><u>Privacy Precautions: Minimizing the Risks When Using Individualized Generative Pre-Trained Transformer Technologies</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/video-mastery-on-instagram-tips-and-tricks-for-2024/"><u>Video Mastery on Instagram Tips and Tricks for 2024</u></a></li>
 </ul></div>
 

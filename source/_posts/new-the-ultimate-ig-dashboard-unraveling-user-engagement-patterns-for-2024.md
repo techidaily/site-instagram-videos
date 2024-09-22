@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Ultimate IG Dashboard  Unraveling User Engagement Patterns for 2024\""
-date: 2024-09-14T21:35:11.290Z
-updated: 2024-09-16T03:59:23.335Z
+date: 2024-09-21T09:24:07.973Z
+updated: 2024-09-22T02:10:41.820Z
 tags:
   - ai video
   - ai instagram
@@ -60,10 +60,10 @@ On your business profile, click a post to view insights. A right tilted arrow on
 On a promoted post click ‘Original’ to view its Instagram Insights, and tap ‘Promotion’ for viewing insights.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115934/19272" target="_top" id="2115934">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115934" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115934/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Access insights from story
@@ -72,13 +72,6 @@ Automatic chronological sorting of Stories helps to understand the pattern of co
 
 * Open ‘Stories’, and swipe up the post.
 * Click the vertical-bar icon and view your Story insights.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: View Posts Data
 
@@ -103,13 +96,6 @@ The ‘Discovery’ section’s first statistics denotes percentage of non-follo
 **Others** – posts shared through DM, saved, mentioned, tagged, notifications from tagged/mentioned posts, and posts on ‘Following’ tab notifications
 
 ![view ig data from posts](https://images.wondershare.com/filmora/article-images/view-ig-data-from-posts.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Filtering post data based on metric, timeframe, and content type
 
@@ -139,6 +125,13 @@ Only ‘Stories’ after subscribing to a business account will be offered insig
 
 ## Part 4: Notes you should know
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### The difference between impressions and reach
 
 Impressions are a number of times a post has been viewed, whereas reach explains the unique views on your post. One account’s multiple views are taken as a single reach but multiple impressions.
@@ -156,10 +149,17 @@ Apart from Instagram Insights, you can look for a tool like Keyhole. Its Instagr
 ![keyhole](https://images.wondershare.com/filmora/article-images/keyhole.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2. [Squarelovin](https://squarelovin.com/business/home/instagram-insights/)
@@ -169,10 +169,10 @@ Squarelovin is an in-depth Instagram analytics tool that shows the metrics for r
 ![squarelovin](https://images.wondershare.com/filmora/article-images/squarelovin.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -198,16 +198,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-quantum-leap-in-photography-understanding-hdr/"><u>[New] In 2024, Quantum Leap in Photography Understanding HDR</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-instagram-artistry-the-top-image-enhancers-for-2024/"><u>[New] Instagram Artistry The Top Image Enhancers for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-the-ultimate-list-for-capturing-instagram-vids-pcmac/"><u>[New] The Ultimate List for Capturing Instagram Vids (PC/Mac)</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-unlocking-the-power-of-partnerships-a-guide-to-monetizing-instagram-posts-for-2024/"><u>[New] Unlocking the Power of Partnerships A Guide to Monetizing Instagram Posts for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-how-to-create-text-memes-with-meme-text-generator/"><u>[Updated] How to Create Text Memes with Meme Text Generator?</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-inverting-instagram-videos-step-by-step-guide-for-2024/"><u>[Updated] Inverting Instagram Videos Step-by-Step Guide for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-the-creme-de-la-creme-of-25-instagram-talents/"><u>[Updated] The Crème De La Crème of 25 Instagram Talents</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/2024-approved-demystifying-the-advanced-features-in-vlc/"><u>2024 Approved Demystifying the Advanced Features in VLC</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/budding-entrepreneurs-guide-mastering-the-art-of-social-media-advertising/"><u>Budding Entrepreneurs Guide Mastering the Art of Social Media Advertising</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-iphone-6-plus-without-passcode-4-easy-methods-by-drfone-ios/"><u>In 2024, How To Unlock iPhone 6 Plus Without Passcode? 4 Easy Methods</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/reviving-the-soundscape-of-skyrim-troubleshooting-audio-problems-effectively/"><u>Reviving the Soundscape of Skyrim: Troubleshooting Audio Problems Effectively</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-conquer-the-social-scene-top-tools-for-post-and-follower-boost/"><u>[New] In 2024, Conquer the Social Scene Top Tools for Post and Follower Boost</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-creating-instagram-virality-video-edition/"><u>[New] In 2024, Creating Instagram Virality Video Edition</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-innovative-approaches-adding-borders-to-your-instagram-content/"><u>[New] In 2024, Innovative Approaches Adding Borders to Your Instagram Content</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-enhancing-engagement-on-igtv-with-well-oriented-videos/"><u>[Updated] 2024 Approved Enhancing Engagement on IGTV with Well-Oriented Videos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-leveraging-likes-and-shares-for-viral-content/"><u>[Updated] 2024 Approved Leveraging Likes and Shares for Viral Content</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-go-from-camera-to-cellphone-vt-adjustments-in-fcpx/"><u>[Updated] Go From Camera to Cellphone VT Adjustments in FCPX</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-navigating-through-instagrams-new-trends/"><u>[Updated] In 2024, Navigating Through Instagram's New Trends</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-industry-standards-top-10-excellent-4k-dslr-rigs/"><u>2024 Approved Industry Standards Top 10 Excellent 4K DSLR Rigs</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-instagram-collage-hacks-unveiled/"><u>2024 Approved Instagram Collage Hacks Unveiled</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/about-realme-narzo-n53-frp-bypass-by-drfone-android/"><u>About Realme Narzo N53 FRP Bypass</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-can-life360-track-you-when-your-motorola-moto-g04-is-off-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track You When Your Motorola Moto G04 is off? | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-innovative-listening-techniques-for-students-with-macs/"><u>In 2024, Innovative Listening Techniques for Students with Macs</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-unveiling-youtubes-behind-the-scenes-editor-space/"><u>In 2024, Unveiling YouTube's Behind-the-Scenes Editor Space</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/instagram-story-viewers-uncharted-territory-explored/"><u>Instagram Story Viewers Uncharted Territory Explored</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-2024-approved-syncopation-techniques-matching-music-with-film-footage/"><u>New 2024 Approved Syncopation Techniques Matching Music with Film Footage</u></a></li>
+<li><a href="https://fox-access.techidaily.com/unveiling-the-high-res-sky-scenes-with-mi-drone/"><u>Unveiling the High-Res Sky Scenes with Mi Drone</u></a></li>
 </ul></div>
 

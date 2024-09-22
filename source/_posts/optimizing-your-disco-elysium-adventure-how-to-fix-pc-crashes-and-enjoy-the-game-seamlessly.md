@@ -1,7 +1,7 @@
 ---
 title: "Optimizing Your Disco Elysium Adventure: How to Fix PC Crashes & Enjoy the Game Seamlessly"
-date: 2024-09-14T04:45:26.142Z
-updated: 2024-09-16T04:02:33.332Z
+date: 2024-09-15T23:01:27.193Z
+updated: 2024-09-21T19:42:57.548Z
 tags:
   - win11
   - win10
@@ -58,13 +58,6 @@ A screenshot of Ghostwire: Tokyo from Steam
 
 There’re mainly two ways you can update your graphics drivers:
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Option 1: Manually
 
  You’ll need some computer skills and patience to update your drivers this way, because you need to find exactly the right the driver online, download it and install it step by step.
@@ -79,13 +72,6 @@ There’re mainly two ways you can update your graphics drivers:
  Once you’ve downloaded the correct drivers for your system, double-click on the downloaded file and follow the on-screen instructions to install the driver.
 
 Or
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Option 2: Automatically (Recommended)
 
@@ -103,8 +89,23 @@ Or
 2. Run Driver Easy and click the**Scan Now** button. Driver Easy will then scan your computer and detect any problem drivers.  
 ![Driver Easy Scan Now](https://images.drivereasy.com/wp-content/uploads/2021/03/Driver-Easy-Scan-Now.jpg)
 3. Click**Update All** to automatically download and install the correct version of_all_ the drivers that are missing or out of date on your system.  
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Update graphics drivers with Driver Easy](https://images.drivereasy.com/wp-content/uploads/2020/09/de-update-all-rtx-3080.jpg)  
  (This requires **[the Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click Update All. If you don’t want to pay for the Pro version, you can still download and install all the drivers you need with the free version; you just have to download them one at a time, and manually install them, the normal Windows way.)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **The Pro version of Driver Easy** comes with _full technical support_ . If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
 
@@ -138,6 +139,19 @@ Or
 **Email:** <support@fortect.com>  
 **Submit a ticket:** _[https://www.fortect.com/company/contacts/](https://www.reimageplus.com/submit-ticket/)_
 
+<!-- affiliate ads begin -->
+<span id="1155462">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Fix 4: Install the latest game patch
 
  The game developers release regular game patches to fix bugs and improve gaming performance. It’s possible that a recent patch has caused the game crash issue, and that a new patch is required to fix it.
@@ -156,16 +170,17 @@ Or
 2. Click the Download button to start the download.  
 ![download latest DirectX](https://images.drivereasy.com/wp-content/uploads/2021/03/download-latest-DirectX.jpg)
 3. Once downloaded, double-click the downloaded**.exe** file to install it on your computer.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 4. Restart your computer and launch the game.
 
  See if Ghostwire: Tokyo crashes again after you installed the latest DirectX file. If this fix didn’t work for you, try the next fix, below.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Fix 6: Stop overclocking
 
@@ -177,13 +192,6 @@ Or
 
  See this issue persists after you stopped overclocking. If this fix didn’t help, try the next fix, below.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Fix 7: Disable Steam Overlay
 
  Overlays are convenient, but sometimes they would interfere with the game and even block the game files, leading to the game crashing issues.
@@ -193,18 +201,19 @@ Or
 1. Launch Steam and navigate to **the LIBRARY tab** . **right-click** on _Ghostwire: Tokyo_ . Then select **Properties** .  
 ![Steam game properties](https://images.drivereasy.com/wp-content/uploads/2021/04/Steam-game-F1-2020-properties.jpg)
 2. Uncheck **Enable Steam Overlay while in-game** .  
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![disable steam overlay](https://images.drivereasy.com/wp-content/uploads/2021/05/disable-steam-overlay.jpg)
 
  If you’re using other apps with overlay features (e.g. Xbox Game Bar, Discord, Nvidia GeForce Experience, Twitch, etc.), ensure you’ve disabled the in-game overlay in those apps feature.
 
  Launch Ghostwire: Tokyo and see if the it crashes again. If this fix doesn’t work, try the next fix, below.
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Fix 8: Disable third-party antivirus software
 
@@ -237,18 +246,13 @@ Or
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-impact-of-new-instagrams-algorithms-on-users/"><u>[New] In 2024, Impact of New Instagram's Algorithms on Users</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-instantaneous-instagram-video-experience/"><u>[New] Instantaneous Instagram Video Experience</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-mastering-instagram-videos-size-and-format-tips/"><u>[Updated] 2024 Approved Mastering Instagram Videos Size and Format Tips</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-5-effective-ways-of-resizing-your-igtv-videos/"><u>[Updated] 5 Effective Ways of Resizing Your IGTV Videos</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-master-the-art-of-instagram-friendly-video-editing/"><u>[Updated] In 2024, Master the Art of Instagram-Friendly Video Editing</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-secrets-to-save-your-favorite-igtv-on-phoneandroid-for-2024/"><u>[Updated] Secrets to Save Your Favorite IGTV on Phone/Android for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-the-secret-to-amplifying-your-igtv-reach-through-hashtags-for-2024/"><u>[Updated] The Secret to Amplifying Your IGTV Reach Through Hashtags for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-youtube-shorts-music-things-you-need-to-know/"><u>[Updated] YouTube Shorts Music - Things You Need to Know</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-master-plan-to-permanently-remove-youtube-shorts/"><u>2024 Approved Master Plan to Permanently Remove YouTube Shorts</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fix-my-samsung-galaxy-m34-5g-location-is-wrong-drfone-by-drfone-virtual-android/"><u>How to Fix My Samsung Galaxy M34 5G Location Is Wrong | Dr.fone</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/leading-edge-in-data-management-premiere-server-racks-of-2024-unveiled/"><u>Leading Edge in Data Management: Premiere Server Racks of 2024 Unveiled</u></a></li>
-<li><a href="https://program-issues.techidaily.com/no-luck-with-your-pacifica-hard-drive-learn-fixes-for-a-successful-boot/"><u>No Luck with Your Pacifica Hard Drive? Learn Fixes for a Successful Boot</u></a></li>
-<li><a href="https://win-forum.techidaily.com/1723809008145-top-tips-for-optimizing-menu-functionality-on-leading-networks-learn-to-efficiently-scroll-and-manage-content-on-facebook-linkedin-and-youtube/"><u>Top Tips for Optimizing Menu Functionality on Leading Networks – Learn to Efficiently Scroll & Manage Content on Facebook, LinkedIn, and YouTube</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-mastering-instagram-picture-perfection-expert-tips-unveiled/"><u>[New] In 2024, Mastering Instagram Picture Perfection Expert Tips Unveiled</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-navigating-cross-platform-shares-igtv-and-facebook/"><u>[New] Navigating Cross-Platform Shares IGTV & Facebook</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-the-definitive-guide-to-post-production-perfection-on-instagram/"><u>[New] The Definitive Guide to Post-Production Perfection on Instagram</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-critiquing-the-validation-status-of-online-instagramselfies-for-2024/"><u>[Updated] Critiquing the Validation Status of Online Instagramselfies for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-revolutionizing-iphone-photography-with-hdr-techniques/"><u>[Updated] In 2024, Revolutionizing iPhone Photography with HDR Techniques</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/diy-personalized-android-user-interface-creation-using-cost-free-tools/"><u>DIY Personalized Android User Interface Creation Using Cost-Free Tools</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/ending-unwanted-plays-in-apple-music-effective-tips-and-tricks/"><u>Ending Unwanted Plays in Apple Music: Effective Tips and Tricks</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/solution-guide-how-to-stop-gears-5-from-crashing-and-improve-gameplay/"><u>Solution Guide: How to Stop Gears 5 From Crashing and Improve Gameplay</u></a></li>
 </ul></div>
 

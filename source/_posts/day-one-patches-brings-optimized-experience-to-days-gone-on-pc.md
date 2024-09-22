@@ -1,7 +1,7 @@
 ---
 title: Day One Patches Brings Optimized Experience to 'Days Gone' On PC
-date: 2024-09-11T02:38:44.742Z
-updated: 2024-09-16T00:15:20.074Z
+date: 2024-09-15T20:23:25.617Z
+updated: 2024-09-21T17:50:38.305Z
 tags:
   - win11
   - win10
@@ -79,6 +79,13 @@ Below are a few common overlays and how to disable them.
 
  There are mainly two ways you can update your graphics driver:[manually](https://tools.techidaily.com/drivereasy/download/) and **[automatically](https://tools.techidaily.com/drivereasy/download/)**  .
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Option 1 – Manually update your graphics driver
 
  To update your graphics driver manually, you can go to the official website:
@@ -88,6 +95,13 @@ Below are a few common overlays and how to disable them.
 [Intel](https://www.intel.com/content/www/us/en/download-center/home.html)
 
  Then find the driver corresponding with your Windows version and download it manually. Once you’ve downloaded the correct driver for your system, double-click on the downloaded file and follow the on-screen instructions to install it.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Option 2 – Automatically update your graphics driver (recommended)
 
@@ -104,15 +118,22 @@ Below are a few common overlays and how to disable them.
 ![Download & Update NVIDIA GeForce RTX 3080 Ti driver](https://images.drivereasy.com/wp-content/uploads/2021/06/Download-Update-NVIDIA-GeForce-RTX-3080-Ti-driver.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **The Pro version of Driver Easy** comes with _full technical support_ . If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
 
  After updating drivers, restart your PC for the changes to take full effect. If you still have FPS drops and stuttering issues, try the next fix below.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 4\. Enable hardware-accelerated GPU scheduling
 
@@ -123,56 +144,29 @@ Below are a few common overlays and how to disable them.
 ![enable hardware-acceleration GPU scheduling](https://images.drivereasy.com/wp-content/uploads/2021/08/display-settings-1.png)
 2. Scroll down. Find **Graphics settings** and click on it.  
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115929/19272" target="_top" id="2115929">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115929" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115929/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2021/07/graphics-settings-1.jpg)
 3. Toggle**On** Hardware-accelerated GPU scheduling.  
 
 ![enable hardware-acceleration GPU scheduling](https://images.drivereasy.com/wp-content/uploads/2021/08/turn-on-hardware-accelerated-GPU-scheduling.png)
 4. Also make sure you’ve selected**Desktop app** . Then click on the**Browse** button.  
 
-<!-- affiliate ads begin -->
-<span id="1993651">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2021/10/graphics-settings.png)
 5. Then navigate to your game’s installation directory. Click**BF2042.exe** and click**Add** .  
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2021/10/add-BF2042.png)
 6. Your game should appear on the list. Click on the**Options** button.  
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/10/options-button.png)
 7. Select**High Performance** .  
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/10/high-performance.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Tips: If you’re not sure how to locate your game’s installation folder, head to Steam. Under LIBRARY, right-click your game title and select**Manage > Browse local files** .  
   
@@ -221,17 +215,19 @@ If this doesn’t do the trick, try the next fix below.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-uncovering-hidden-content-secrets-of-fb-suggested-vids/"><u>[New] 2024 Approved Uncovering Hidden Content Secrets of FB Suggested Vids</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-unraveling-the-film-reel-how-to-rewind-on-instagram/"><u>[New] In 2024, Unraveling the Film Reel How to Rewind on Instagram</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-mastering-authenticity-checks-on-instagram-for-2024/"><u>[New] Mastering Authenticity Checks on Instagram for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-sonic-enhancement-strategies-for-your-instagram-creativity/"><u>[Updated] In 2024, Sonic Enhancement Strategies for Your Instagram Creativity</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-virtual-racing-masterclass-our-five-favorite-games-for-2024/"><u>[Updated] Virtual Racing Masterclass Our Five Favorite Games for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-master-the-art-of-captivating-instagram-video-audiences/"><u>2024 Approved Master the Art of Captivating Instagram Video Audiences</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/essential-insights-employing-law-filters-within-windows/"><u>Essential Insights: Employing LAW Filters Within Windows</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-frp-from-zte-blade-a73-5g-by-drfone-android/"><u>How to Bypass FRP from ZTE Blade A73 5G?</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-changefake-your-motorola-moto-g-stylus-2023-location-on-viber-drfone-by-drfone-virtual-android/"><u>How to Change/Fake Your Motorola Moto G Stylus (2023) Location on Viber | Dr.fone</u></a></li>
-<li><a href="https://android-location.techidaily.com/mastering-technology-choices-with-toms-expert-hardware-reviews/"><u>Mastering Technology Choices with Tom's Expert Hardware Reviews</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/sizing-up-best-practices-for-instagram-videos-in-2eary-2023-for-2024/"><u>Sizing Up Best Practices for Instagram Videos in 2Eary 2023 for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/the-insiders-guide-to-personalizing-your-instagram-vocal-style/"><u>The Insider's Guide to Personalizing Your Instagram Vocal Style</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-achieving-ideal-mac-resized-instagram-video-content/"><u>[New] In 2024, Achieving Ideal Mac-Resized Instagram Video Content</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-pioneer-productions-leading-free-editors-on-android/"><u>[New] In 2024, Pioneer Productions Leading Free Editors on Android</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-mastering-mcn-your-comprehensive-youtube-creators-roadmap/"><u>[New] Mastering MCN Your Comprehensive YouTube Creator's Roadmap</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-meme-mastery-strategies-for-engaging-audiences-with-fb-and-instagram-videos/"><u>[New] Meme Mastery Strategies for Engaging Audiences with FB & Instagram Videos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-cutting-edge-tools-for-igtv-content-creation-and-editing/"><u>[Updated] 2024 Approved Cutting-Edge Tools for IGTV Content Creation and Editing</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-private-chronicles-in-snapchat-an-essential-guide/"><u>[Updated] 2024 Approved Private Chronicles in Snapchat An Essential Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-essential-vids-summary-uncovered/"><u>[Updated] In 2024, Essential Vids Summary Uncovered</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-mastering-the-height-final-cut-pro-x-techniques-for-instagram-video/"><u>[Updated] In 2024, Mastering the Height Final Cut Pro X Techniques for Instagram Video</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-posting-videos-on-twitter-step-by-step/"><u>[Updated] In 2024, Posting Videos on Twitter Step-by-Step</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-masterful-bordering-techniques-for-stellar-instagram-videos-for-2024/"><u>[Updated] Masterful Bordering Techniques for Stellar Instagram Videos for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-quick-glance-at-stars-contribution/"><u>2024 Approved Quick Glance at Star's Contribution</u></a></li>
+<li><a href="https://fox-http.techidaily.com/charting-a-course-through-creative-professions/"><u>Charting a Course Through Creative Professions</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/comparing-copilot-vs-copilot-pro-is-an-upgrade-worth-it/"><u>Comparing Copilot Vs. Copilot Pro: Is an Upgrade Worth It?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/your-israel-adventure-blueprint-key-expressions-and-essentials/"><u>Your Israel Adventure Blueprint: Key Expressions and Essentials</u></a></li>
 </ul></div>
 

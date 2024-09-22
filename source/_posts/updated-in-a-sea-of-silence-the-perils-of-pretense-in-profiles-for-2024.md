@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In a Sea of Silence  The Perils of Pretense in Profiles for 2024\""
-date: 2024-09-11T03:00:51.555Z
-updated: 2024-09-15T17:19:27.427Z
+date: 2024-09-20T09:57:35.026Z
+updated: 2024-09-21T22:22:19.865Z
 tags:
   - ai video
   - ai instagram
@@ -49,6 +49,13 @@ thumbnail: https://thmb.techidaily.com/fa21f0e3da9170853bae87f9e51fccaaee500ab18
 
  What do all these numbers mean? It means that if you were to buy likes, you would be arousing suspicion of brands who may want to hire you for sponsorship purposes. Say you are buying a lot of likes because they are cheaper to get than followers. If you have 15,000 followers and an engagement level of 6 or 7 percent, your account is suspicious.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Buying Fake Likes is a Black Hole
 
  It is so easy to think that you will be purchasing fake likes on Instagram for one or two uses. “I just want to promote a couple of my posts to gain exposure.” These are the words that every like buyer utters. A month later, they are furiously buying likes for every single post they put up on Instagram.
@@ -58,10 +65,10 @@ thumbnail: https://thmb.techidaily.com/fa21f0e3da9170853bae87f9e51fccaaee500ab18
 ![ins fake likes](https://images.wondershare.com/filmora/article-images/ins-rules.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. Violation of Instagram Rules
@@ -73,10 +80,10 @@ thumbnail: https://thmb.techidaily.com/fa21f0e3da9170853bae87f9e51fccaaee500ab18
  And many of the sites that offer like buying services get shut down, which instantly impacts the likes you get on your next posts. It can turn into a race of you buying more likes from other sellers, until they get shut down too.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: How to Identify Accounts with Fake Likes
@@ -89,24 +96,18 @@ thumbnail: https://thmb.techidaily.com/fa21f0e3da9170853bae87f9e51fccaaee500ab18
 
  Those who are insistent on buying likes will need to buy followers to match up the engagement levels with the numbers we mentioned above. But it is more hassle than it is worth!
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Posts and Likes Do Not Match Up
 
  When an account has very few posts, but any likes on each post, it is unusual. It generally takes a lot of posts before an account can rack up a high follower and like count. The only time accounts with few posts have a lot of likes is when they are started by a celebrity.
 
  If you notice an influencer has three or four posts in the past month, but they have thousands of likes on each post, it is suspicious. There is a good chance the influencer used inauthentic methods of gaining those likes.
-
-<!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Spam Comments
 
@@ -124,13 +125,6 @@ thumbnail: https://thmb.techidaily.com/fa21f0e3da9170853bae87f9e51fccaaee500ab18
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -146,17 +140,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-crafting-memorable-content-on-snapchat-top-tips/"><u>[New] Crafting Memorable Content on Snapchat (Top Tips)</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-galaxy-visionhub-premium-integrated-4k-all-in-one-panels/"><u>[New] Galaxy VisionHub Premium Integrated 4K All-in-One Panels</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-crafting-cinematic-magic-making-your-instagram-videos-shine/"><u>[New] In 2024, Crafting Cinematic Magic Making Your Instagram Videos Shine</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-infusing-personality-into-instagram-stories-with-unique-icons/"><u>[New] In 2024, Infusing Personality Into Instagram Stories with Unique Icons</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-embellish-videos-and-stories-with-charts-notes-and-more/"><u>[Updated] 2024 Approved Embellish Videos & Stories with Charts, Notes & More</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-leveraging-text-overlays-for-engaging-visual-posts/"><u>[Updated] 2024 Approved Leveraging Text Overlays for Engaging Visual Posts</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-social-snapshot-post-photosvideos-without-a-twit/"><u>[Updated] 2024 Approved Social Snapshot Post Photos/Videos without a Twit</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-unveiling-hidden-details-in-asmr-recordings/"><u>[Updated] Unveiling Hidden Details in ASMR Recordings</u></a></li>
-<li><a href="https://extra-information.techidaily.com/how-asmr-enhances-your-daily-life-learn-here/"><u>How ASMR Enhances Your Daily Life – Learn Here</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/streamlining-color-correction-leveraging-look-up-tables-from-cg-central/"><u>Streamlining Color Correction Leveraging Look-Up Tables From CG Central</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/the-ultimate-guide-to-instagram-looping-videos/"><u>The Ultimate Guide to Instagram Looping Videos</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-poco-c50-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Poco C50 | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-easy-steps-to-record-your-snapchat-screen/"><u>[New] 2024 Approved Easy Steps to Record Your Snapchat Screen</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-textual-transformations-the-photographers-guide-to-image-edits-for-2024/"><u>[New] Textual Transformations The Photographer's Guide to Image Edits for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-discover-the-power-of-sonic-content-for-insta-stories/"><u>[Updated] 2024 Approved Discover the Power of Sonic Content for Insta Stories</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-echoes-of-engagement-the-subtle-aspects-of-story-viewing/"><u>[Updated] 2024 Approved Echoes of Engagement The Subtle Aspects of Story Viewing</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-breaking-down-instagrams-standard-video-cap-solutions-for-2024/"><u>[Updated] Breaking Down Instagram's Standard Video Cap Solutions for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-navigating-the-viral-terrain-with-smart-instagram-video-tactics/"><u>[Updated] In 2024, Navigating the Viral Terrain with Smart Instagram Video Tactics</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-ultimate-list-of-premium-androidpc-video-editors/"><u>[Updated] The Ultimate List of Premium Android/PC Video Editors</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-blend-mp3s-with-presentation-content-in-ppt/"><u>2024 Approved Blend MP3s with Presentation Content in PPT</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-locating-live-broadcasts-and-shared-films-on-fb/"><u>2024 Approved Locating Live Broadcasts and Shared Films on FB</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-unveiling-the-secrets-of-superior-tunefab-recordings/"><u>2024 Approved Unveiling the Secrets of Superior Tunefab Recordings</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/airpods-not-playing-audio-solve-the-problems-in-windows-11-and-10-systems/"><u>AirPods Not Playing Audio? Solve the Problems in Windows 11 and 10 Systems!</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/cookiebot-enhanced-experience-the-ultimate-analytics-solution/"><u>Cookiebot-Enhanced Experience: The Ultimate Analytics Solution</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/day-one-patches-brings-optimized-experience-to-days-gone-on-pc/"><u>Day One Patches Brings Optimized Experience to 'Days Gone' On PC</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/hidden-gems-galore-top-10-unique-meme-webpages/"><u>Hidden Gems Galore – Top 10 Unique Meme Webpages</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-the-ultimate-users-guide-for-navigating-durecorder-world/"><u>In 2024, The Ultimate User’s Guide for Navigating DuRecorder World</u></a></li>
 </ul></div>
 

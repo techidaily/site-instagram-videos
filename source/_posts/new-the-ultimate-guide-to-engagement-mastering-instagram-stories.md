@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Ultimate Guide to Engagement  Mastering Instagram Stories\""
-date: 2024-09-14T18:01:08.244Z
-updated: 2024-09-15T22:20:40.705Z
+date: 2024-09-21T04:07:08.300Z
+updated: 2024-09-21T20:40:01.350Z
 tags:
   - ai video
   - ai instagram
@@ -118,31 +118,38 @@ You can add 'Polls', 'Location', and 'Hashtags' to your Insta Stories by tapping
 
 To turn your own face into a sticker, you can tap the camera icon under the 'Stickers' section and take a selfie. Then tap on the selfie to pin it as a sticker on your picture or video, and then share as your Instagram Story.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Use your pen
 
 ![](https://images.wondershare.com/filmora/article-images/instagram-pen.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Now that you have used funny stickers to make your picture (for Insta Story) attractive, how about adding a cute personal note as well? Well, you can do that by tapping on the pen icon right next to 'Stickers'. Select the desired pen type (highlighter, airbrush, eraser, etc.) from the top and then color from the bottom of the screen. You can adjust the pen size using the slider found at the left side. After writing or doodling on the image, tap on the tick mark at the top right corner and you are good to go.
 
 Whoa! You are becoming a sport at how to use Instagram Stories.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Add text
 
 ![](https://images.wondershare.com/filmora/article-images/add-text-to-instagram.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 You can also add text to make your Instagram Stories more attractive. Tap on the 'Aa' icon on the extreme right corner of your screen (in Instagram camera) and start typing. You can change the font style by tapping the style available on top of the screen, as well as select the color of the 'Text'. You can also tag people in 'Text' by typing '@' and then the handle name of the person, then click on their image.
 
@@ -170,19 +177,6 @@ With this complete guide for Instagram Stories, we are hopeful that you are goin
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983575">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -198,20 +192,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/n-2024-jumpstart-to-partner-elevation-secure-10k-views-in-minutes/"><u>[New] In 2024, Jumpstart to Partner Elevation Secure 10K Views in Minutes!</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-no-cost-speedy-tips-for-exposing-deceptive-instagram-acquaintances/"><u>[New] In 2024, No-Cost, Speedy Tips for Exposing Deceptive Instagram Acquaintances</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-spotlight-10-anonymous-story-gazers/"><u>[New] Spotlight 10 Anonymous Story Gazers</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-in-2024-comprehensive-guide-to-drone-visuals/"><u>[Updated] In 2024, Comprehensive Guide to Drone Visuals</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-instas-friendship-breakdown-detect-it-fast-for-2024/"><u>[Updated] Insta's Friendship Breakdown Detect It Fast for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-instagram-videography-guide-size-matters-for-2024/"><u>[Updated] Instagram Videography Guide - Size Matters for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-navigating-network-growth-strategies-for-instagram-success-for-2024/"><u>[Updated] Navigating Network Growth Strategies for Instagram Success for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-your-quick-guide-to-securing-a-youtube-revenue-stream/"><u>2024 Approved Your Quick Guide to Securing a Youtube Revenue Stream</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/comparing-echo-dot-and-homepod-mini-key-distinctions-explained/"><u>Comparing Echo Dot and HomePod Mini: Key Distinctions Explained</u></a></li>
-<li><a href="https://blog-min.techidaily.com/easy-guide-to-uploading-videos-from-your-computer-to-youtube-using-a-free-converter/"><u>Easy Guide to Uploading Videos From Your Computer to YouTube Using a Free Converter</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/ensuring-personal-security-disconnecting-from-chatgpt-when-needed/"><u>Ensuring Personal Security: Disconnecting From ChatGPT When Needed</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/forgot-locked-apple-iphone-15-pro-max-password-learn-the-best-methods-to-unlock-drfone-by-drfone-ios/"><u>Forgot Locked Apple iPhone 15 Pro Max Password? Learn the Best Methods To Unlock | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-motorola-moto-g73-5g-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Motorola Moto G73 5G to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-unlocking-the-power-of-smart-lock-a-beginners-guide-for-tecno-camon-20-pro-5g-users-by-drfone-android/"><u>In 2024, Unlocking the Power of Smart Lock A Beginners Guide for Tecno Camon 20 Pro 5G Users</u></a></li>
-<li><a href="https://techtrends.techidaily.com/the-electric-vehicle-showdown-bev-vs-phev-vs-fcev-vs-hybrid-knowing-your-options/"><u>The Electric Vehicle Showdown: BEV vs PHEV vs FCEV vs Hybrid - Knowing Your Options</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-frame-your-cinematic-tales-three-paths-for-instagram-borders/"><u>[New] Frame Your Cinematic Tales Three Paths for Instagram Borders</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-effortless-igtv-video-downloads-ios-and-android-guide/"><u>[New] In 2024, Effortless IGTV Video Downloads IOS & Android Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-maintaining-your-instagram-circle-health/"><u>[New] Maintaining Your Instagram Circle Health</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-optimize-your-films-a-mac-approach-to-instagram-shortening-for-2024/"><u>[New] Optimize Your Films A Mac Approach to Instagram Shortening for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-techniques-for-correcting-motion-blur-from-drones/"><u>[New] Techniques for Correcting Motion Blur From Drones</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-unlocking-user-preferences-with-instagrams-real-time-feedback/"><u>[New] Unlocking User Preferences with Instagram's Real-Time Feedback</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-expert-recommendations-high-quality-mac-video-grabber-tools/"><u>[Updated] 2024 Approved Expert Recommendations High-Quality Mac Video Grabber Tools</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-unleash-your-artistic-side-using-bokeh-to-dazzle-insta-followers/"><u>[Updated] In 2024, Unleash Your Artistic Side Using Bokeh to Dazzle Insta Followers</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-mastering-instagram-analytics-audience-insight-crusade/"><u>[Updated] Mastering Instagram Analytics Audience Insight Crusade</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-ultimate-way-to-update-old-photos-and-videos-with-ig-filters/"><u>[Updated] The Ultimate Way to Update Old Photos and Videos with IG Filters</u></a></li>
+<li><a href="https://android-location.techidaily.com/9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-oppo-reno-9a-drfone-by-drfone-virtual/"><u>9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Oppo Reno 9A | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/a-step-by-step-approach-to-enhanced-roblox-views/"><u>A Step-by-Step Approach to Enhanced Roblox Views</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-become-a-science-whiz-with-these-prime-15-youtube-picks/"><u>In 2024, Become a Science Whiz with These Prime 15 YouTube Picks</u></a></li>
+<li><a href="https://extra-information.techidaily.com/landmarks-of-virtual-reality-showcases/"><u>Landmarks of Virtual Reality Showcases</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/navigating-peer-to-peer-sharing-the-best-torrent-services-ranked-globally/"><u>Navigating Peer-to-Peer Sharing: The Best Torrent Services Ranked Globally</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/proven-pathways-to-peeling-away-pesky-backdrops-with-affinity-photo-tools-for-2024/"><u>Proven Pathways to Peeling Away Pesky Backdrops with Affinity Photo Tools for 2024</u></a></li>
 </ul></div>
 

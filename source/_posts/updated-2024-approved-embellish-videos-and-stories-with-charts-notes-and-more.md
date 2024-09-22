@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Embellish Videos & Stories with Charts, Notes & More\""
-date: 2024-09-12T01:48:58.466Z
-updated: 2024-09-15T21:19:49.814Z
+date: 2024-09-20T12:31:17.490Z
+updated: 2024-09-21T19:41:44.246Z
 tags:
   - ai video
   - ai instagram
@@ -79,10 +79,10 @@ Using apps like Spotify to play music while recording your Instagram stories is 
 In order to start recording an Instagram story, you'll need to tap on the camera icon that is located in the upper left corner of the app's screen. Use the Control Center to switch to the app from which you want to play music from and hit play. Head back to the Instagram app and start recording your story while the music is playing. The 15-second video will be added to your Story after you click on the + icon.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -92,10 +92,10 @@ Adding music to your Instagram stories and videos will make them more dynamic an
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115925/19272" target="_top" id="2115925">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115925" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115925/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -113,15 +113,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/n-2024-amplifying-your-content-free-techniques-to-boost-youtube-views/"><u>[New] In 2024, Amplifying Your Content Free Techniques to Boost YouTube Views</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-integrating-text-overlays-into-social-media-streaming-for-2024/"><u>[New] Integrating Text Overlays Into Social Media Streaming for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-apeaks-leap-forward-in-screen-capture-review-and-results/"><u>[Updated] In 2024, Apeak’s Leap Forward in Screen Capture – Review and Results</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-shatter-the-illusion-true-viewers-of-your-insta-posts-revealed/"><u>[Updated] Shatter the Illusion True Viewers of Your Insta Posts Revealed</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-speedy-conversion-of-insta-videos-to-audio-files-mp3/"><u>[Updated] Speedy Conversion of Insta Videos to Audio Files (Mp3)</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-messages-from-infinix-note-30-vip-racing-edition-by-fonelab-android-recover-messages/"><u>Easy steps to recover deleted messages from Infinix Note 30 VIP Racing Edition</u></a></li>
-<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-samsung-galaxy-s24plus-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your Samsung Galaxy S24+ Location Settings | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/master-afrikaans-in-7-steps-with-mondlys-easy-lessons/"><u>Master Afrikaans in 7 Steps with Mondly's Easy Lessons</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/quick-and-secure-how-to-bookmark-your-login-details-on-chrome/"><u>Quick and Secure: How to Bookmark Your Login Details on Chrome</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/tiktoks-biggest-foodie-trends-unveiled/"><u>TikTok's Biggest Foodie Trends Unveiled</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-leading-edge-speech-recognition-tools/"><u>[New] Leading Edge Speech Recognition Tools</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-mastering-instagram-videos-size-and-format-tips/"><u>[Updated] 2024 Approved Mastering Instagram Videos Size and Format Tips</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-5-effective-ways-of-resizing-your-igtv-videos/"><u>[Updated] 5 Effective Ways of Resizing Your IGTV Videos</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-bringing-images-to-life-windows-and-mac-text-integration-techniques/"><u>[Updated] Bringing Images to Life Windows & Mac Text Integration Techniques</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-follower-fallout-on-instagram-how-to-spot-it-for-2024/"><u>[Updated] Follower Fallout on Instagram How to Spot It for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-secrets-to-save-your-favorite-igtv-on-phoneandroid-for-2024/"><u>[Updated] Secrets to Save Your Favorite IGTV on Phone/Android for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-secret-to-amplifying-your-igtv-reach-through-hashtags-for-2024/"><u>[Updated] The Secret to Amplifying Your IGTV Reach Through Hashtags for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-elite-sites-and-strategies-finding-the-best-deals-on-tamil-melodies/"><u>2024 Approved Elite Sites & Strategies Finding the Best Deals on Tamil Melodies</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/discover-the-top-10-zooming-video-editors/"><u>Discover The Top 10 Zooming Video Editors</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/emerging-trend-chinese-telco-companhren-upgrade-server-farms-with-domestic-chip-technology/"><u>Emerging Trend: Chinese Telco Companhren Upgrade Server Farms with Domestic Chip Technology</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-effortlessly-adjust-your-software-size-with-windows-11-keys/"><u>How to Effortlessly Adjust Your Software Size with Windows 11 Keys</u></a></li>
 </ul></div>
 

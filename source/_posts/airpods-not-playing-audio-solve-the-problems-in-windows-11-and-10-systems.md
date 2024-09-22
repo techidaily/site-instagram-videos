@@ -1,7 +1,7 @@
 ---
 title: AirPods Not Playing Audio? Solve the Problems in Windows 11 and 10 Systems!
-date: 2024-09-14T17:59:30.129Z
-updated: 2024-09-15T17:39:03.501Z
+date: 2024-09-15T00:45:18.391Z
+updated: 2024-09-21T18:43:50.905Z
 tags:
   - win11
   - win10
@@ -65,13 +65,6 @@ The headphone jack is not working on Windows 10 after an upgrade or performing a
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Fix 3: Set your headphone as the default device**
 
  If your headphone hasn’t been set as the default playback device, Windows may not play any sounds through it. To solve this problem, perform the following actions:
@@ -90,6 +83,19 @@ The headphone jack is not working on Windows 10 after an upgrade or performing a
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/04/img_5adee85f51f54.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1977020">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  5) On the**Playback** tab, select**Headphones** and click**Set default** .
 
 ![Headphones](https://images.drivereasy.com/wp-content/uploads/2016/08/img_57a1b8408bb79.png)
@@ -98,18 +104,18 @@ The headphone jack is not working on Windows 10 after an upgrade or performing a
 
 ![Speakders/Headphones](https://images.drivereasy.com/wp-content/uploads/2016/08/img_57a1b917ae4b4.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  5) Click the **OK** button.
 
  Still no luck? Don’t panic, let’s take a stab at the next fix.
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115944/19272" target="_top" id="2115944">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115944" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115944/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Fix 4: Update your audio driver**
 
@@ -138,10 +144,10 @@ The headphone jack is not working on Windows 10 after an upgrade or performing a
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Fix 5: Change the settings in Realtek HD Audio Manager**
@@ -155,19 +161,6 @@ The headphone jack is not working on Windows 10 after an upgrade or performing a
 2) Click the small folder icon in the upper right corner.
 
 ![Realtek HD Audio Manager](https://images.drivereasy.com/wp-content/uploads/2016/08/img_57a1bb3f18c6d.png)
-
-<!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  3) Check**Disable front panel jack detection** .
 
@@ -189,6 +182,13 @@ If this fix didn’t help, proceed to the next one.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/04/img_5adee74b8283b.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  3) Change your view to **Large icons** and click **Programs and Features**  .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/04/img_5adee88ed0afe.jpg)
@@ -204,10 +204,10 @@ If this fix didn’t help, proceed to the next one.
 ![](https://images.drivereasy.com/wp-content/uploads/2020/03/ChromeOSDesktop.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Windows is a very old technology. Sure, Windows 10 is relatively new, but it’s still just the latest iteration of a decades-old operating system, designed for a bygone era (pre-internet).
@@ -254,19 +254,19 @@ And that’s just the start of the benefits…
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/00plus-cool-gaming-channel-names-for-every-gamer-for-2024/"><u>[New] 100+ Cool Gaming Channel Names for Every Gamer for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-perfecting-instagram-livestreams-with-obs-technology/"><u>[New] In 2024, Perfecting Instagram Livestreams with OBS Technology</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-the-ultimate-list-for-capturing-instagram-vids-pcmac/"><u>[New] The Ultimate List for Capturing Instagram Vids (PC/Mac)</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-unlocking-the-power-of-partnerships-a-guide-to-monetizing-instagram-posts-for-2024/"><u>[New] Unlocking the Power of Partnerships A Guide to Monetizing Instagram Posts for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-fine-tune-video-quality-for-instagram-excellence/"><u>[Updated] 2024 Approved Fine-Tune Video Quality for Instagram Excellence</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-filmmakers-lounge-app/"><u>[Updated] Filmmaker's Lounge App</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-a-marketer-writes-guide-to-utilizing-hashtags-effectively-on-facebook/"><u>[Updated] In 2024, A Marketer' Writes Guide to Utilizing Hashtags Effectively on Facebook</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-inverting-instagram-videos-step-by-step-guide-for-2024/"><u>[Updated] Inverting Instagram Videos Step-by-Step Guide for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-the-creme-de-la-creme-of-25-instagram-talents/"><u>[Updated] The Crème De La Crème of 25 Instagram Talents</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-premier-ai-for-stunning-photo-creation/"><u>2024 Approved Premier AI for Stunning Photo Creation</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/download-and-install-nvme-controller-software-compatible-with-windows-os/"><u>Download & Install NVMe Controller Software Compatible with Windows OS</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-hacking-the-process-instant-deletion-on-youtube/"><u>In 2024, Hacking the Process Instant Deletion on Youtube</u></a></li>
-<li><a href="https://blog-min.techidaily.com/top-hevc-video-encoder-software-of-2024-compatible-with-pc-and-mac/"><u>Top HEVC Video Encoder Software of 2024: Compatible with PC & Mac</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/unleash-the-audio-best-mp4-to-mp3-converters-for-music-lovers/"><u>Unleash the Audio Best MP4 to MP3 Converters for Music Lovers</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-legal-harmonies-unpacking-music-policy-on-instagram-for-2024/"><u>[New] Legal Harmonies Unpacking Music Policy on Instagram for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-mastering-game-record-on-windows-10-top-5-tips/"><u>[New] Mastering Game Record on Windows 10 Top 5 Tips</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-becoming-an-influencer-entrepreneur-creating-a-business-profile-on-ig/"><u>[Updated] 2024 Approved Becoming an Influencer Entrepreneur Creating a Business Profile on IG</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-how-to-archive-and-backup-your-chats-on-messenger-securely/"><u>[Updated] How to Archive & Backup Your Chats on Messenger Securely</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-the-ultimate-guide-to-instagram-filters/"><u>[Updated] In 2024, The Ultimate Guide to Instagram Filters</u></a></li>
+<li><a href="https://common-error.techidaily.com/corrective-steps-for-accidental-character-inputs-in-typing/"><u>Corrective Steps for Accidental Character Inputs in Typing</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/full-guide-on-mirroring-your-samsung-galaxy-m54-5g-to-your-pcmac-drfone-by-drfone-android/"><u>Full Guide on Mirroring Your Samsung Galaxy M54 5G to Your PC/Mac | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/how-to-add-video-to-text-for-2024/"><u>How to Add Video to Text for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-remove-flashlight-from-apple-iphone-14-pro-lock-screen-drfone-by-drfone-ios/"><u>In 2024, How To Remove Flashlight From Apple iPhone 14 Pro Lock Screen | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/phonic-finesse-master-english-with-twisters/"><u>Phonic Finesse: Master English With Twisters</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/step-by-step-repair-restoring-functionality-to-valorants-voice-communication-tools/"><u>Step by Step Repair: Restoring Functionality to Valorant's Voice Communication Tools</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/step-by-step-instructions-on-integrating-apple-homepod-and-tv-setup/"><u>Step-by-Step Instructions on Integrating Apple HomePod and TV Setup</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/transform-your-photos-into-musical-masterpieces-withwithout-for-2024/"><u>Transform Your Photos Into Musical Masterpieces (With/Without) for 2024</u></a></li>
+<li><a href="https://techidaily.com/what-you-need-to-know-to-improve-your-samsung-galaxy-a14-5g-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>What You Need To Know To Improve Your Samsung Galaxy A14 5G Hard Reset | Dr.fone</u></a></li>
 </ul></div>
 
