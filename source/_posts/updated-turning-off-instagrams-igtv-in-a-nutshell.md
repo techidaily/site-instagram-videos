@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Turning Off Instagram's IGTV in a Nutshell"
-date: 2024-09-09T18:18:28.728Z
-updated: 2024-09-16T02:14:44.392Z
+date: 2024-09-27T19:07:46.233Z
+updated: 2024-09-29T19:49:49.565Z
 tags:
   - ai video
   - ai instagram
@@ -33,6 +33,13 @@ thumbnail: https://thmb.techidaily.com/fb708f6b02bb2770894398e8943ab9eb4326fec35
 
  Select the **Push Notifications option**, and then scroll all the way down to the **IGTV Video Updates section** of the Push Notifications menu. Tap on the **Off** option, and you’re done, you’ll no longer receive notifications from IGTV. If at any point you change your mind and you decide that you want to receive notifications from IGTV you can return to the Push Notifications menu and select the **From People I Follow** or **From Everyone** option in the IGTV Video Update section of the Push Notifications menu.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
+  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Hide IGTV Videos?
 
  At the moment this feature is only available on iPhones, while users who access IGTV from Android devices only have the option to report a video they find offensive or don’t like for any other reason. Once you open IGTV on your iPhone, you will be able to see the videos the platform suggests you should watch in **the For You** section. When you come across an IGTV video you no longer want to see, simply **swipe down**, and then **tap on the three-dot icon** that is located next to the Like, Comment and Share buttons.
@@ -47,6 +54,13 @@ thumbnail: https://thmb.techidaily.com/fb708f6b02bb2770894398e8943ab9eb4326fec35
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -60,18 +74,19 @@ Follow @Shanoon Cox
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="864" height="1296" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-the-ultimate-guide-to-10-must-have-ig-video-editing-tools/"><u>[New] In 2024, The Ultimate Guide to 10 Must-Have IG Video Editing Tools</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-mediasphere-app-user-experience-report/"><u>[New] MediaSphere App User Experience Report</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-smooth-sailing-navigating-the-world-of-igtv-videos-for-2024/"><u>[New] Smooth Sailing Navigating the World of IGTV Videos for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-the-ultimate-guide-to-skyrocketing-subscriber-count-on-igtv/"><u>[New] The Ultimate Guide to Skyrocketing Subscriber Count on IGTV</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-mastering-instagram-stories-your-complete-guide/"><u>[Updated] 2024 Approved Mastering Instagram Stories Your Complete Guide</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-mobile-artistry-ios-and-androids-creme-de-la-creme-of-image-stickers/"><u>[Updated] Mobile Artistry IOS and Android's Crème De La Crème of Image Stickers</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-social-media-savvy-key-hashtags-to-utilize-today/"><u>2024 Approved Social Media Savvy Key Hashtags to Utilize Today</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-top-10-border-tools-for-professional-instagram-images/"><u>2024 Approved Top 10 Border Tools for Professional Instagram Images</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/connect-and-learn-new-android-app-chatgpt/"><u>Connect and Learn: New Android App, ChatGPT!</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-solutions-to-spy-on-vivo-y78t-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>In 2024, Solutions to Spy on Vivo Y78t with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/1723010631772-phasmophobia-vr-malfunction-heres-how-you-can-repair-it/"><u>Phasmophobia VR Malfunction? Here's How You Can Repair It</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/the-ls-showdown-tech-titans-clashing-in-real-time-for-2024/"><u>The LS Showdown Tech Titans Clashing in Real Time for 2024</u></a></li>
+</ul></div>
 

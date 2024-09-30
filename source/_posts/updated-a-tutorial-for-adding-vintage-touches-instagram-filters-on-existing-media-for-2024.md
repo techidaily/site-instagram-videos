@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] A Tutorial for Adding Vintage Touches  Instagram Filters on Existing Media for 2024\""
-date: 2024-09-16T02:13:41.306Z
-updated: 2024-09-21T22:11:00.804Z
+date: 2024-09-26T20:41:51.738Z
+updated: 2024-09-29T20:26:33.756Z
 tags:
   - ai video
   - ai instagram
@@ -80,6 +80,13 @@ After selecting the filter of your choice and **applying i**t, **click done on t
 
 ![filmora-02](https://images.wondershare.com/filmora/filmora12/side_brand_filmora12.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Why your video editing isn't good enough? How about some creative inspo?
 
 * 100 Million+ Users
@@ -114,6 +121,13 @@ On the bottom left of the screen, you will see a square box. **Click on the squa
 On the bottom, you will find a search icon which is also called the filter carousel. Through the f**ilter carousel**, you can find various kinds of filters and also type in the filter name if you have any in your mind. **Apply the filter** on the video.
 
 ![  Instgram filters carousel](https://images.wondershare.com/filmora/article-images/insatgram-filter-carousel.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 4: Download or upload**
 
@@ -153,18 +167,31 @@ On top, you will see a **shine emoji** option through which you can **browse thr
 
 ![Instgram Reels  filters option ](https://images.wondershare.com/filmora/article-images/instagram-reels-filters-effects-option.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3: post**
 
 After you are done adding effects, you can **click on done** to post, and you can also **download the image**.
 
 ![download Instgram Reels   video with filters](https://images.wondershare.com/filmora/article-images/download-instagram-reels-filters-video.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<span id="701707">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **FAQs** About Instagram Filters
 
@@ -176,13 +203,6 @@ Yes, it is easy to add an Instagram filter to existing photos from your gallery.
 
 Just swipe left to the stories window and swipe up to select an image from the camera roll. Then click on the smiling emoji on the tab and apply the filter of your choice. You can then share it on Insta or save it to your camera roll.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 Often people do not know how to add Instagram filters to existing photos and videos. It is easy to learn, especially through the steps we have mentioned above. Filters are the ultimate hack to add cohesiveness and attraction to your feed or stories.
@@ -190,10 +210,10 @@ Often people do not know how to add Instagram filters to existing photos and vid
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -209,5 +229,26 @@ Follow @Shanoon Cox
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-boost-your-brand-with-masterful-looped-videos-on-instagram-for-2024/"><u>[New] Boost Your Brand with Masterful Looped Videos on Instagram for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-boost-your-videos-best-editing-apps-for-android-pc-users/"><u>[New] Boost Your Videos Best Editing Apps for Android, PC Users</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-implementing-real-time-transcriptions-in-reels-and-stories-for-2024/"><u>[New] Implementing Real-Time Transcriptions in Reels and Stories for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-elevate-your-channel-game-tubebuddy-insights/"><u>[New] In 2024, Elevate Your Channel Game - TubeBuddy Insights</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-mastering-stealth-watch-instagram-stories-without-profile-links-pc-android-ios/"><u>[New] In 2024, Mastering Stealth Watch Instagram Stories Without Profile Links [PC, Android, iOS]</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-transform-your-account-with-these-10-must-have-ig-tools/"><u>[New] In 2024, Transform Your Account with These 10 Must-Have IG Tools</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-ultimate-stardew-upgrades-ranked-7-14/"><u>[New] In 2024, Ultimate Stardew Upgrades Ranked #7-14</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-tailoring-your-videos-for-impact-on-instagram-feed/"><u>[New] Tailoring Your Videos for Impact on Instagram Feed</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-triple-caption-magic-for-compelling-ig-videographies/"><u>[New] Triple Caption Magic for Compelling IG Videographies</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-netflix-archive-the-complete-guide-to-screencapturing-your-views/"><u>[Updated] 2024 Approved Netflix Archive The Complete Guide to ScreenCapturing Your Views</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-innovative-approaches-adding-borders-to-your-instagram-content/"><u>[Updated] In 2024, Innovative Approaches Adding Borders to Your Instagram Content</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-top-15-instagram-videophoto-downloaders-online-and-add-on-and-app-solutions-for-2024/"><u>[Updated] Top 15 Instagram Video/Photo Downloaders – Online & Add-On & App Solutions for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/decode-and-resolve-your-guide-to-instagram-video-problems-for-2024/"><u>Decode and Resolve Your Guide to Instagram Video Problems for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-motorola-moto-g34-5g-in-5-easy-ways-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Motorola Moto G34 5G in 5 Easy Ways | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-ultimate-guide-to-sound-changes-in-ps-console-games/"><u>In 2024, The Ultimate Guide to Sound Changes in PS Console Games</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-unlock-your-reddit-potential-practical-tips-for-mastery/"><u>In 2024, Unlock Your Reddit Potential - Practical Tips for Mastery</u></a></li>
+<li><a href="https://games-able.techidaily.com/revive-stalled-steam-8-key-tactics-unveiled/"><u>Revive Stalled Steam: 8 Key Tactics Unveiled</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/winning-instagram-viewers-with-impactful-videos/"><u>Winning Instagram Viewers with Impactful Videos</u></a></li>
+<li><a href="https://win-blog.techidaily.com/winning-over-window-woes-effective-solutions-for-shadowplay-recording-issues/"><u>Winning Over Window Woes: Effective Solutions for ShadowPlay Recording Issues</u></a></li>
+</ul></div>
 

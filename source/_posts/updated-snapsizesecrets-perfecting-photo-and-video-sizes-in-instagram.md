@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] SnapSizeSecrets  Perfecting Photo and Video Sizes in Instagram\""
-date: 2024-09-16T11:14:01.858Z
-updated: 2024-09-22T01:21:40.622Z
+date: 2024-09-22T20:36:45.251Z
+updated: 2024-09-29T20:33:10.561Z
 tags:
   - ai video
   - ai instagram
@@ -45,6 +45,13 @@ Duration of Videos on Instagram
 
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Best Image Sizes for Instagram Posts
 
 A couple of years ago, Instagram has finally allowed its users to upload images that aren't square shaped. In 2021, you can also upload horizontally and vertically oriented photos in addition to the standard square shape. However, in order to create a perfect Instagram post, and prevent the platform from cropping your photos you need to use the Instagram image sizes featured below.
@@ -52,6 +59,13 @@ A couple of years ago, Instagram has finally allowed its users to upload images 
 #### Instagram's Main Feed
 
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
 
@@ -77,6 +91,13 @@ The profile pictures on Instagram are tiny, and the optimum size for them is 160
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -90,12 +111,22 @@ Follow @Shanoon Cox
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-mastering-the-art-of-downloading-instagram-media/"><u>[New] 2024 Approved Mastering the Art of Downloading Instagram Media</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-cut-to-slowness-the-ultimate-guide-for-reel-makers-for-2024/"><u>[New] Cut to Slowness The Ultimate Guide for Reel Makers for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-sweet-slumber-scenes-video-critique-for-2024/"><u>[New] Sweet Slumber Scenes Video Critique for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-dissecting-the-revenue-sharing-mechanisms-in-youtube-shorts-economy/"><u>[Updated] Dissecting the Revenue-Sharing Mechanisms in YouTube Shorts Economy</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-ignite-social-success-discover-the-10-most-powerful-igtv-video-ideas-for-brands/"><u>[Updated] In 2024, Ignite Social Success Discover the 10 Most Powerful IGTV Video Ideas for Brands</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-real-time-instagram-friends-departure-tracking/"><u>[Updated] In 2024, Real-Time Instagram Friends Departure Tracking</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-instagram-follower-deletion-identification/"><u>2024 Approved Instagram Follower Deletion Identification</u></a></li>
+<li><a href="https://driver-download.techidaily.com/accelerate-your-file-transfers-secure-lexar-usb-driver-downloads-here/"><u>Accelerate Your File Transfers: Secure Lexar USB Driver Downloads Here!</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/beating-the-chatgpt-at-capacity-hurdle-in-windows-computers/"><u>Beating the 'ChatGPT at Capacity' Hurdle in Windows Computers</u></a></li>
+<li><a href="https://change-location.techidaily.com/home-button-not-working-on-poco-c65-here-are-real-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Home Button Not Working on Poco C65? Here Are Real Fixes | Dr.fone</u></a></li>
+<li><a href="https://network-issues.techidaily.com/improving-screen-visibility-in-lenovo-laptops/"><u>Improving Screen Visibility in Lenovo Laptops</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/is-spotify-on-track-to-discontinue-their-innovative-car-thing-feature/"><u>Is Spotify on Track to Discontinue Their Innovative 'Car Thing' Feature?</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-future-is-here-discover-8-benefits-of-integrating-ai-into-education/"><u>The Future Is Here: Discover 8 Benefits of Integrating AI Into Education</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/ultimate-guide-to-mp4-from-instagram-advanced-2-step-processes-for-2024/"><u>Ultimate Guide to MP4 From Instagram Advanced 2-Step Processes for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/understanding-and-activating-smart-app-control-in-windows-11-an-essential-tutorial/"><u>Understanding & Activating Smart App Control in Windows 11 - An Essential Tutorial</u></a></li>
+</ul></div>
 

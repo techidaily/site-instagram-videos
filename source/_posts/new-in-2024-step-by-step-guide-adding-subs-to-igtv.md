@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Step-by-Step Guide  Adding Subs to IGTV\""
-date: 2024-09-21T08:47:30.212Z
-updated: 2024-09-21T22:55:02.987Z
+date: 2024-09-27T18:33:01.177Z
+updated: 2024-09-29T16:27:58.669Z
 tags:
   - ai video
   - ai instagram
@@ -63,9 +63,23 @@ Adding subtitles to a video can be a painstakingly long process if you’re work
 
 Once you’re done adding the subtitles you should click on the **Photo Camera icon** to take a snapshot of the video, you can use as a **cover photo for your IGTV video**. Export the video and proceed to upload it to IGTV from your web browser or from your phone.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Add Text to IGTV Videos with the Quik App For iOS and Android Devices
 
 In case you like editing IGTV videos from your phone, you can try adding subtitles to your IGTV videos with the Quik app. After you’ve completed all other video editing tasks, you should tap on the **Text icon** and type in the text you’d like to add to the video. Hit the **OK button** after you’ve added the text and that’s it you’ve successfully created the subtitles for your IGTV video. How long the process of creating hardcoded subtitles is going to last depends on the duration of the video and the amount of narration or dialogue in the video.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Tips for Adding Subtitles to IGTV Videos
 
@@ -76,6 +90,13 @@ While adding text to your IGTV you must **pay close attention that the text is c
 Even though adding subtitles to videos can require a lot of precision and attention to detail, it can help you produce content that attracts a lot of attention on IGTV. However, most videos shared on IGTV don’t surpass a two-minute mark, so even if there is a lot of dialogue, you can add hardcoded subtitles to a video in a relatively short period of time. What is your favorite method of adding subtitles to the videos you upload to your IGTV channel? Leave a comment below and share your experiences with us.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -90,12 +111,26 @@ Follow @Shanoon Cox
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/elving-into-trending-video-exchange/"><u>[New] Delving Into Trending Video Exchange</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-pictureperfectionist-expert-guide-to-ig-size-settings-for-2024/"><u>[New] PicturePerfectionist Expert Guide to IG Size Settings for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ransform-your-youtube-channels-with-impactful-branding-strategies-for-2024/"><u>[New] Transform Your YouTube Channels with Impactful Branding Strategies for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-unlocking-the-power-of-visuals-zooms-filter-guide/"><u>[New] Unlocking the Power of Visuals Zoom's Filter Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-harmonizing-imagery-and-tunes-on-social-media-platforms/"><u>[Updated] Harmonizing Imagery & Tunes on Social Media Platforms</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-transcribe-a-youtube-video-for-free/"><u>[Updated] How to Transcribe a YouTube Video for FREE</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-sharpen-aesthetic-focus-learning-border-techniques-for-insta-videos/"><u>[Updated] In 2024, Sharpen Aesthetic Focus Learning Border Techniques for Insta-Videos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-unlock-ig-potential-the-best-tools-for-post-management/"><u>[Updated] Unlock IG Potential The Best Tools for Post Management</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/bandicam-vs-camtasia-which-one-is-better/"><u>Bandicam vs Camtasia, Which One Is Better?</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/complete-tutorial-on-how-to-remove-chatgpt-messages-history/"><u>Complete Tutorial on How to Remove ChatGPT Messages History</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-the-newest-hp-laserjet-1320-driver-version-complete-step-by-step-tutorial-for-windows-users/"><u>Download the Newest HP LaserJet 1320 Driver Version: Complete Step-by-Step Tutorial for Windows Users</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-vivo-y36-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Snapchat Location Spoofer to Protect Your Privacy On Vivo Y36? | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-taking-charge-stop-instagram-suggested-posts/"><u>In 2024, Taking Charge Stop Instagram Suggested Posts</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-oppo-a58-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Best Spy Watches For your Oppo A58 4G | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/mastering-the-art-of-igtv-on-instagram-stories/"><u>Mastering the Art of IGTV on Instagram Stories</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/maximize-your-impact-top-10-insta-tools-for-post-management/"><u>Maximize Your Impact Top 10 Insta Tools for Post Management</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/navigating-video-sizes-on-instagram-the-ultimate-2023-guide-for-2024/"><u>Navigating Video Sizes on Instagram - The Ultimate 2023 Guide for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-vivo-s17e-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On Vivo S17e | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/unveiling-the-process-of-downloading-instagram-videos-pcmac/"><u>Unveiling the Process of Downloading Instagram Videos (PC/Mac)</u></a></li>
+</ul></div>
 

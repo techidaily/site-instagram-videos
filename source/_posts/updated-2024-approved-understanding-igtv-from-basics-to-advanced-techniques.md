@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Understanding IGTV  From Basics to Advanced Techniques\""
-date: 2024-09-18T19:40:23.370Z
-updated: 2024-09-21T20:26:29.256Z
+date: 2024-09-26T20:37:08.978Z
+updated: 2024-09-29T18:43:06.926Z
 tags:
   - ai video
   - ai instagram
@@ -71,6 +71,20 @@ thumbnail: https://thmb.techidaily.com/6af91e940bb187fedb6046d135c289160c909fca8
 
 ![view igtv](https://images.wondershare.com/filmora/article-images/view-igtv.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Create your IGTV channel
 
 * **Step 1**: You can create a channel in IGTV by hitting the ‘Settings’ icon from the right side of the screen. Click the ‘Create Channel’ over there and then tap ‘Next’.
@@ -88,10 +102,10 @@ thumbnail: https://thmb.techidaily.com/6af91e940bb187fedb6046d135c289160c909fca8
 ![post igtv](https://images.wondershare.com/filmora/article-images/post-igtv.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
+  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: Tips for promoting IGTV
@@ -103,45 +117,32 @@ thumbnail: https://thmb.techidaily.com/6af91e940bb187fedb6046d135c289160c909fca8
  For Instagram TV (IGTV), it is important to have vertical videos. The old YouTube horizontal videos need you to rotate your screen to watch them properly. Fix the 1080X1920 pixels dimensions as that of Instagram Stories for IGTV videos. You can alternatively stick to the 9.16 aspect ratio for these IGTV vertical videos.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. Keep It Short
 
  Just because you have got a video limit of 10 minutes doesn’t mean you will pester the channel with anything and everything without bothering about the video length. Always keeping it short works, as people rarely stay interested beyond the initial 3-4 minutes of a video. Unless you belong to the film industry and have HD quality videos with breathtaking content don’t rush to post 30-40 minutes long ones. Anything between 2 to 5 minutes is worth.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Don’t Just Repost videos
 
  Unlike Instagram Stories, IGTV content is going to stay there beyond the 24 hours. So, wisely choose content for your channel and keep your followers intact.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
  We are optimistic that this article has brought everything that you wanted to know about IGTV. Be it what is IGTV or how does IGTV work. Our elaborate guide on how to use IGTV has certainly made your task easier. Enjoy your new IGTV channel!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<span id="1531882">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -158,5 +159,19 @@ Follow @Shanoon Cox
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-dive-into-action-the-pro-3-review-from-ion-air/"><u>[New] Dive Into Action The Pro 3 Review From ION Air</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rom-hundreds-to-millions-a-youtube-growth-journey/"><u>[New] From Hundreds to Millions A YouTube Growth Journey</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-chromebooks-to-the-rescue-mastering-webcam-recordings/"><u>[New] In 2024, Chromebooks to the Rescue Mastering Webcam Recordings</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-no-cost-visual-aids-free-templates-and-slide-show-resources/"><u>[New] No-Cost Visual Aids Free Templates & Slide Show Resources</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-how-to-convert-your-social-media-presence-into-a-sustainable-business-model/"><u>[Updated] 2024 Approved How to Convert Your Social Media Presence Into a Sustainable Business Model</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-elevate-your-camera-skills-mastering-macbook-webcams-for-2024/"><u>[Updated] Elevate Your Camera Skills Mastering MacBook Webcams for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-innovative-methods-screen-capturing-on-instagram/"><u>[Updated] Innovative Methods Screen Capturing on Instagram</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-proven-strategies-for-creating-superb-igtv-videos-on-smartphonesdlsrs-for-2024/"><u>[Updated] Proven Strategies for Creating Superb IGTV Videos on Smartphones/DLSRs for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-new-era-of-authenticity-understanding-the-algorithm-update/"><u>[Updated] The New Era of Authenticity Understanding the Algorithm Update</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-the-ultimate-blend-top-5-monitors-for-seamless-color-grading/"><u>2024 Approved The Ultimate Blend Top 5 Monitors for Seamless Color Grading</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/free-mpeg-video-splitter-software-top-picks-for-2024/"><u>Free MPEG Video Splitter Software Top Picks for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-elite-e-learning-platforms-beyond-udemy-explored/"><u>In 2024, Elite E-Learning Platforms Beyond Udemy Explored</u></a></li>
+</ul></div>
 

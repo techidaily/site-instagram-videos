@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  From Silence to Symphony  Enhancing Stories with IG Music\""
-date: 2024-09-18T07:38:53.623Z
-updated: 2024-09-21T19:43:07.704Z
+date: 2024-09-24T20:38:15.453Z
+updated: 2024-09-29T23:42:13.214Z
 tags:
   - ai video
   - ai instagram
@@ -70,6 +70,13 @@ You can tap on the music sticker to change the icon. You can also switch to the 
 
 You can also press the color wheel at the top corner of the screen to adjust the color of music stickers and the lyrics as well.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Add Lyrics to Stories through Instagram Music?
 
 Some songs have options to play music with lyrics to the story. Here is how you can add lyrics.
@@ -87,6 +94,13 @@ If you want to add lyrics, you can press the letter sign before posting.
 Before you post a story or send it to your close friends, you can enlarge or minimize the music sticker size and change its placement on the screen.
 
 ![Add Lyrics to Instagram Music](https://images.wondershare.com/filmora/article-images/add-lyrics-to-instagram-music.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2: How to Add Music to Instagram without Music Stickers?
 
@@ -113,10 +127,10 @@ When you click on the three dots, you will be presented with a few options; clic
 When you **click on the Instagram stories option**, the cover art will automatically upload to your stories. You can add a filter or change its placement before posting.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Method 2: Upload music on Instagram stories through SoundCloud
@@ -132,13 +146,6 @@ S**tep 2: Select Instagram stories**
 When you **select the ellipsis sign,** you will see a few options and an Instagram logo. You will see stories written beneath the logo; click on **Instagram stories**.
 
 ![Share SoundCloud Music to Instagram Story](https://images.wondershare.com/filmora/article-images/share-soundcloud-music-instagram.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 3: Post**
 
@@ -164,13 +171,6 @@ Note: You might have to click on "More" on some smartphones.
 
 ![Share Apple Music to Instagram Story](https://images.wondershare.com/filmora/article-images/share-apple-music-instagram.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 4: Post on stories**
 
 The last thing you will do is post the cover art and the song. People can click on the Apple Music icon to listen to it there.
@@ -193,11 +193,31 @@ Once selected, you can edit and customize that video or photo as per your choice
 
 ![Add Music to Filmora](https://images.wondershare.com/filmora/article-images/add-music-to-video-filmorago.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 4: Share the** **Video** **with Music to Instagram**
 
 Finally, you can share your edited Instagram Story Video to your Instagram account right from the app.
 
 ![Share video with Music to Ins](https://images.wondershare.com/filmora/article-images/share-video-with-music-to-instagram.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1516072">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Frequently Asked Questions About Instagram Music
 
@@ -215,13 +235,6 @@ If you wish to add music to your Instagram stories, there are many ways to do it
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -235,5 +248,26 @@ Follow @Shanoon Cox
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-visual-unity-ai-driven-instavideo-compilation/"><u>[New] 2024 Approved Visual Unity AI-Driven InstaVideo Compilation</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-elite-recommendations-top-10-high-end-video-card-models-for-2024/"><u>[New] Elite Recommendations Top 10 High-End Video Card Models for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-proven-techniques-to-swell-your-social-media-following/"><u>[New] In 2024, Proven Techniques to Swell Your Social Media Following</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-the-essential-musicians-guide-to-copyright-compliance-on-ig/"><u>[New] The Essential Musician's Guide to Copyright Compliance on IG</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-insider-guide-to-gaming-channel-header-templates-for-2024/"><u>[New] The Insider Guide to Gaming Channel Header Templates for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-bring-back-the-sparkle-applying-instagram-effects-retro-style-for-2024/"><u>[Updated] Bring Back the Sparkle Applying Instagram Effects Retro Style for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-quick-fame-formula-amplify-your-insta-presence-with-content/"><u>[Updated] In 2024, Quick Fame Formula Amplify Your Insta Presence with Content</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-solving-grey-voids-in-gaming-capture-software/"><u>2024 Approved Solving Grey Voids in Gaming Capture Software</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/5-simple-fixes-for-genshin-impact-not-launching/"><u>5 Simple Fixes for Genshin Impact Not Launching</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/breaking-down-instagrams-per-video-ceiling-for-2024/"><u>Breaking Down Instagram's Per-Video Ceiling for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/bring-your-videos-to-life-border-magic-on-ig/"><u>Bring Your Videos to Life Border Magic on IG</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/crafting-compelling-videos-the-instagram-editors-playbook/"><u>Crafting Compelling Videos The Instagram Editor's Playbook</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-share-location-in-messenger-on-samsung-galaxy-m34-5g-drfone-by-drfone-virtual-android/"><u>How to Share Location in Messenger On Samsung Galaxy M34 5G? | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-loop-video-liftoff-engaging-audiences-on-ig/"><u>In 2024, Loop Video Liftoff Engaging Audiences on IG</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ispoofer-is-not-working-on-motorola-defy-2-fixed-drfone-by-drfone-virtual-android/"><u>iSpoofer is not working On Motorola Defy 2? Fixed | Dr.fone</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/movavi-free-mp4-y-asf-convertidor-en-linea-cambio-de-formato-sin-gastos/"><u>Movavi Free MP4 Y ASF Convertidor en Línea - Cambio De Formato Sin Gastos</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/strategies-for-flawless-transfer-of-mmc-productions-to-vimeo-for-2024/"><u>Strategies for Flawless Transfer of MMC Productions to Vimeo for 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/superior-performance-free-amd-radeon-vega-3-update/"><u>Superior Performance - Free AMD Radeon Vega 3 Update</u></a></li>
+<li><a href="https://program-issues.techidaily.com/warriors-guide-to-debugging-call-of-duty-warzone-error-6328-strategies-for-2025-mastering-cod-warzone-error-resolution-defeat-dev-bug-6328-in-the-upcoming-y407/"><u>Warrior's Guide to Debugging Call of Duty: Warzone Error 6328 - Strategies for 202#5. Mastering Cod: Warzone Error Resolution - Defeat Dev Bug 6328 in the Upcoming Year!</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Instagram TV Deactivation Tips"
-date: 2024-09-08T16:46:39.801Z
-updated: 2024-09-16T01:14:09.608Z
+date: 2024-09-25T20:20:01.533Z
+updated: 2024-09-29T20:12:39.015Z
 tags:
   - ai video
   - ai instagram
@@ -33,6 +33,13 @@ thumbnail: https://thmb.techidaily.com/67bd9eb22eb0b577554d0f90d5db30aca97e4f163
 
  Select the **Push Notifications option**, and then scroll all the way down to the **IGTV Video Updates section** of the Push Notifications menu. Tap on the **Off** option, and you’re done, you’ll no longer receive notifications from IGTV. If at any point you change your mind and you decide that you want to receive notifications from IGTV you can return to the Push Notifications menu and select the **From People I Follow** or **From Everyone** option in the IGTV Video Update section of the Push Notifications menu.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Hide IGTV Videos?
 
  At the moment this feature is only available on iPhones, while users who access IGTV from Android devices only have the option to report a video they find offensive or don’t like for any other reason. Once you open IGTV on your iPhone, you will be able to see the videos the platform suggests you should watch in **the For You** section. When you come across an IGTV video you no longer want to see, simply **swipe down**, and then **tap on the three-dot icon** that is located next to the Like, Comment and Share buttons.
@@ -47,6 +54,13 @@ thumbnail: https://thmb.techidaily.com/67bd9eb22eb0b577554d0f90d5db30aca97e4f163
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -60,12 +74,23 @@ Follow @Shanoon Cox
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120862/26400?prodsku=Saturn" target="_top" id="2120862">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120862" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120862/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-get-that-perfect-fit-resize-videos-to-instagram-standards-using-mac/"><u>[New] 2024 Approved Get That Perfect Fit Resize Videos to Instagram Standards Using Mac</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-mastering-instagram-video-editing-tips-with-fcpx/"><u>[New] 2024 Approved Mastering Instagram Video Editing Tips with FCPX</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-crafting-professional-content-on-youtube-via-enhancements/"><u>[New] In 2024, Crafting Professional Content on YouTube via Enhancements</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-elevate-video-aesthetics-to-meet-instagram-standards/"><u>[New] In 2024, Elevate Video Aesthetics to Meet Instagram Standards</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-masterclass-on-monetizing-moments-gaining-income-via-insta-sponsors-for-2024/"><u>[New] Masterclass on Monetizing Moments Gaining Income via Insta-Sponsors for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-dissecting-insta-video-selfie-validation-necessary-or-not/"><u>[Updated] Dissecting Insta Video Selfie Validation – Necessary or Not?</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-from-front-to-back-a-step-by-step-guide-to-angled-photography-on-social-platforms/"><u>2024 Approved From Front to Back A Step-by-Step Guide to Angled Photography on Social Platforms</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-revamping-imagery-leading-insta-edits-explored/"><u>2024 Approved Revamping Imagery Leading Insta Edits Explored</u></a></li>
+<li><a href="https://android-location.techidaily.com/9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-asus-rog-phone-7-ultimate-drfone-by-drfone-virtual/"><u>9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Asus ROG Phone 7 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/escaping-the-treadmill-of-startup-failures-in-valorant-with-proven-tricks/"><u>Escaping the Treadmill of Startup Failures in Valorant with Proven Tricks</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/lent-screen-grabber-aid-for-youtube-content-creators/"><u>Excellent Screen Grabber Aid for YouTube Content Creators</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-fix-corrupt-video-files-of-xiaomi-redmi-note-12-4g-using-video-repair-utility-by-stellar-video-repair-mobile-video-repair/"><u>How to Fix Corrupt video files of Xiaomi Redmi Note 12 4G using Video Repair Utility?</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-capturing-the-future-an-overview-of-iphone-xs-camera-innovations/"><u>In 2024, Capturing the Future An Overview of iPhone X's Camera Innovations</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-resolve-your-apple-iphone-11-pro-keeps-asking-for-outlook-password-drfone-by-drfone-ios/"><u>In 2024, Resolve Your Apple iPhone 11 Pro Keeps Asking for Outlook Password | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/perfect-your-morphvox-skills-a-complete-manual-for-2024/"><u>Perfect Your MorphVOX Skills A Complete Manual for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/valheim-quiet-dilemma-resolved-restore-game-audio-for-pc-players/"><u>Valheim Quiet Dilemma Resolved - Restore Game Audio for PC Players</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Mastering Instagram Stories  Your Complete Guide for 2024\""
-date: 2024-09-20T01:12:17.671Z
-updated: 2024-09-21T20:39:08.765Z
+date: 2024-09-24T22:07:01.903Z
+updated: 2024-09-29T17:45:24.913Z
 tags:
   - ai video
   - ai instagram
@@ -106,6 +106,13 @@ Image resource: Ryan Bilello
 
 ![](https://images.wondershare.com/filmora/article-images/instagram-stickers.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Using 'Stickers' with your video or images you can spice up your Insta Stories. To use these stickers, first open Instagram, and then capture a video/picture or select one from your gallery. Now, tap on the smiley icon at the top right corner of the picture or video. You will see lot of options under it. Select any of them and then pin it to your picture/video to share. You can resize the 'Stickers' by pinching (to zoom in and out) them.
 
 Here are the most popular 'Stickers' and their usages–
@@ -119,10 +126,10 @@ You can add 'Polls', 'Location', and 'Hashtags' to your Insta Stories by tapping
 To turn your own face into a sticker, you can tap the camera icon under the 'Stickers' section and take a selfie. Then tap on the selfie to pin it as a sticker on your picture or video, and then share as your Instagram Story.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Use your pen
@@ -133,6 +140,13 @@ Now that you have used funny stickers to make your picture (for Insta Story) att
 
 Whoa! You are becoming a sport at how to use Instagram Stories.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Add text
 
 ![](https://images.wondershare.com/filmora/article-images/add-text-to-instagram.jpg)
@@ -142,6 +156,13 @@ You can also add text to make your Instagram Stories more attractive. Tap on the
 ### Add color overlays
 
 ![](https://images.wondershare.com/filmora/article-images/instagram-pen.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Adorn your creative hat and weave some magic into the Insta Stories now. For adding color overlays to your Insta Story image or video you need to use the 'Pen' tool here and choose a color. Now, click anywhere on the screen and hold for a moment until the entire screen is covered with that color. After that tap on the 'Eraser' tool and uncover specific portions of the picture or video to create interesting Instagram Stories.
 
@@ -154,10 +175,10 @@ First add a video or picture and then click on the paperclip icon from the top r
 **You May Also Like:** [How to Post a Link to Instagram Stories and Posts](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Add music
@@ -169,13 +190,6 @@ If adding 'Stickers', 'Text', and choosing filters aren't enough for your perfec
 With this complete guide for Instagram Stories, we are hopeful that you are going to be a pro in how to use Instagram Stories. Bring out that creative soul in you and explore the world of Insta Stories with these amazingly cool features. Keep telling your stories through your camera lens (the Instagram one!).
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -190,5 +204,21 @@ Follow @Shanoon Cox
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-concluding-your-digital-identity-on-instagram/"><u>[New] In 2024, Concluding Your Digital Identity on Instagram</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-the-complete-instagram-vlog-flip-handbook/"><u>[New] In 2024, The Complete Instagram Vlog-Flip Handbook</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-agrarian-aesthetics-stardew-clones-and-cousins/"><u>[Updated] In 2024, Agrarian Aesthetics Stardew Clones and Cousins</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-internet-aid-social-story-recorder/"><u>[Updated] Internet Aid Social Story Recorder</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-the-influential-edge-mastering-sponsorship-and-promotion-on-social-media/"><u>2024 Approved The Influential Edge Mastering Sponsorship and Promotion on Social Media</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-ultimate-guide-to-virtual-reality-gaming-gear/"><u>2024 Approved Ultimate Guide to Virtual Reality Gaming Gear</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/craft-a-compelling-narrative-with-your-igtv-video-titles-and-texts-for-2024/"><u>Craft a Compelling Narrative with Your IGTV Video Titles & Texts for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/engaging-excellence-best-story-filter-compilation/"><u>Engaging Excellence Best Story Filter Compilation</u></a></li>
+<li><a href="https://extra-information.techidaily.com/expert-tips-for-penning-engaging-vlogger-scripts/"><u>Expert Tips for Penning Engaging Vlogger Scripts</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/forgot-pattern-lock-heres-how-you-can-unlock-motorola-moto-g34-5g-pattern-lock-screen-by-drfone-android/"><u>Forgot Pattern Lock? Heres How You Can Unlock Motorola Moto G34 5G Pattern Lock Screen</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/how-sony-vegas-transforms-ordinary-footage-into-youtube-stardom/"><u>How Sony Vegas Transforms Ordinary Footage Into YouTube Stardom</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-track-imei-number-of-samsung-galaxy-f14-5g-through-google-earth-by-drfone-android/"><u>In 2024, How To Track IMEI Number Of Samsung Galaxy F14 5G Through Google Earth?</u></a></li>
+<li><a href="https://network-issues.techidaily.com/reversing-disappearance-of-gpu-display-choices/"><u>Reversing Disappearance of GPU Display Choices</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/step-by-step-tutorial-for-transforming-profile-photographs-on-social-networks/"><u>Step-by-Step Tutorial for Transforming Profile Photographs on Social Networks</u></a></li>
+</ul></div>
 

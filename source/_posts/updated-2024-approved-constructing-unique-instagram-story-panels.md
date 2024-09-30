@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Constructing Unique Instagram Story Panels\""
-date: 2024-09-14T21:34:26.943Z
-updated: 2024-09-21T23:55:16.281Z
+date: 2024-09-28T20:21:53.981Z
+updated: 2024-09-29T19:38:34.417Z
 tags:
   - ai video
   - ai instagram
@@ -63,6 +63,13 @@ Canva provides fully customizable templates for highlight cover, you can drag on
 
 ![Canva highlight cover template](https://images.wondershare.com/filmora/article-images/canva-instagram-highlight-cover-templates.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 If you choose to create Instagram highlight covers from scratch without a template, you can follow the steps below.
 
 On the design page, click on **Add Page** and then on the upper left side, you will see Background color, click on it and select the color you want to add. Alternatively, you can add your brand's hex code color. For the photos, you can either select a stock image from the Canva, connect your Instagram, or upload your own.
@@ -85,26 +92,40 @@ You can make as many highlights covers as you want. Just click on the +Add page 
 
 Once you are done making the Instagram highlight covers and are satisfied with the work, click on the Download button. Choose the file type like PNG or JPG, save your download settings, and hit the Download tab. Your highlight covers download as a zip file. Unzip them and transfer them to your phone via your preferred method.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: How to Upload a Highlight Cover on Instagram
 
 Before you upload the highlight covers on Instagram, ensure you turn on the Archive feature. Go to your Instagram settings and select the story settings and then turn on the Save to Archive. This enables you to see your old stories without downloading them.
 
 ![ upload  highlight cover to instagram ](https://images.wondershare.com/filmora/article-images/upload-highlight-cover-to-instagram.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 As we said before, you should transfer the created highlight cover photos from desktop to you phone, and then click on your Instagram profile and add a new highlight, follow the instructions on the screen to edit cover and then add the highlight cover photo you just created, give it a name, and click on Done. Your new Insta Story Highlight appears at the bottom of your Instagram bio.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4: How to Change Existing Highlight Cover on Instagram?
 
 If you have existing highlight covers, you can easily edit and change them. Go to your Instagram profile, go to the Highlights section and press and hold the highlight cover that you want to change, tap **More** and then tap on **Edit Highlight**, and then on **Edit Cover**. Find the photo you want to use as a new cover for the highlight, and click on it and tap on Done.
 
 Besides changing highlight cover, here you can edit the highlight and add old stories or delete the images you do not want.
-
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Bonus: Tips for making better Instagram Highlight cover
 
@@ -130,13 +151,6 @@ Creating Instagram Highlight Covers is a quick and easy way to maintain your bra
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -150,5 +164,20 @@ Follow @Shanoon Cox
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-insta-zoom-mastery-in-and-out-for-clearer-selfies/"><u>[New] 2024 Approved Insta Zoom Mastery In and Out for Clearer Selfies</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-precision-recording-gopro-5-against-sj7/"><u>[New] 2024 Approved Precision Recording GoPro 5 Against SJ7</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-bringing-up-the-height-editing-instagram-content-with-fcpx/"><u>[New] In 2024, Bringing Up the Height Editing Instagram Content with FCPX</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-innovative-methods-for-preserving-youtube-videos/"><u>[New] In 2024, Innovative Methods for Preserving YouTube Videos</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-ps1-reimagined-the-best-emulators-for-game-revival-on-pc/"><u>[New] In 2024, PS1 Reimagined The Best Emulators for Game Revival on PC</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-cutting-edge-strategies-to-minimize-vids-for-instagram-on-macos/"><u>[Updated] Cutting-Edge Strategies to Minimize Vids for Instagram on macOS</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-tips-for-retro-revival-using-instagram-filters-on-previous-imagesvideos/"><u>[Updated] In 2024, Tips for Retro Revival Using Instagram Filters on Previous Images/Videos</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-premier-suggestions-top-10-sports-binge-watching-apps-soccer-focus/"><u>[Updated] Premier Suggestions Top 10 Sports Binge-Watching Apps, Soccer Focus</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-crafting-igtv-content-with-multilingual-support/"><u>2024 Approved Crafting IGTV Content with Multilingual Support</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-pinnacle-of-phone-innovation-an-insightful-review-of-the-moto-g-powers-robust-operation-and-enduring-energy-reserves/"><u>Exploring the Pinnacle of Phone Innovation: An Insightful Review of the Moto G Power's Robust Operation and Enduring Energy Reserves</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-ipad-tech-unveiling-the-secrets-of-time-lapse-videos/"><u>In 2024, IPad Tech Unveiling the Secrets of Time-Lapse Videos</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-remove-device-supervision-from-your-apple-iphone-8-plus-by-drfone-ios/"><u>In 2024, Remove Device Supervision From your Apple iPhone 8 Plus</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-gameplay-on-samsung-q60r-qled-4k-smart-tv-the-ultimate-review/"><u>Mastering Gameplay on Samsung Q60R QLED 4K Smart TV – The Ultimate Review</u></a></li>
+</ul></div>
 

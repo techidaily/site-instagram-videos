@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Tune & Trends  A Guide to Sound in Social Media Snapshots\""
-date: 2024-09-17T04:35:27.708Z
-updated: 2024-09-22T11:15:25.590Z
+date: 2024-09-23T19:19:44.477Z
+updated: 2024-09-29T23:18:09.987Z
 tags:
   - ai video
   - ai instagram
@@ -75,6 +75,13 @@ That’s it! In this way, you can learn how to add music to IG story and customi
 
 ![ Share Your IG Story](https://images.wondershare.com/filmora/article-images/share-your-ig-story.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Create Stunning IG Stories to Captivate Your Audience?
 
 You might already know how popular Instagram Stories have become in just a few years. The feature is used by over 500 million people and can be an excellent tool to reach out to your audience. Apart from learning how to put music on IG story, there are several other things that you can also do to make your stories more captivating and eye-catching.
@@ -91,11 +98,25 @@ Instagram also keeps rotating different filters that we can add to our stories. 
 
 ![ Inbuilt IG Filters](https://images.wondershare.com/filmora/article-images/inbuilt-ig-filters.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Add polls, challenges, countdowns, and more
 
 Apart from adding music, Instagram also lets us add tons of other things to our story. You can mention any other user in your story or add a location to get more views. There are also options to add a hashtag or create a poll. You can also find different challenges to explore (like the ice bucket challenge) to post your story under a specific category.
 
 ![ Add Polls and More](https://images.wondershare.com/filmora/article-images/add-polls-challenges.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Ask questions to interact with your audience
 
@@ -111,6 +132,13 @@ There you go! Now when you know how to add music to IG Story, you can easily pos
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -124,12 +152,24 @@ Follow @Shanoon Cox
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-the-secrets-to-compelling-instagram-video-descriptions/"><u>[New] 2024 Approved The Secrets to Compelling Instagram Video Descriptions</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-instagram-wisdom-the-most-overlooked-features/"><u>[New] Instagram Wisdom The Most Overlooked Features</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-instagrams-power-mastering-the-addition-of-video-descriptions/"><u>[New] Instagram's Power Mastering the Addition of Video Descriptions</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-maximizing-instagram-video-lengths-a-step-by-step-guide/"><u>[New] Maximizing Instagram Video Lengths A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-savvy-sponsorship-strategies-for-small-scale-sites/"><u>[New] Savvy Sponsorship Strategies for Small-Scale Sites</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-mastering-media-marketing-essential-ig-video-editors/"><u>[Updated] 2024 Approved Mastering Media Marketing Essential IG Video Editors</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-unleash-creative-power-instagrams-top-10-grid-makers/"><u>[Updated] 2024 Approved Unleash Creative Power Instagram's Top 10 Grid Makers</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-align-video-content-with-instagram-viewer-preferences-for-2024/"><u>[Updated] Align Video Content with Instagram Viewer Preferences for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-enhance-audience-reach-share-twitch-videos-on-facebook/"><u>[Updated] Enhance Audience Reach Share Twitch Videos on Facebook</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-speech-capture-device-scrutiny-for-2024/"><u>[Updated] Speech Capture Device Scrutiny for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/capturing-audiences-attention-with-animated-viral-video-hits-for-2024/"><u>Capturing Audiences' Attention with Animated Viral Video Hits for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-avoid-posting-mistakes-on-twitter-by-knowing-the-aspect-ratio/"><u>In 2024, Avoid Posting Mistakes on Twitter by Knowing the Aspect Ratio</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-elevate-your-content-with-professional-end-screen-templates/"><u>In 2024, Elevate Your Content with Professional End Screen Templates</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-unlocking-the-art-of-flawless-instantaneous-iphone-podcast-downloads/"><u>In 2024, Unlocking the Art of Flawless, Instantaneous iPhone Podcast Downloads</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/navigating-through-windows-11s-new-frontier-for-2024/"><u>Navigating Through Windows 11'S New Frontier for 2024</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/the-art-of-video-resizing-tips-for-perfect-proportions-for-2024/"><u>The Art of Video Resizing Tips for Perfect Proportions for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/the-visual-editors-journey-cropping-content-for-instagram-standout-for-2024/"><u>The Visual Editor's Journey Cropping Content for Instagram Standout for 2024</u></a></li>
+</ul></div>
 

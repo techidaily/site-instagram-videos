@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, PictureProfessional  Expert Guide to Adjusting IG Content Sizes\""
-date: 2024-09-14T22:14:16.226Z
-updated: 2024-09-15T16:29:56.116Z
+date: 2024-09-23T21:47:07.812Z
+updated: 2024-09-29T20:25:52.687Z
 tags:
   - ai video
   - ai instagram
@@ -45,6 +45,13 @@ Duration of Videos on Instagram
 
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Best Image Sizes for Instagram Posts
 
 A couple of years ago, Instagram has finally allowed its users to upload images that aren't square shaped. In 2021, you can also upload horizontally and vertically oriented photos in addition to the standard square shape. However, in order to create a perfect Instagram post, and prevent the platform from cropping your photos you need to use the Instagram image sizes featured below.
@@ -52,6 +59,13 @@ A couple of years ago, Instagram has finally allowed its users to upload images 
 #### Instagram's Main Feed
 
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
 
@@ -77,6 +91,13 @@ The profile pictures on Instagram are tiny, and the optimum size for them is 160
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -90,18 +111,18 @@ Follow @Shanoon Cox
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="2135472">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-quick-tips-efficiently-post-videos-on-igtv/"><u>[New] 2024 Approved Quick Tips Efficiently Post Videos on IGTV</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-adding-videos-to-written-work-a-budget-friendly-way/"><u>[New] Adding Videos to Written Work A Budget-Friendly Way</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-crafting-captivating-captions-a-triad-of-tips-for-insta-videos-for-2024/"><u>[New] Crafting Captivating Captions A Triad of Tips for Insta Videos for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-professional-posting-hacks-for-instagram-tv/"><u>[New] In 2024, Professional Posting Hacks for Instagram TV</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-the-symphony-of-stories-music-tips-for-social-media-gems/"><u>[New] The Symphony of Stories Music Tips for Social Media Gems</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-chromebook-screen-capture-4-easy-techniques/"><u>[Updated] 2024 Approved Chromebook Screen Capture 4 Easy Techniques</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-modifying-facial-gender-on-snapchatinstagramfacebook-photos/"><u>[Updated] Modifying Facial Gender on Snapchat/Instagram/Facebook Photos</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-stagnation-of-ideas-in-contemporary-vr/"><u>[Updated] The Stagnation of Ideas in Contemporary VR</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-snap-and-save-professional-screen-recording-11-version/"><u>2024 Approved Snap & Save Professional Screen Recording 11-Version</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-quickly-enable-or-disable-bing-chat-ai-in-windows-11-taskbar-search/"><u>How to Quickly Enable or Disable Bing Chat AI in Windows 11 Taskbar Search</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/the-art-of-background-blur-in-modern-photography/"><u>The Art of Background Blur in Modern Photography</u></a></li>
+</ul></div>
 

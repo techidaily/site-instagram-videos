@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Step-by-Step Techniques  Downloading & Crafting Instagram Stories\""
-date: 2024-09-16T00:08:25.592Z
-updated: 2024-09-21T16:54:36.761Z
+date: 2024-09-27T23:24:55.217Z
+updated: 2024-09-29T16:34:20.897Z
 tags:
   - ai video
   - ai instagram
@@ -90,9 +90,29 @@ Stories Archive is a rich library full of the oldest to latest stories. It is co
 
 ![Download Instagram Highlights using stories archive - tap to download highlights](https://images.wondershare.com/filmora/article-images/tap-more-highlight-download7.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1265663">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 4\. Then click on '**Save photo/video**' to download it on your phone instantly.
 
 ![download instagram highlights as](https://images.wondershare.com/filmora/article-images/download-instagram-highlight-as8.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Bonus Tip 1: How to Create an Instagram Highlight
 
@@ -114,20 +134,27 @@ If you haven't created an Instagram Highlight yet, hop on and make one. There ar
 
 ![create new instagram highlight](https://images.wondershare.com/filmora/article-images/create-new-instagram-highlight-10.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Enter Highlight name and 'Edit Cover' by choosing a story.
 
 ![edit instagram highlight cover](https://images.wondershare.com/filmora/article-images/edit-highlight-cover11.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Tap 'Done', and add your own Instagram highlight.
 
 ![finish creating instagram highlight](https://images.wondershare.com/filmora/article-images/finish-create-instagram-highlight12.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
-  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Bonus Tip 2: Best Instagram Video Editor — [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -135,20 +162,13 @@ What is the best way to attract an audience on Instagram? Make unique videos! Le
 
 [![Download Filmora Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -194,6 +214,19 @@ Go on, craft, or download Instagram highlights and enjoy. Good luck, Instagramme
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
 
+<!-- affiliate ads begin -->
+<span id="1977023">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
@@ -211,5 +244,24 @@ Follow @Shanoon Cox
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-from-portrait-to-panorama-a-guide-to-instagrams-rotation-revolution/"><u>[New] 2024 Approved From Portrait to Panorama A Guide to Instagram's Rotation Revolution</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-the-most-trending-templates-transforming-social-video/"><u>[New] 2024 Approved The Most Trending Templates Transforming Social Video</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-5-exceptional-4k-gaming-screens/"><u>[New] 5 Exceptional 4K Gaming Screens</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-how-to-create-animated-facebook-ads-with-high-roi/"><u>[New] In 2024, How to Create Animated Facebook Ads With High ROI?</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-reel-your-best-footage-from-instagram-with-these-aids-for-2024/"><u>[New] Reel Your Best Footage From Instagram With These Aids for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-strategic-insights-into-aesthetic-success-for-audio-brands/"><u>[New] Strategic Insights Into Aesthetic Success for Audio Brands</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-visualverve-tips-for-resizing-images-in-instagram/"><u>[New] VisualVerve Tips for Resizing Images in Instagram</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-thriving-in-the-economy-of-youtube-shorts-the-ultimate-guide/"><u>[Updated] In 2024, Thriving in the Economy of YouTube Shorts – The Ultimate Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-navigating-through-virtual-realms-with-headgear/"><u>[Updated] Navigating Through Virtual Realms with Headgear</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-proven-techniques-to-swell-your-social-media-following-for-2024/"><u>[Updated] Proven Techniques to Swell Your Social Media Following for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-only-guide-youll-need-to-know-about-instagram-reels-for-2024/"><u>[Updated] The Only Guide You'll Need to Know About Instagram Reels for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-ninja-level-strategies-for-instagram-video-magic/"><u>2024 Approved Ninja-Level Strategies for Instagram Video Magic</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/elevate-brand-presence-effective-instagram-video-marketing-techniques/"><u>Elevate Brand Presence Effective Instagram Video Marketing Techniques</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/fix-invisible-facebook-watch-icon-now-fixed/"><u>Fix Invisible Facebook Watch Icon, Now Fixed</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/hop-into-savings-wondershare-filmora-easter-discount-code-limited-time-offer/"><u>Hop Into Savings Wondershare Filmora Easter Discount Code - Limited Time Offer</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/the-best-of-both-worlds-with-fossil-sportswear-high-end-and-inexpensive-review/"><u>The Best of Both Worlds with Fossil Sportswear: High-End and Inexpensive Review</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/updated-2024-approved-maximize-your-user-engagement-with-instagram-live-shopping-expert-tips/"><u>Updated 2024 Approved Maximize Your User Engagement With Instagram Live Shopping Expert Tips</u></a></li>
+</ul></div>
 

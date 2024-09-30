@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Crafting Memes  Perfecting Social Media Videos on FB & Insta\""
-date: 2024-09-18T06:06:03.151Z
-updated: 2024-09-22T08:55:22.864Z
+date: 2024-09-24T16:36:22.685Z
+updated: 2024-09-29T19:00:30.523Z
 tags:
   - ai video
   - ai instagram
@@ -67,6 +67,13 @@ thumbnail: https://thmb.techidaily.com/a6de986a3fdb94c7142abb7e1738397c8994a30f4
 * The video formats, maximum file size and maximum frames are same as Facebook videos. Though, the video size is only 60 seconds.
 * Maximum caption and recommended are 2,200 and 125 characters respectively.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to make a video meme for Facebook and Instagram step by step
 
  Now, let’s see how to make a video meme for Instagram and Facebook. When you have [Filmora meme maker](https://tools.techidaily.com/wondershare/filmora/download/), you don’t have to worry about anything else. This online meme maker helps you make a video meme. It can also create GIF and image memes apart from video memes.
@@ -79,28 +86,35 @@ thumbnail: https://thmb.techidaily.com/a6de986a3fdb94c7142abb7e1738397c8994a30f4
 
 ![import meme](https://images.wondershare.com/filmora/article-images/drag-memes-filmora-meme-maker.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2**: Go to the meme editor page. Click the tools from left and customize the meme. The preview window shows the changes. Try playing with fonts and texts with funny content.
 
 **Tips**: Crafting quips can make your meme more popular on Facebook and Instagram.
 
 ![edit meme](https://images.wondershare.com/filmora/article-images/edit-memes-filmroa-meme-maker.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082520/7443" target="_top" id="2082520">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082520" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082520/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3**: Finally, click ‘CREATE’ and let the changes take effect. Press the ‘DOWNLOAD’ button once you are happy with the changes. You can share now on your Facebook and Instagram accounts.
 
 ![export meme](https://images.wondershare.com/filmora/article-images/export-memes-filmora-meme-maker.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Bottom Line
@@ -122,5 +136,24 @@ Follow @Ollie Mattison
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-disabling-facebook-video-ad-pop-ups-quickly-for-2024/"><u>[New] Disabling Facebook Video Ad Pop-Ups Quickly for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-dissecting-instagrams-per-post-video-quota/"><u>[New] Dissecting Instagram's Per-Post Video Quota</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-collabcanvas-mosaic-magic-on-instagram-devices/"><u>[New] In 2024, CollabCanvas Mosaic Magic on Instagram Devices</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-pro-editor-tips-cropping-and-export-your-videos-for-instagram-success-for-2024/"><u>[New] Pro Editor Tips Cropping & Export Your Videos for Instagram Success for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-safeguard-your-memories-saving-instagram-on-iphone-for-2024/"><u>[New] Safeguard Your Memories Saving Instagram on iPhone for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-the-ultimate-guidebook-to-making-wealth-on-instagram/"><u>[New] The Ultimate Guidebook to Making Wealth on Instagram</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-formulating-engaging-instagram-story-titles/"><u>[Updated] In 2024, Formulating Engaging Instagram Story Titles</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-mastering-the-art-of-finding-influential-voices-in-your-space-for-2024/"><u>[Updated] Mastering the Art of Finding Influential Voices in Your Space for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-unlocking-engagement-strategies-for-instagram-puzzle-creation-for-2024/"><u>[Updated] Unlocking Engagement Strategies for Instagram Puzzle Creation for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-perfecting-visuals-on-instagram-a-video-guide/"><u>2024 Approved Perfecting Visuals on Instagram A Video Guide</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-harvest-highs-celebrating-farming-gaming-innovation/"><u>In 2024, Harvest Highs Celebrating Farming Gaming Innovation</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-selecting-audio-for-your-movie-trailer/"><u>In 2024, Selecting Audio for Your Movie Trailer</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-ultimate-blueprints-livestream-and-log-sports-matches-effectively/"><u>In 2024, Ultimate Blueprints Livestream & Log Sports Matches Effectively</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/ios-users-rejoice-the-latest-chatgpt-application-is-here/"><u>IOS Users Rejoice: The Latest ChatGPT Application Is Here!</u></a></li>
+<li><a href="https://driver-install.techidaily.com/quick-and-precise-when-to-revamp-your-computers-drivers/"><u>Quick & Precise: When to Revamp Your Computer's Drivers</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/skip-the-struggle-tips-on-avoiding-online-edgenuity-lessons-for-2024/"><u>Skip the Struggle Tips on Avoiding Online Edgenuity Lessons for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/tailored-transmission-terminal-podcasters-hub/"><u>Tailored Transmission Terminal Podcaster's Hub</u></a></li>
+</ul></div>
 
