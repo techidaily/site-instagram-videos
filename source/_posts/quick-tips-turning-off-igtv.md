@@ -1,7 +1,7 @@
 ---
 title: "\"Quick Tips  Turning Off IGTV\""
-date: 2024-08-20T05:03:49.364Z
-updated: 2024-08-21T05:03:49.364Z
+date: 2024-09-30T21:05:59.982Z
+updated: 2024-10-04T19:29:11.844Z
 tags:
   - ai video
   - ai instagram
@@ -33,6 +33,13 @@ thumbnail: https://thmb.techidaily.com/302790bfdd6c387be2ce7104b2f0ec7045e52a09e
 
  Select the **Push Notifications option**, and then scroll all the way down to the **IGTV Video Updates section** of the Push Notifications menu. Tap on the **Off** option, and you’re done, you’ll no longer receive notifications from IGTV. If at any point you change your mind and you decide that you want to receive notifications from IGTV you can return to the Push Notifications menu and select the **From People I Follow** or **From Everyone** option in the IGTV Video Update section of the Push Notifications menu.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Hide IGTV Videos?
 
  At the moment this feature is only available on iPhones, while users who access IGTV from Android devices only have the option to report a video they find offensive or don’t like for any other reason. Once you open IGTV on your iPhone, you will be able to see the videos the platform suggests you should watch in **the For You** section. When you come across an IGTV video you no longer want to see, simply **swipe down**, and then **tap on the three-dot icon** that is located next to the Like, Comment and Share buttons.
@@ -47,13 +54,24 @@ thumbnail: https://thmb.techidaily.com/302790bfdd6c387be2ce7104b2f0ec7045e52a09e
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982462">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -61,6 +79,23 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-auditory-appeal-infusing-music-into-instagram-stories-for-2024/"><u>[New] Auditory Appeal Infusing Music Into Instagram Stories for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-enhancing-instagram-stories-by-including-youtube-tracks/"><u>[New] Enhancing Instagram Stories by Including YouTube Tracks</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-revolutionize-your-brand-presence-on-igtv-with-these-top-10-strategies-for-2024/"><u>[New] Revolutionize Your Brand Presence on IGTV with These Top 10 Strategies for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-simplified-steps-for-posting-tweets-on-facebook-for-2024/"><u>[New] Simplified Steps for Posting Tweets on Facebook for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-create-engaging-facebook-covers/"><u>[Updated] Create Engaging Facebook Covers</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-enhancing-visual-storytelling-on-instagram-with-loops/"><u>[Updated] In 2024, Enhancing Visual Storytelling on Instagram With Loops</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-saving-instagram-content-easy-no-frill-methods-exposed/"><u>[Updated] In 2024, Saving Instagram Content Easy, No-Frill Methods Exposed</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-the-complete-guide-for-professional-livestreaming-using-zoom-on-youtube/"><u>[Updated] In 2024, The Complete Guide for Professional Livestreaming Using Zoom on YouTube</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-instagrams-secret-fine-tuning-fcpx-for-high-aspect-videos/"><u>2024 Approved Instagram's Secret Fine-Tuning FCPX for High Aspect Videos</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-navigating-the-boundaries-of-video-posting-on-facebook/"><u>2024 Approved Navigating the Boundaries of Video Posting on Facebook</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/demystifying-chatgpt-alternatives-how-safe-and-effective-are-jailbreaking-techniques/"><u>Demystifying ChatGPT Alternatives: How Safe & Effective Are Jailbreaking Techniques?</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-vivo-y200-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos From Vivo Y200 to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/install-updated-brother-hl-l2350d0-wireless-printer-drivers-today/"><u>Install Updated Brother HL-L2350D0 Wireless Printer Drivers Today</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ispoofer-is-not-working-on-oneplus-11-5g-fixed-drfone-by-drfone-virtual-android/"><u>iSpoofer is not working On OnePlus 11 5G? Fixed | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/journey-to-aesthetic-excellence-fusing-images-masterfully/"><u>Journey to Aesthetic Excellence Fusing Images Masterfully</u></a></li>
+</ul></div>
+

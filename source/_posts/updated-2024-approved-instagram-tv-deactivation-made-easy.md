@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Instagram TV Deactivation Made Easy\""
-date: 2024-08-20T05:05:22.349Z
-updated: 2024-08-21T05:05:22.349Z
+date: 2024-10-02T10:00:03.640Z
+updated: 2024-10-05T01:12:26.988Z
 tags:
   - ai video
   - ai instagram
@@ -33,6 +33,13 @@ thumbnail: https://thmb.techidaily.com/3299531766a0d348d78dd04349d2683155a00d71b
 
  Select the **Push Notifications option**, and then scroll all the way down to the **IGTV Video Updates section** of the Push Notifications menu. Tap on the **Off** option, and you’re done, you’ll no longer receive notifications from IGTV. If at any point you change your mind and you decide that you want to receive notifications from IGTV you can return to the Push Notifications menu and select the **From People I Follow** or **From Everyone** option in the IGTV Video Update section of the Push Notifications menu.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Hide IGTV Videos?
 
  At the moment this feature is only available on iPhones, while users who access IGTV from Android devices only have the option to report a video they find offensive or don’t like for any other reason. Once you open IGTV on your iPhone, you will be able to see the videos the platform suggests you should watch in **the For You** section. When you come across an IGTV video you no longer want to see, simply **swipe down**, and then **tap on the three-dot icon** that is located next to the Like, Comment and Share buttons.
@@ -47,13 +54,18 @@ thumbnail: https://thmb.techidaily.com/3299531766a0d348d78dd04349d2683155a00d71b
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -61,6 +73,23 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-converting-insta-videos-to-mp3-a-comprehensive-overview/"><u>[Updated] 2024 Approved Converting Insta Videos to MP3 - A Comprehensive Overview</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-elevating-your-visual-storytelling-techniques-and-strategies-for-shooting-compelling-slow-motion-content-for-instagram/"><u>[Updated] In 2024, Elevating Your Visual Storytelling Techniques and Strategies for Shooting Compelling Slow Motion Content for Instagram</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-instagrams-best-practices-video-sizes-and-formats/"><u>[Updated] In 2024, Instagram's Best Practices Video Sizes and Formats</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-interactive-instagram-flipbook-feature/"><u>[Updated] Interactive Instagram Flipbook Feature</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-skyrocket-with-subscribers-5-proven-methods-for-igtv-success/"><u>[Updated] Skyrocket with Subscribers 5 Proven Methods for IGTV Success</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-unleashing-virality-steps-to-skyrocket-your-instagram-content-for-2024/"><u>[Updated] Unleashing Virality Steps to Skyrocket Your Instagram Content for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-webcam-safety-starts-here-the-10-best-shields-for-2024/"><u>[Updated] Webcam Safety Starts Here - The 10 Best Shields for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-cutting-through-the-noise-strategies-for-standout-instagram-success/"><u>2024 Approved Cutting Through the Noise Strategies for Standout Instagram Success</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/budget-4k-cameras-for-beginners-for-2024/"><u>Budget 4K Cameras for Beginners for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/how-to-resolve-msvcr80dll-not-found-issues-on-your-pc-easily/"><u>How To Resolve 'MSVCR80.DLL Not Found' Issues On Your PC Easily</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-spy-on-text-messages-from-computer-and-htc-u23-pro-drfone-by-drfone-virtual-android/"><u>How to Spy on Text Messages from Computer & HTC U23 Pro | Dr.fone</u></a></li>
+<li><a href="https://media-tips.techidaily.com/how-to-transform-rm-video-clips-into-wmv-format-for-free-and-maintain-excellent-visual-quality-a-comprehensive-guide/"><u>How To Transform RM Video Clips Into WMV Format for Free and Maintain Excellent Visual Quality: A Comprehensive Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-beatify-your-content-adding-melodies-to-instagram-stories/"><u>In 2024, Beatify Your Content Adding Melodies to Instagram Stories</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-lenovo-thinkphone-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Lenovo ThinkPhone to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/the-ultimate-guide-to-economical-cloud-options/"><u>The Ultimate Guide to Economical Cloud Options</u></a></li>
+</ul></div>
+

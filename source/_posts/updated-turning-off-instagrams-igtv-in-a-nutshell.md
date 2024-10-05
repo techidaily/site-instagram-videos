@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Turning Off Instagram's IGTV in a Nutshell"
-date: 2024-09-27T19:07:46.233Z
-updated: 2024-09-29T19:49:49.565Z
+date: 2024-10-03T22:58:29.757Z
+updated: 2024-10-05T03:43:26.271Z
 tags:
   - ai video
   - ai instagram
@@ -34,10 +34,10 @@ thumbnail: https://thmb.techidaily.com/fb708f6b02bb2770894398e8943ab9eb4326fec35
  Select the **Push Notifications option**, and then scroll all the way down to the **IGTV Video Updates section** of the Push Notifications menu. Tap on the **Off** option, and you’re done, you’ll no longer receive notifications from IGTV. If at any point you change your mind and you decide that you want to receive notifications from IGTV you can return to the Push Notifications menu and select the **From People I Follow** or **From Everyone** option in the IGTV Video Update section of the Push Notifications menu.
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
-  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Hide IGTV Videos?
@@ -55,10 +55,16 @@ thumbnail: https://thmb.techidaily.com/fb708f6b02bb2770894398e8943ab9eb4326fec35
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -76,17 +82,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-the-ultimate-guide-to-10-must-have-ig-video-editing-tools/"><u>[New] In 2024, The Ultimate Guide to 10 Must-Have IG Video Editing Tools</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-mediasphere-app-user-experience-report/"><u>[New] MediaSphere App User Experience Report</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-smooth-sailing-navigating-the-world-of-igtv-videos-for-2024/"><u>[New] Smooth Sailing Navigating the World of IGTV Videos for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-the-ultimate-guide-to-skyrocketing-subscriber-count-on-igtv/"><u>[New] The Ultimate Guide to Skyrocketing Subscriber Count on IGTV</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-mastering-instagram-stories-your-complete-guide/"><u>[Updated] 2024 Approved Mastering Instagram Stories Your Complete Guide</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-mobile-artistry-ios-and-androids-creme-de-la-creme-of-image-stickers/"><u>[Updated] Mobile Artistry IOS and Android's Crème De La Crème of Image Stickers</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-social-media-savvy-key-hashtags-to-utilize-today/"><u>2024 Approved Social Media Savvy Key Hashtags to Utilize Today</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-top-10-border-tools-for-professional-instagram-images/"><u>2024 Approved Top 10 Border Tools for Professional Instagram Images</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/connect-and-learn-new-android-app-chatgpt/"><u>Connect and Learn: New Android App, ChatGPT!</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-solutions-to-spy-on-vivo-y78t-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>In 2024, Solutions to Spy on Vivo Y78t with and without jailbreak | Dr.fone</u></a></li>
-<li><a href="https://win-blog.techidaily.com/1723010631772-phasmophobia-vr-malfunction-heres-how-you-can-repair-it/"><u>Phasmophobia VR Malfunction? Here's How You Can Repair It</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/the-ls-showdown-tech-titans-clashing-in-real-time-for-2024/"><u>The LS Showdown Tech Titans Clashing in Real Time for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-cheerful-footage-extractor-analysis/"><u>[New] 2024 Approved Cheerful Footage Extractor Analysis</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-elevate-your-instagram-game-with-unique-highlight-images/"><u>[Updated] 2024 Approved Elevate Your Instagram Game with Unique Highlight Images</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-boost-engagement-the-art-of-adding-borders-on-insta-for-2024/"><u>[Updated] Boost Engagement The Art of Adding Borders on Insta for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-newbie-vlogger-tips-simple-video-concepts/"><u>[Updated] Newbie Vlogger Tips Simple Video Concepts</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-step-by-step-method-for-changing-your-instagram-tone-for-2024/"><u>[Updated] Step-By-Step Method for Changing Your Instagram Tone for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-invisible-readers-pathway-how-to-engage-with-instagram-stories-unseen/"><u>[Updated] The Invisible Reader's Pathway How to Engage with Instagram Stories Unseen</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-fake-gps-location-apps-on-android-of-your-realme-v30-drfone-by-drfone-virtual/"><u>10 Fake GPS Location Apps on Android Of your Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-how-to-enrich-social-media-content-with-auto-generated-speech/"><u>2024 Approved How to Enrich Social Media Content with Auto-Generated Speech</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-sony-s6700-revised-whats-new/"><u>2024 Approved Sony S6700 Revised - What's New?</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-windows-10-ultimate-screen-capture-tool/"><u>2024 Approved Windows 10 Ultimate Screen Capture Tool</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/boost-your-content-with-top-notch-tiktok-video-edit-tricks/"><u>Boost Your Content with Top-Notch TikTok Video Edit Tricks</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-itel-p55t-to-mac-drfone-by-drfone-android/"><u>How to Mirror Itel P55T to Mac? | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-enhancing-insta-videos-3-simple-border-techniques/"><u>In 2024, Enhancing Insta Videos 3 Simple Border Techniques</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-infinix-hot-30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Infinix Hot 30 5G | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-the-clandestine-way-exploring-insta-stories-on-tech-devices/"><u>In 2024, The Clandestine Way Exploring Insta Stories on Tech Devices</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/mp3mov-movavi/"><u>MP3/MOVファイルを自由に変換！ - 動画対応のオンラインツールMovavi</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/unlocking-personalized-vocal-elements-on-instagram-for-2024/"><u>Unlocking Personalized Vocal Elements on Instagram for 2024</u></a></li>
 </ul></div>
 

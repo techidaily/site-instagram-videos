@@ -1,7 +1,7 @@
 ---
 title: "Optimizing Your Disco Elysium Adventure: How to Fix PC Crashes & Enjoy the Game Seamlessly"
-date: 2024-09-22T21:10:40.797Z
-updated: 2024-09-29T23:55:27.709Z
+date: 2024-10-04T09:41:18.743Z
+updated: 2024-10-05T06:41:44.033Z
 tags:
   - win11
   - win10
@@ -34,6 +34,13 @@ A screenshot of Ghostwire: Tokyo from Steam
 7. **[Disable Steam Overlay](https://tools.techidaily.com/drivereasy/download/)**
 8. **[Disable third-party antivirus software](https://tools.techidaily.com/drivereasy/download/)**
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148635/16836" target="_top" id="2148635">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148635" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148635/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Fix 1: Verify the game files
 
  Game file corruption are usually the culprit for the game crashing issues. If you’re not sure if any game files are missing or corrupted on your PC, you can follow the instructions below to verify integrity of game files:
@@ -42,13 +49,6 @@ A screenshot of Ghostwire: Tokyo from Steam
 2. **Right-click** on **Ghostwire: Tokyo** and select **Properties** .  
 ![Steam game properties](https://images.drivereasy.com/wp-content/uploads/2021/04/Steam-game-F1-2020-properties.jpg)
 3. Click **LOCAL FILES** on the left, then click **Verify integrity of game files…** . If Steam finds anything wrong with the game files, it will re-download them from its official server.  
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![verify the integrity of game files](https://images.drivereasy.com/wp-content/uploads/2021/04/F1-2020-verify-the-integrity-of-game-files.jpg)
 
@@ -66,6 +66,13 @@ A screenshot of Ghostwire: Tokyo from Steam
 
 There’re mainly two ways you can update your graphics drivers:
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Option 1: Manually
 
  You’ll need some computer skills and patience to update your drivers this way, because you need to find exactly the right the driver online, download it and install it step by step.
@@ -80,6 +87,13 @@ There’re mainly two ways you can update your graphics drivers:
  Once you’ve downloaded the correct drivers for your system, double-click on the downloaded file and follow the on-screen instructions to install the driver.
 
 Or
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Option 2: Automatically (Recommended)
 
@@ -126,33 +140,27 @@ Or
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/fortect-1.jpg)
 3. Fortect will scan your computer thoroughly. This may take a few minutes.  
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/fortect-2.jpg)
 4. Once done, you’ll see a detailed report of all the issues on your PC. To fix them automatically, click**START REPAIR** . This requires you to purchase the full version. But don’t worry. If Fortect doesn’t solve the issue, you can request a refund within 60 days.  
-![](https://images.drivereasy.com/wp-content/uploads/2022/01/fortect-3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![](https://images.drivereasy.com/wp-content/uploads/2022/01/fortect-3.jpg)
 
  Fortect comes with 24/7 Technical Support. If you need any assistance, you can use one of the following:  
 **Email:** <support@fortect.com>  
 **Submit a ticket:** _[https://www.fortect.com/company/contacts/](https://www.reimageplus.com/submit-ticket/)_
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Fix 4: Install the latest game patch
@@ -162,19 +170,6 @@ Or
  If a patch is available, it will be detected by Steam, and the latest game patch will be automatically downloaded and installed when you run the game.
 
  Run Ghostwire: Tokyo and see if the game crashing issue has been resolved. If it hasn’t, or there was no new game patch available, move on to next fix, below.
-
-<!-- affiliate ads begin -->
-<span id="1702748">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Fix 5: Install the latest DirectX files
 
@@ -186,13 +181,6 @@ Or
 2. Click the Download button to start the download.  
 ![download latest DirectX](https://images.drivereasy.com/wp-content/uploads/2021/03/download-latest-DirectX.jpg)
 3. Once downloaded, double-click the downloaded**.exe** file to install it on your computer.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 4. Restart your computer and launch the game.
 
@@ -208,13 +196,6 @@ Or
 
  See this issue persists after you stopped overclocking. If this fix didn’t help, try the next fix, below.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Fix 7: Disable Steam Overlay
 
  Overlays are convenient, but sometimes they would interfere with the game and even block the game files, leading to the game crashing issues.
@@ -225,7 +206,21 @@ Or
 ![Steam game properties](https://images.drivereasy.com/wp-content/uploads/2021/04/Steam-game-F1-2020-properties.jpg)
 2. Uncheck **Enable Steam Overlay while in-game** .  
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
+  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![disable steam overlay](https://images.drivereasy.com/wp-content/uploads/2021/05/disable-steam-overlay.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  If you’re using other apps with overlay features (e.g. Xbox Game Bar, Discord, Nvidia GeForce Experience, Twitch, etc.), ensure you’ve disabled the in-game overlay in those apps feature.
 
@@ -262,24 +257,22 @@ Or
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/framelock-the-future-of-screen-capturing-in-2024/"><u>'Framelock' – The Future of Screen Capturing, In 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-elevate-your-presence-setting-up-an-instagram-company/"><u>[New] Elevate Your Presence Setting Up an Instagram Company</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-visual-storytelling-cropping-and-editing-tips-for-instagram-audiences/"><u>[New] Visual Storytelling Cropping and Editing Tips for Instagram Audiences</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-best-of-breed-top-9-microphones-recorders-online-for-2024/"><u>[Updated] Best of Breed Top 9 Microphones Recorders Online for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-essential-info-on-instagrams-video-time-frame-rules/"><u>[Updated] Essential Info on Instagram's Video Time Frame Rules</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-hands-on-with-hp-envy-27-pushing-screen-tech-to-limits/"><u>[Updated] Hands-On with HP Envy 27 Pushing Screen Tech to Limits</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-instagram-video-frustrations-find-solutions-now/"><u>[Updated] In 2024, Instagram Video Frustrations? Find Solutions Now</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-instagram-edge-techniques-for-effective-video-cropping-and-exporting-for-2024/"><u>[Updated] Instagram Edge Techniques for Effective Video Cropping and Exporting for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/excel-wonders-still-out-of-reach-for-advanced-language-models-like-chatgpt/"><u>Excel Wonders Still Out of Reach for Advanced Language Models Like ChatGPT</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-spreading-smiles-crafting-visual-jokes-for-fbinstagram-shares/"><u>In 2024, Spreading Smiles Crafting Visual Jokes for FB/Instagram Shares</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-understanding-ip-in-instagram-rhythms/"><u>In 2024, Understanding IP in Instagram Rhythms</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Location is Not Updating and How to Fix On Lava Blaze Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/instagram-prowess-the-ultimate-list-of-powerful-hashtags-for-2024/"><u>Instagram Prowess The Ultimate List of Powerful Hashtags for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/making-the-right-choice-in-depth-review-of-amazon-fire-vs-samsung-tablets/"><u>Making The Right Choice: In-Depth Review Of Amazon Fire Vs. Samsung Tablets</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/tips-for-designing-and-updating-igtv-thumbnails-for-2024/"><u>Tips for Designing & Updating IGTV Thumbnails for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/understanding-youtube-cc-licensing-for-video-creators-for-2024/"><u>Understanding YouTube CC Licensing for Video Creators for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/unveiling-leading-10-free-subtitle-editors-for-srt-files-for-2024/"><u>Unveiling Leading 10 FREE Subtitle Editors for SRT Files for 2024</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-stabilize-your-videos-for-free-8-best-online-tools-and-a-step-by-step-guide/"><u>Updated 2024 Approved Stabilize Your Videos for Free 8 Best Online Tools and a Step-by-Step Guide</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/why-does-my-pc-keep-crashing-during-ready-or-not-understanding-and-fixes-to-play-seamlessly/"><u>Why Does My PC Keep Crashing During 'Ready or Not'? Understanding and Fixes to Play Seamlessly</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-enhancing-television-experience-playback-tips-for-youtube-content-for-2024/"><u>[New] Enhancing Television Experience Playback Tips for YouTube Content for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-unlocking-swiftness-in-fb-video-transfers-with-top-tools-and-extensions/"><u>[New] In 2024, Unlocking Swiftness in FB Video Transfers with Top Tools and Extensions</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-instagram-edge-enhancement-3-essential-methods/"><u>[New] Instagram Edge Enhancement - 3 Essential Methods</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-optimizing-engagement-how-to-block-on-insta/"><u>[New] Optimizing Engagement How to Block on Insta</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-perfect-your-media-library-save-vimeo-footage-to-mp4/"><u>[New] Perfect Your Media Library Save Vimeo Footage to MP4</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-reel-into-reality-how-boomers-keep-ig-audiene-hooked-for-2024/"><u>[New] Reel Into Reality How Boomers Keep IG Audiene Hooked for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-the-motivational-lens-capturing-stirring-scenes-on-ig/"><u>[New] The Motivational Lens Capturing Stirring Scenes on IG</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-the-sound-of-success-tailoring-audio-for-instagram-content/"><u>[Updated] In 2024, The Sound of Success Tailoring Audio for Instagram Content</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-optimizing-viewing-experience-video-filters-for-all-screens/"><u>[Updated] Optimizing Viewing Experience Video Filters for All Screens</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/become-a-social-media-vanguard-top-10-pioneering-igtv-techniques-for-marketing-excellence-for-2024/"><u>Become a Social Media Vanguard Top 10 Pioneering IGTV Techniques for Marketing Excellence for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/everything-you-need-to-know-about-lock-screen-settings-on-your-nokia-c300-by-drfone-android/"><u>Everything You Need to Know about Lock Screen Settings on your Nokia C300</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/expediting-the-engagement-of-instagram-videos-for-2024/"><u>Expediting the Engagement of Instagram Videos for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/fix-vcompdll-cannot-be-located-error-a-step-by-step-solution/"><u>Fix Vcomp.dll Cannot Be Located Error: A Step-by-Step Solution</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-a-complete-guide-to-oem-unlocking-on-nokia-c32-by-drfone-android/"><u>In 2024, A Complete Guide To OEM Unlocking on Nokia C32</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-in-ar-games-on-infinix-note-30-drfone-by-drfone-virtual-android/"><u>In 2024, How to Simulate GPS Movement in AR games On Infinix Note 30? | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-simple-strategies-for-saving-video-calls/"><u>In 2024, Simple Strategies for Saving Video Calls</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-unlocking-engagement-best-practices-for-highlight-boost/"><u>In 2024, Unlocking Engagement Best Practices for Highlight Boost</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Ultimate Guide to Engagement  Mastering Instagram Stories\""
-date: 2024-09-27T20:45:24.672Z
-updated: 2024-09-29T23:41:47.488Z
+date: 2024-10-03T02:21:00.123Z
+updated: 2024-10-05T04:28:16.422Z
 tags:
   - ai video
   - ai instagram
@@ -94,13 +94,6 @@ So, you have tried all the options with Instagram camera? Let's go through 'Hand
 
 After you have captured the video using any of the above lenses, you can share them as your Insta Story. We are sure that you have enjoyed reading about these cool camera lenses. It's time to go out and check how to use them for Instagram Stories. So, get ready with your smartphone and start capturing. Click! Click! Click!
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Tips and Tricks
 
 Now that you have an idea about all the filters and lenses of Instagram, we thought of introducing you to some cool add-ons for your captivating Instagram Stories.
@@ -108,24 +101,24 @@ Now that you have an idea about all the filters and lenses of Instagram, we thou
 ![](https://images.wondershare.com/filmora/article-images/create-insta-stories-4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Image resource: Ryan Bilello
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Use Stickers
 
 ![](https://images.wondershare.com/filmora/article-images/instagram-stickers.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Using 'Stickers' with your video or images you can spice up your Insta Stories. To use these stickers, first open Instagram, and then capture a video/picture or select one from your gallery. Now, tap on the smiley icon at the top right corner of the picture or video. You will see lot of options under it. Select any of them and then pin it to your picture/video to share. You can resize the 'Stickers' by pinching (to zoom in and out) them.
 
@@ -139,13 +132,6 @@ You can add 'Polls', 'Location', and 'Hashtags' to your Insta Stories by tapping
 
 To turn your own face into a sticker, you can tap the camera icon under the 'Stickers' section and take a selfie. Then tap on the selfie to pin it as a sticker on your picture or video, and then share as your Instagram Story.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Use your pen
 
 ![](https://images.wondershare.com/filmora/article-images/instagram-pen.jpg)
@@ -154,9 +140,23 @@ Now that you have used funny stickers to make your picture (for Insta Story) att
 
 Whoa! You are becoming a sport at how to use Instagram Stories.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Add text
 
 ![](https://images.wondershare.com/filmora/article-images/add-text-to-instagram.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 You can also add text to make your Instagram Stories more attractive. Tap on the 'Aa' icon on the extreme right corner of your screen (in Instagram camera) and start typing. You can change the font style by tapping the style available on top of the screen, as well as select the color of the 'Text'. You can also tag people in 'Text' by typing '@' and then the handle name of the person, then click on their image.
 
@@ -166,13 +166,6 @@ You can also add text to make your Instagram Stories more attractive. Tap on the
 
 Adorn your creative hat and weave some magic into the Insta Stories now. For adding color overlays to your Insta Story image or video you need to use the 'Pen' tool here and choose a color. Now, click anywhere on the screen and hold for a moment until the entire screen is covered with that color. After that tap on the 'Eraser' tool and uncover specific portions of the picture or video to create interesting Instagram Stories.
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
-  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Add link
 
 Adding links to your Instagram Stories is one of the trendiest things now. Gone are the days of 'link in bio' under your description. Though, adding a link to your Instagram Story is now restricted to the verified accounts and business profiles with more than 10,000 followers. This is an interesting way of driving traffic to your business page, or your YouTube channel, and the likes.
@@ -180,6 +173,13 @@ Adding links to your Instagram Stories is one of the trendiest things now. Gone 
 First add a video or picture and then click on the paperclip icon from the top right corner of the screen. Enter your URL after tapping the paperclip icon, and then share it as your Instagram Story to lure your audience. The 'Swipe Up' message will be displayed at the bottom of the story. You can drive your audience towards it by being little creative and drawing an arrow pointing to this text.
 
 **You May Also Like:** [How to Post a Link to Instagram Stories and Posts](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Add music
 
@@ -206,22 +206,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-2024-approved-cloud-consortium-choices-best-spaces-revealed/"><u>[New] 2024 Approved Cloud Consortium Choices Best Spaces Revealed</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-mastering-instagram-stories-a-step-by-step-polling-guide/"><u>[New] 2024 Approved Mastering Instagram Stories A Step-by-Step Polling Guide</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-unrivaled-tag-analyzers-your-key-to-hashtag-success-fbtwitterinsta/"><u>[New] 2024 Approved Unrivaled Tag Analyzers Your Key to Hashtag Success (FB/Twitter/Insta)</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-dreaming-through-the-viewfinder-inspiring-photo-ideas/"><u>[New] Dreaming Through the Viewfinder Inspiring Photo Ideas</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-crafting-timeless-videos-with-historical-flair-for-2024/"><u>[Updated] Crafting Timeless Videos with Historical Flair for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-breaking-down-instagrams-video-conversation-protocol/"><u>[Updated] In 2024, Breaking Down Instagram's Video Conversation Protocol</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-snapit-share-it-in-order-on-ig-for-2024/"><u>[Updated] SnapIt, Share It in Order on IG for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-what-lies-beneath-periscope-its-features-pricing-and-registration-guide/"><u>[Updated] What Lies Beneath Periscope? Its Features, Pricing & Registration Guide</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-acquire-excellent-images-at-no-cost-essential-strategies/"><u>2024 Approved Acquire Excellent Images at No Cost Essential Strategies</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-infinix-note-30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Infinix Note 30 5G | Dr.fone</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/in-2024-mastering-skype-recording-obs-integration-guide/"><u>In 2024, Mastering Skype Recording OBS Integration Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/instant-login-swapping-navigating-across-facebook-ids/"><u>Instant Login Swapping: Navigating Across Facebook IDs</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/maximize-output-with-windows-streamlined-launcher/"><u>Maximize Output with Windows' Streamlined Launcher</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/optimizing-igtv-videos-editing-strategies-for-2024/"><u>Optimizing IGTV Videos Editing Strategies for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/tips-for-efficiently-editing-videos-for-social-media-engagement-for-2024/"><u>Tips for Efficiently Editing Videos for Social Media Engagement for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-10-telegram-spy-tools-on-vivo-t2-5g-for-parents-drfone-by-drfone-virtual-android/"><u>Top 10 Telegram Spy Tools On Vivo T2 5G for Parents | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/transform-your-content-emulate-top-tiktok-trends-on-instagram-reels/"><u>Transform Your Content Emulate Top TikTok Trends on Instagram Reels</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-the-reverse-playlist-routine-tail-end-dominance-on-yt/"><u>[New] 2024 Approved The Reverse Playlist Routine Tail-End Dominance on YT</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-instagrams-backward-glimpse-reverse-video-tips/"><u>[New] In 2024, Instagram's Backward Glimpse Reverse Video Tips</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-3-ways-add-captions-to-instagram-videos-for-2024/"><u>[Updated] [3 Ways] Add Captions to Instagram Videos for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-reach-new-heights-on-igtv-top-tactics-for-expanding-your-audience/"><u>[Updated] Reach New Heights on IGTV Top Tactics for Expanding Your Audience</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-expert-recommendations-free-chat-apps-with-screen-viewing/"><u>2024 Approved Expert Recommendations Free Chat Apps with Screen Viewing</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-insta-reel-power-mimicking-high-flying-tiktok-methods/"><u>2024 Approved Insta Reel Power Mimicking High-Flying TikTok Methods</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/48-hour-memelore-creation-via-kinemaster-for-2024/"><u>48-Hour Memelore Creation via KineMaster for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/expert-techniques-for-adding-borders-to-your-instagram-images-for-2024/"><u>Expert Techniques for Adding Borders to Your Instagram Images for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-teleport-your-gps-location-on-samsung-galaxy-s23plus-drfone-by-drfone-virtual-android/"><u>How To Teleport Your GPS Location On Samsung Galaxy S23+? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-the-ultimate-guide-to-increasing-fb-likes-with-top-apps/"><u>In 2024, The Ultimate Guide to Increasing FB Likes with Top Apps</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/mastering-memes-kinemaster-guide-for-2024/"><u>Mastering Memes KineMaster Guide for 2024</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/xbox-onexbox-series-xs-dvd/"><u>Xbox OneとXbox Series X・S: DVDビデオ再生ガイド</u></a></li>
 </ul></div>
 

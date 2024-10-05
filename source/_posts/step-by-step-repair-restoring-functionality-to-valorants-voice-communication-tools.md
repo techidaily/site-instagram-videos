@@ -1,7 +1,7 @@
 ---
 title: "Step by Step Repair: Restoring Functionality to Valorant's Voice Communication Tools"
-date: 2024-09-28T19:38:31.294Z
-updated: 2024-09-29T21:28:23.652Z
+date: 2024-09-27T19:42:17.134Z
+updated: 2024-10-04T17:30:26.093Z
 tags:
   - win11
   - win10
@@ -30,6 +30,13 @@ thumbnail: https://thmb.techidaily.com/7e858d7102e5ef6f6137f0acdeeba112d7b0daf0c
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Fix 1: Sign out Fortnite, then sign back in
 
  This is the quickest and easiest fix to try when chat’s not working in Fortnite. Just sign out of the game, then sign back in.
@@ -56,13 +63,6 @@ thumbnail: https://thmb.techidaily.com/7e858d7102e5ef6f6137f0acdeeba112d7b0daf0c
 
  If you need assistance, please contact**Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Fix 3: Install the latest Fortnite patch
 
  The developers of Fortnite release regular game patches to fix bugs. It’s possible that a recent patch has stopped your chat from working, and that a new patch is required to fix it.
@@ -76,10 +76,10 @@ thumbnail: https://thmb.techidaily.com/7e858d7102e5ef6f6137f0acdeeba112d7b0daf0c
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap911.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  3.**Turn on** the toggle next to **Auto update** .
@@ -93,26 +93,13 @@ thumbnail: https://thmb.techidaily.com/7e858d7102e5ef6f6137f0acdeeba112d7b0daf0c
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap898.png)
 
 <!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Run Fortnite again to check whether your chat problem has been resolved. If it hasn’t, or there was no new game patch available, move on to Fix 4, below.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148636/16836" target="_top" id="2148636">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148636" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148636/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 4: Make sure your microphone is on for Fortnite
 
@@ -123,10 +110,16 @@ thumbnail: https://thmb.techidaily.com/7e858d7102e5ef6f6137f0acdeeba112d7b0daf0c
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/Snap427.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  2\. Click **Microphone**  on the left pane, and make sure**Microphone access for this device** is**on** , and the status is **On** for **Fortnite** .
@@ -150,10 +143,16 @@ thumbnail: https://thmb.techidaily.com/7e858d7102e5ef6f6137f0acdeeba112d7b0daf0c
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/Snap431-1024x576.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 iii. Exit Fortnite.
@@ -174,13 +173,6 @@ iii. Exit Fortnite.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/Snap443.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  6\. Click **OK** .
 
  7\. Run Fortnite again to**turn Voice Chat on.**
@@ -195,9 +187,23 @@ iii. Exit Fortnite.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/Snap940.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  2\. Click**Uninstall** to uninstall Fortnite.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/Snap950.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 3\. Restart your PC.
 
@@ -228,16 +234,21 @@ iii. Exit Fortnite.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-avoiding-fakes-instagram-selfie-wisdom/"><u>[New] 2024 Approved Avoiding Fakes Instagram Selfie Wisdom</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/est-collection-sites-for-quick-access-to-youtube-vids/"><u>[New] Best Collection Sites for Quick Access to YouTube Vids</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-seamless-integration-utilizing-instagrams-music-stickers-expertise-for-2024/"><u>[New] Seamless Integration Utilizing Instagram's Music Stickers Expertise for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/he-ultimate-list-for-choosing-your-camera-and-gear-for-2024/"><u>[New] The Ultimate List for Choosing Your Camera & Gear for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-unlock-the-power-of-instagram-reels-with-these-strategies/"><u>[Updated] 2024 Approved Unlock the Power of Instagram Reels with These Strategies</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-audiences-choice-in-drama-writings/"><u>[Updated] Audience's Choice in Drama Writings</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-ultimate-vault-explorers-superior-cloud-service-review/"><u>2024 Approved Ultimate Vault Explorers Superior Cloud Service Review</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/enhance-your-video-impact-with-slow-motion-on-ig-for-2024/"><u>Enhance Your Video Impact with Slow Motion on IG for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-the-best-of-the-best-12-youtube-video-game-openers-freepaid/"><u>In 2024, The Best of the Best 12 YouTube Video Game Openers (FREE/PAID)</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-lower-thirds-like-a-pro-tips-and-tricks-for-fcpx-users-for-2024/"><u>New Lower Thirds Like a Pro Tips and Tricks for FCPX Users for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/solving-the-problem-with-your-turtle-beach-mic-step-by-step-solutions/"><u>Solving the Problem with Your Turtle Beach Mic – Step-by-Step Solutions</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-top-tools-for-saving-insta-photos-and-videos/"><u>[New] 2024 Approved Top Tools for Saving Insta Photos & Videos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-insta-film-conversion-blueprints-to-mp3-formats/"><u>[New] Insta Film Conversion Blueprints to MP3 Formats</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-ig-upgrade-starts-here-top-tools-for-follower-growth-for-2024/"><u>[Updated] IG Upgrade Starts Here Top Tools for Follower Growth for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-access-all-instagram-video-content-with-free-online-and-os-compatible-exporters/"><u>[Updated] In 2024, Access All Instagram Video Content with Free Online and OS-Compatible Exporters</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-androids-video-reversion-secrets-unveiled/"><u>[Updated] In 2024, Android's Video Reversion Secrets Unveiled</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-elevate-your-brands-instagram-presence-with-these-hacks/"><u>[Updated] In 2024, Elevate Your Brand's Instagram Presence with These Hacks</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-instagrams-secrets-to-virality-unveiling-the-mysteries-of-engagement-for-2024/"><u>[Updated] Instagram's Secrets to Virality Unveiling the Mysteries of Engagement for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-navigating-the-metaverse-with-elite-headsets-for-2024/"><u>[Updated] Navigating the Metaverse with Elite Headsets for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-the-filmmakers-guide-to-distorting-space-and-time/"><u>[Updated] The Filmmaker's Guide to Distorting Space & Time</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-ultimate-guide-to-crafting-engaging-asmr-content-for-2024/"><u>[Updated] The Ultimate Guide to Crafting Engaging ASMR Content for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-building-bridges-pathways-for-graphic-design-aspirants/"><u>2024 Approved Building Bridges Pathways for Graphic Design Aspirants</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-tecno-phantom-v-flip-phone-frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Tecno Phantom V Flip Phone FRP Lock</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-the-ice-with-a-detailed-look-at-nhl-19s-virtual-gameplay/"><u>Mastering the Ice with a Detailed Look at NHL 19'S Virtual Gameplay</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/quick-guide-to-mp3-from-instagram-videos/"><u>Quick Guide to MP3 From Instagram Videos</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/top-10-password-cracking-tools-for-vivo-v30-pro-by-drfone-android/"><u>Top 10 Password Cracking Tools For Vivo V30 Pro</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/top-trends-in-instagram-hashtags-for-enhanced-reach-for-2024/"><u>Top Trends in #Instagram Hashtags for Enhanced Reach for 2024</u></a></li>
 </ul></div>
 

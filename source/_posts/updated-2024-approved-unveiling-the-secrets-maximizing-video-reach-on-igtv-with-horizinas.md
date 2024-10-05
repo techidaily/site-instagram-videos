@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Unveiling the Secrets  Maximizing Video Reach on IGTV with Horizinas\""
-date: 2024-08-20T05:08:22.816Z
-updated: 2024-08-21T05:08:22.816Z
+date: 2024-09-27T20:23:14.317Z
+updated: 2024-10-05T08:35:48.235Z
 tags:
   - ai video
   - ai instagram
@@ -40,18 +40,26 @@ Even though you can now share videos that last up to ten minutes or an entire ho
 [What is IGTV and How to Use It: Everything You Need to Know>>](https://tools.techidaily.com/wondershare/filmora/download/)
 [How to Download/Save Instagram Photos/Videos on iPhone>>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Save Instagram photos/videos on iPhone
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Upload a Landscape Video to IGTV from a Mac or a PC computer?
 
 If you already have an Instagram account, you can upload your videos to IGTV directly from your computer. All you have to do is head over to **Instagram.com** and then click on the **IGTV icon** on your profile page. This means that you can use Mac and PC-based video editing software products to edit your videos before you share them on IGTV.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Using Filmora Video Editor to Edit IGTV Videos
 
 If you decide to edit the videos you want to upload to IGTV on a Mac or a PC computer, then we suggest using the Filmora video editor, because it offers all the tools you’re going to need to create a landscape video you can share on your IGTV channel.
@@ -60,9 +68,6 @@ Check out our video guide about how to edit videos for Instagram.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Here is the process in word format in case you don't have time to check the video.
 
 **Create a new project**, and then when the new project loads head over the **File menu** and choose the **Project Settings** option. Click on the **Resolution drop-down menu** and then select the **720x1280 (9:16)** option. Make sure to change **the Frame Rate to 30FPS** and click **OK** to confirm the changes you made.
@@ -78,8 +83,12 @@ Optionally, you can **take a snapshot of your video** by clicking on the **Photo
 Once your video is exported from Filmora, you should go to Instagram.com, click on the IGTV icon on your profile page and upload the horizontal video to your IGTV channel.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Using the Instagram App to Upload Horizontal Videos to IGTV from Smartphones
 
 In case you’d just like to post a video to your IGTV channel, you can use the Instagram app to quickly create a horizontally oriented video. **The stories editor** enables you to accomplish this, but you should keep in mind that this solution only works if the duration of a video doesn’t exceed the **15-second limit**.
@@ -90,11 +99,6 @@ After you’ve selected the video you’ll be able to see **two arrows on the sc
 
 Tap on the **Save icon** to confirm the changes and proceed to upload the video to your IGTV channel.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
-<!-- affiliate ads end -->
 ## Creating a Horizontal Video from a Mobile Device with GoPro Splice
 
 iPhone users can easily create landscape videos for their IGTV channels with GoPro’s [Splice](https://itunes.apple.com/us/app/splice-video-editor-maker/id409838725?mt=8) app. You can **download the app for free from the App Store** and you won’t have to make any in-app purchases after you install Splice on your device.
@@ -110,15 +114,17 @@ None of the options for creating vertical videos for IGTV are perfect because ea
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -126,3 +132,22 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-gradual-volume-reduction-in-studio-projects-using-logic-pro/"><u>[New] Gradual Volume Reduction in Studio Projects Using Logic Pro</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-surviving-the-apocalypse-top-8-zombie-classics/"><u>[New] In 2024, Surviving the Apocalypse Top 8 Zombie Classics</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-streamlining-your-social-space-stop-following-steps/"><u>[New] Streamlining Your Social Space Stop Following Steps</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-instagram-savvy-top-5-methods-for-building-a-thriving-influencer-profile/"><u>[Updated] 2024 Approved Instagram Savvy Top 5 Methods for Building a Thriving Influencer Profile</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-mastering-the-art-of-tagging-instas-top-25-must-use-tags/"><u>[Updated] In 2024, Mastering the Art of Tagging Insta's Top 25 Must-Use Tags</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-rhythm-and-reel-incorporating-tunes-on-instagram/"><u>[Updated] In 2024, Rhythm & Reel Incorporating Tunes on Instagram</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/capture-and-conserve-the-instagram-freedom-toolkit/"><u>Capture and Conserve The Instagram Freedom Toolkit</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-xiaomi-redmi-note-13-5g-by-drfone-android/"><u>Complete Review & Guide to Techeligible FRP Bypass and More For Xiaomi Redmi Note 13 5G</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/cutting-edge-performance-of-the-philips-somneo-a-masterclass-in-alarm-design/"><u>Cutting-Edge Performance of the Philips Somneo: A Masterclass in Alarm Design</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-lava-storm-5g-by-phone-number-drfone-by-drfone-virtual-android/"><u>How to Track Lava Storm 5G by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-the-budget-friendly-insignia-ns-4ndf710nana19-enhanced-by-alexa-and-ultra-hd-features/"><u>Review of the Budget-Friendly Insignia NS-4nDf710NANA19: Enhanced by Alexa and Ultra HD Features</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/sony-unveils-excellence-the-4k-smartphone-breakthrough-with-xperia-xz/"><u>Sony Unveils Excellence The 4K Smartphone Breakthrough with Xperia XZ</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/tackle-teleconference-noise-solving-zoom-sound-issues/"><u>Tackle Teleconference Noise Solving Zoom Sound Issues</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/three-ways-to-make-your-instagram-videos-pop-with-captions-for-2024/"><u>Three Ways to Make Your Instagram Videos Pop with Captions for 2024</u></a></li>
+</ul></div>
+

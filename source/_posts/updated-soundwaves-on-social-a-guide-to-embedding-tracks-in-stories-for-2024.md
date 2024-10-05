@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Soundwaves on Social  A Guide to Embedding Tracks in Stories for 2024\""
-date: 2024-08-20T05:08:32.289Z
-updated: 2024-08-21T05:08:32.289Z
+date: 2024-10-03T20:45:14.897Z
+updated: 2024-10-05T06:05:11.260Z
 tags:
   - ai video
   - ai instagram
@@ -75,6 +75,13 @@ That’s it! In this way, you can learn how to add music to IG story and customi
 
 ![ Share Your IG Story](https://images.wondershare.com/filmora/article-images/share-your-ig-story.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Create Stunning IG Stories to Captivate Your Audience?
 
 You might already know how popular Instagram Stories have become in just a few years. The feature is used by over 500 million people and can be an excellent tool to reach out to your audience. Apart from learning how to put music on IG story, there are several other things that you can also do to make your stories more captivating and eye-catching.
@@ -84,6 +91,13 @@ You might already know how popular Instagram Stories have become in just a few y
 Boomerangs are extremely popular in Instagram stories due to their quick yet interesting visual appeal. It will make a small clip play in reverse and back a few times, focusing on the movement. You can just go to your Instagram Story interface and swipe the bottom slider to use your camera to record a boomerang. Apart from that, you can also play with different layouts here to post multiple pictures as a single story.
 
 ![ Boomerangs & Layouts](https://images.wondershare.com/filmora/article-images/boomerangs-layouts.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Use inbuilt Instagram filters
 
@@ -96,6 +110,13 @@ Instagram also keeps rotating different filters that we can add to our stories. 
 Apart from adding music, Instagram also lets us add tons of other things to our story. You can mention any other user in your story or add a location to get more views. There are also options to add a hashtag or create a poll. You can also find different challenges to explore (like the ice bucket challenge) to post your story under a specific category.
 
 ![ Add Polls and More](https://images.wondershare.com/filmora/article-images/add-polls-challenges.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Ask questions to interact with your audience
 
@@ -111,13 +132,24 @@ There you go! Now when you know how to add music to IG Story, you can easily pos
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="864" height="1296" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -125,6 +157,19 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-enhance-snapchat-media-with-smart-zooming-hacks/"><u>[New] 2024 Approved Enhance Snapchat Media with Smart Zooming Hacks</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-the-smart-guide-to-procuring-premium-image-banners/"><u>[New] 2024 Approved The Smart Guide to Procuring Premium Image Banners</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-peering-into-popularity-instagram-analytics-for-you/"><u>[New] In 2024, Peering Into Popularity Instagram Analytics for You</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-the-insiders-pathway-to-trustworthy-insta-selfies/"><u>[New] In 2024, The Insider’s Pathway to Trustworthy Insta Selfies</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-integrating-language-support-in-igtv-posts-for-2024/"><u>[Updated] Integrating Language Support in IGTV Posts for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-photos-files-on-realme-note-50-by-fonelab-android-recover-photos/"><u>Complete guide for recovering photos files on Realme Note 50.</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-mac-tricks-for-dynamic-instagram-video-size-adjustment/"><u>In 2024, Mac Tricks for Dynamic Instagram Video Size Adjustment</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-20-word-formula-to-skyrocket-your-business-reach-for-2024/"><u>The 20-Word Formula to Skyrocket Your Business Reach for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/the-ultimate-voice-guided-powerpoint-handbook-for-2024/"><u>The Ultimate Voice-Guided PowerPoint Handbook for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unraveling-the-benefits-and-user-experience-of-the-philips-hf3505-morning-sun-alarm-clock-review/"><u>Unraveling the Benefits and User Experience of the Philips HF3505 Morning Sun Alarm Clock Review</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/zooming-into-miniature-realms-of-minecraft-for-2024/"><u>Zooming Into Miniature Realms of Minecraft for 2024</u></a></li>
+</ul></div>
+

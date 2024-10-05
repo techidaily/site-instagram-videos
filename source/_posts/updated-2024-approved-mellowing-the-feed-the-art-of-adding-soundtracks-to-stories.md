@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Mellowing the Feed  The Art of Adding Soundtracks to Stories\""
-date: 2024-09-24T19:23:44.789Z
-updated: 2024-09-29T23:31:50.492Z
+date: 2024-09-29T09:57:59.761Z
+updated: 2024-10-04T18:48:59.574Z
 tags:
   - ai video
   - ai instagram
@@ -75,13 +75,6 @@ That’s it! In this way, you can learn how to add music to IG story and customi
 
 ![ Share Your IG Story](https://images.wondershare.com/filmora/article-images/share-your-ig-story.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Create Stunning IG Stories to Captivate Your Audience?
 
 You might already know how popular Instagram Stories have become in just a few years. The feature is used by over 500 million people and can be an excellent tool to reach out to your audience. Apart from learning how to put music on IG story, there are several other things that you can also do to make your stories more captivating and eye-catching.
@@ -93,10 +86,10 @@ Boomerangs are extremely popular in Instagram stories due to their quick yet int
 ![ Boomerangs & Layouts](https://images.wondershare.com/filmora/article-images/boomerangs-layouts.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
-  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Use inbuilt Instagram filters
@@ -105,6 +98,13 @@ Instagram also keeps rotating different filters that we can add to our stories. 
 
 ![ Inbuilt IG Filters](https://images.wondershare.com/filmora/article-images/inbuilt-ig-filters.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Add polls, challenges, countdowns, and more
 
 Apart from adding music, Instagram also lets us add tons of other things to our story. You can mention any other user in your story or add a location to get more views. There are also options to add a hashtag or create a poll. You can also find different challenges to explore (like the ice bucket challenge) to post your story under a specific category.
@@ -112,10 +112,10 @@ Apart from adding music, Instagram also lets us add tons of other things to our 
 ![ Add Polls and More](https://images.wondershare.com/filmora/article-images/add-polls-challenges.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657396/16446" target="_top" id="1657396">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657396" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657396/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Ask questions to interact with your audience
@@ -128,16 +128,22 @@ If you plan to add video content to your Instagram stories, then consider using 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 There you go! Now when you know how to add music to IG Story, you can easily post impressive content on your Instagram profile. For your convenience, I have come up with a stepwise guide on how to put music on IG story that you can easily follow. Besides that, I have also listed some expert tips that you can implement to post visually stunning stories. Go ahead and try these tips and share this guide with your friends to help them add music to IG story as well.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -154,24 +160,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-top-10-hilarious-and-heartfelt-instagram-memes-hubs/"><u>[New] 2024 Approved Top 10 Hilarious & Heartfelt Instagram Memes Hubs</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-from-one-world-to-another-connecting-instagram-and-facebook-for-2024/"><u>[New] From One World to Another Connecting Instagram & Facebook for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-direct-from-instagram-masterful-techniques-for-igtv-video-transferring/"><u>[New] In 2024, Direct From Instagram Masterful Techniques for IGTV Video Transferring</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-in-2024-the-evolution-of-drones-present-impact-and-future-prospects/"><u>[New] In 2024, The Evolution of Drones Present Impact and Future Prospects</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-user-friendly-mac-gadget-visuals-and-voices-recorded-for-2024/"><u>[New] User-Friendly Mac Gadget Visuals & Voices Recorded for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-discover-10-leading-online-video-editors-android-pc/"><u>[Updated] 2024 Approved Discover 10 Leading Online Video Editors (Android, PC)</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-empowerment-in-entertainment-top-10-inspirational-women-for-2024/"><u>[Updated] Empowerment in Entertainment Top 10 Inspirational Women for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-mastering-instagram-securing-sponsorships-amidst-content-creation/"><u>[Updated] In 2024, Mastering Instagram Securing Sponsorships Amidst Content Creation</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-mastering-sound-effects-voice-customization-on-instagram/"><u>[Updated] In 2024, Mastering Sound Effects Voice Customization on Instagram</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-breath-of-ice-the-winter-olympics-in-china-2022/"><u>2024 Approved Breath of Ice The Winter Olympics in China 2022</u></a></li>
-<li><a href="https://win-online.techidaily.com/1726224348687-mkvwma-movavi/"><u>免費移動網路 MKV到WMA - 使用 Movavi 轉換工具</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/captivating-creations-the-process-of-making-popular-video-memes-for-2024/"><u>Captivating Creations The Process of Making Popular Video Memes for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/easily-access-igtv-content-download-guide-for-pcmac-users-for-2024/"><u>Easily Access IGTV Content Download Guide for PC/Mac Users for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-3-ways-to-track-motorola-edge-40-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Track Motorola Edge 40 without Them Knowing | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-edit-and-elevate-instagrams-ultimate-toolkit/"><u>In 2024, Edit & Elevate Instagram's Ultimate Toolkit</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/is-my-ipad-still-relevant-in-todays-tech-scene/"><u>Is My iPad Still Relevant in Today's Tech Scene?</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/real-world-ai-mastery-top-7-strategies-revealed/"><u>Real-World AI Mastery: Top 7 Strategies Revealed</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-corsair-one-pro-assessment-the-ideal-choice-for-gamers-seeking-performance/"><u>Ultimate Corsair One Pro Assessment: The Ideal Choice for Gamers Seeking Performance</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/unlock-efficient-video-compression-download-virtualdub-mpeg2-now-for-2024/"><u>Unlock Efficient Video Compression Download VirtualDub MPEG2 Now for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-decoding-the-advanced-features-of-nikon-d7500/"><u>[New] 2024 Approved Decoding the Advanced Features of Nikon D7500</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-engaging-followers-on-instagram-with-youtube-video-links-in-stories/"><u>[New] In 2024, Engaging Followers on Instagram with YouTube Video Links in Stories</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-from-basics-to-advanced-crafting-powerful-instagram-hashtags/"><u>[Updated] 2024 Approved From Basics to Advanced Crafting Powerful Instagram Hashtags</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-best-practices-for-producing-eye-catching-slow-motion-videos-on-instagram-for-2024/"><u>[Updated] Best Practices for Producing Eye-Catching Slow-Motion Videos on Instagram for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-boundless-savings-for-your-captured-moments/"><u>[Updated] Boundless Savings for Your Captured Moments</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-effortless-resolution-of-macs-green-screen-problem-for-youtubers/"><u>[Updated] Effortless Resolution of Mac's Green Screen Problem for YouTubers</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-how-to-add-auto-captions-to-instagram-for-2024/"><u>[Updated] How to Add Auto Captions to Instagram for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-optimizing-engagement-on-igtv-through-thoughtful-dimension-tweaks/"><u>[Updated] Optimizing Engagement on IGTV Through Thoughtful Dimension Tweaks</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/device-based-access-commence-google-meet-chat-for-2024/"><u>Device-Based Access Commence Google Meet Chat for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/finding-the-fun-in-pokemon-shining-pearl/"><u>Finding the Fun in 'Pokemon Shining Pearl'</u></a></li>
+<li><a href="https://howto.techidaily.com/google-pixel-fold-bootloop-problem-how-to-fix-it-without-data-loss-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Google Pixel Fold Bootloop Problem, How to Fix it Without Data Loss | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-fix-locked-apple-id-on-iphone-11-by-drfone-ios/"><u>How to Fix Locked Apple ID on iPhone 11</u></a></li>
+<li><a href="https://driver-install.techidaily.com/windows-1110-reviving-outdated-wi-fi-hardware/"><u>Windows 11/10: Reviving Outdated Wi-Fi Hardware</u></a></li>
 </ul></div>
 

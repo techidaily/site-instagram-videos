@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Crafting Perfect Instagram Story Cover Pages\""
-date: 2024-09-26T18:15:18.146Z
-updated: 2024-09-29T17:32:16.718Z
+date: 2024-10-04T07:31:53.441Z
+updated: 2024-10-04T20:16:16.680Z
 tags:
   - ai video
   - ai instagram
@@ -38,13 +38,6 @@ Generally, the Instagram highlight covers dimensions are the same as Insta stori
 ![Filmora Instagram highlight ](https://images.wondershare.com/filmora/article-images/filmora-instagram-highlight.jpg)
 
 When designing custom highlight covers on Canva, you will notice that the icon will be in the middle of a story-size rectangle. The overall aspect ratio to make highlight covers in Canva is 9:16\. However, ensure that that the illustration is centered when you add it as your Instagram highlight icon.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: How to Make Instagram Highlight Cover on Canva?
 
@@ -92,20 +85,27 @@ You can make as many highlights covers as you want. Just click on the +Add page 
 
 Once you are done making the Instagram highlight covers and are satisfied with the work, click on the Download button. Choose the file type like PNG or JPG, save your download settings, and hit the Download tab. Your highlight covers download as a zip file. Unzip them and transfer them to your phone via your preferred method.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: How to Upload a Highlight Cover on Instagram
 
 Before you upload the highlight covers on Instagram, ensure you turn on the Archive feature. Go to your Instagram settings and select the story settings and then turn on the Save to Archive. This enables you to see your old stories without downloading them.
 
 ![ upload  highlight cover to instagram ](https://images.wondershare.com/filmora/article-images/upload-highlight-cover-to-instagram.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 As we said before, you should transfer the created highlight cover photos from desktop to you phone, and then click on your Instagram profile and add a new highlight, follow the instructions on the screen to edit cover and then add the highlight cover photo you just created, give it a name, and click on Done. Your new Insta Story Highlight appears at the bottom of your Instagram bio.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4: How to Change Existing Highlight Cover on Instagram?
 
@@ -114,16 +114,10 @@ If you have existing highlight covers, you can easily edit and change them. Go t
 Besides changing highlight cover, here you can edit the highlight and add old stories or delete the images you do not want.
 
 <!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Bonus: Tips for making better Instagram Highlight cover
@@ -151,10 +145,10 @@ Creating Instagram Highlight Covers is a quick and easy way to maintain your bra
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
+  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -172,16 +166,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-instagram-archive-mastery-how-and-why/"><u>[New] Instagram Archive Mastery How and Why?</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-instagram-ready-guide-to-cropping-and-exporting-videos/"><u>[New] Instagram-Ready Guide to Cropping & Exporting Videos</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-unraveling-popularity-myths-the-real-truth-about-instagram-reels-for-2024/"><u>[New] Unraveling Popularity Myths The Real Truth About Instagram Reels for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-deciphering-the-maximum-duration-for-instagram-videos/"><u>[Updated] Deciphering the Maximum Duration for Instagram Videos</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-sharing-sites-guide-for-instagram-story-and-post-links/"><u>2024 Approved Sharing Sites Guide for Instagram Story and Post Links</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/distinguishing-apples-laptops-macbook-air-vs-macbook-pro-an-in-depth-analysis/"><u>Distinguishing Apple's Laptops: MacBook Air vs MacBook Pro – An In-Depth Analysis</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-rapid-diy-techniques-that-every-indie-filmmaker-should-try/"><u>In 2024, Rapid DIY Techniques That Every Indie Filmmaker Should Try</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-9-asus-rog-phone-7-ultimate-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>In 2024, Top 9 Asus ROG Phone 7 Ultimate Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/new-from-fast-to-furious-top-10-slow-motion-video-editing-solutions/"><u>New From Fast to Furious Top 10 Slow Motion Video Editing Solutions</u></a></li>
-<li><a href="https://fox-links.techidaily.com/ultimate-psd-shadow-gradient-for-2024/"><u>Ultimate PSD Shadow Gradient for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/unraveling-the-mystery-of-effective-gif-communication-for-2024/"><u>Unraveling the Mystery of Effective GIF Communication for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-micromovie-magic/"><u>[New] 2024 Approved MicroMovie Magic</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-how-to-capture-and-save-your-beloved-hulu-seasons-quickly-and-conveniently/"><u>[New] In 2024, How To Capture & Save Your Beloved Hulu Seasons Quickly & Conveniently</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-instagrams-updated-strategy-and-its-effects/"><u>[New] Instagram’s Updated Strategy and Its Effects</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-mastering-instagram-3-key-caption-techniques-for-videos-for-2024/"><u>[New] Mastering Instagram 3 Key Caption Techniques for Videos for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-timed-success-organizing-video-conferences-via-slackplusfilmora-for-2024/"><u>[New] Timed Success Organizing Video Conferences via Slack+Filmora for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-unlock-clearer-depths-with-instas-bokeh-effects-for-2024/"><u>[New] Unlock Clearer Depths with Insta's Bokeh Effects for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-discovering-uncharted-territory-on-instagram/"><u>[Updated] 2024 Approved Discovering Uncharted Territory on Instagram</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-share-across-platforms-instagram-meets-facebook/"><u>[Updated] 2024 Approved Share Across Platforms Instagram Meets Facebook</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-springs-screen-recorder-unveiled-a-users-perspective/"><u>[Updated] 2024 Approved Spring's Screen Recorder Unveiled A User's Perspective</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-rise-with-the-pros-acquire-1k-ig-admirers-daily/"><u>[Updated] Rise with the Pros Acquire 1K IG Admirers Daily</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-choosing-a-professional-video-editor-filmora-against-democreator/"><u>2024 Approved Choosing a Professional Video Editor Filmora Against Democreator</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-instagram-tv-off-switch-guide/"><u>2024 Approved Instagram TV Off Switch Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-step-into-the-future-mastering-instagram-filters-for-enhanced-imagery/"><u>2024 Approved Step Into the Future Mastering Instagram Filters for Enhanced Imagery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578795871-german-vs-french-which-language-is-more-useful-to-learn/"><u>German vs French: Which Language Is More Useful to Learn</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-the-art-of-instagram-videography-capturing-attention/"><u>In 2024, The Art of Instagram Videography Capturing Attention</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/state-of-the-art-methods-for-documenting-digital-education-for-2024/"><u>State-of-the-Art Methods for Documenting Digital Education for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/tips-and-tricks-for-effortless-finding-exceptional-pexel-images-for-2024/"><u>Tips and Tricks for Effortless Finding Exceptional Pexel Images for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/top-6-solutions-to-stop-stuttering-and-crashing-in-baldurs-gate-game/"><u>Top 6 Solutions to Stop Stuttering and Crashing in Baldur's Gate Game</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/unlock-apple-iphone-13-pro-with-forgotten-passcode-different-methods-you-can-try-by-drfone-ios/"><u>Unlock Apple iPhone 13 Pro With Forgotten Passcode Different Methods You Can Try</u></a></li>
 </ul></div>
 

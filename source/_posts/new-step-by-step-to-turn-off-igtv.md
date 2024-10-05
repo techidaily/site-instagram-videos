@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Step-by-Step to Turn Off IGTV\""
-date: 2024-08-20T05:06:24.059Z
-updated: 2024-08-21T05:06:24.059Z
+date: 2024-09-28T22:52:21.001Z
+updated: 2024-10-04T16:54:31.564Z
 tags:
   - ai video
   - ai instagram
@@ -33,6 +33,13 @@ thumbnail: https://thmb.techidaily.com/2dd3f6016f2ac6912827509209a1009782287114c
 
  Select the **Push Notifications option**, and then scroll all the way down to the **IGTV Video Updates section** of the Push Notifications menu. Tap on the **Off** option, and you’re done, you’ll no longer receive notifications from IGTV. If at any point you change your mind and you decide that you want to receive notifications from IGTV you can return to the Push Notifications menu and select the **From People I Follow** or **From Everyone** option in the IGTV Video Update section of the Push Notifications menu.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Hide IGTV Videos?
 
  At the moment this feature is only available on iPhones, while users who access IGTV from Android devices only have the option to report a video they find offensive or don’t like for any other reason. Once you open IGTV on your iPhone, you will be able to see the videos the platform suggests you should watch in **the For You** section. When you come across an IGTV video you no longer want to see, simply **swipe down**, and then **tap on the three-dot icon** that is located next to the Like, Comment and Share buttons.
@@ -47,13 +54,18 @@ thumbnail: https://thmb.techidaily.com/2dd3f6016f2ac6912827509209a1009782287114c
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -61,6 +73,21 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-innovative-hubs-of-affordable-visual-content-sources/"><u>[New] Innovative Hubs of Affordable Visual Content Sources</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-how-to-eliminate-background-in-picsart-for-2024/"><u>[Updated] How to Eliminate Background in Picsart for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-streamline-your-instagram-feeds-with-macs-video-resizing/"><u>[Updated] Streamline Your Instagram Feeds with Mac's Video Resizing</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-a-brief-guide-to-kickstarting-conversations-on-instagram/"><u>2024 Approved A Brief Guide to Kickstarting Conversations on Instagram</u></a></li>
+<li><a href="https://win-blog.techidaily.com/difficulties-initializing-diablo-ii-resurrected-heres-what-you-need-to-know/"><u>Difficulties Initializing Diablo II: Resurrected? Here’s What You Need to Know</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/effective-fixes-to-get-your-epic-games-launcher-running-smoothly-again/"><u>Effective Fixes to Get Your Epic Games Launcher Running Smoothly Again!</u></a></li>
+<li><a href="https://win-blog.techidaily.com/enjoy-uninterrupted-fun-with-the-latest-secured-build-of-fnaf-pc-edition-fixed/"><u>Enjoy Uninterrupted Fun with the Latest Secured Build of FNAF – PC Edition Fixed</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-samsung-galaxy-a15-4g-phone-without-pin-by-drfone-android/"><u>How to Unlock Samsung Galaxy A15 4G Phone without PIN</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-crafting-unique-instagrams-with-flawless-image-borders/"><u>In 2024, Crafting Unique Instagrams with Flawless Image Borders</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-many-attempts-to-unlock-apple-iphone-15-pro-drfone-by-drfone-ios/"><u>In 2024, How Many Attempts To Unlock Apple iPhone 15 Pro | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-make-your-content-stand-out-with-instagrams-procedural-slow-mo-journey/"><u>In 2024, Make Your Content Stand Out with Instagram’s Procedural Slow Mo Journey</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-step-into-the-future-mastering-instagram-filters-for-enhanced-imagery/"><u>In 2024, Step Into the Future Mastering Instagram Filters for Enhanced Imagery</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/ultimate-guide-resolving-msvcr71dll-file-not-present-issues/"><u>Ultimate Guide: Resolving MSVCR71.dll File Not Present Issues</u></a></li>
+</ul></div>
+

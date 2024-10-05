@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Smiles, Snorts & Sighs  Top 10 IG Meme Communities of the Decade\""
-date: 2024-08-20T05:09:46.259Z
-updated: 2024-08-21T05:09:46.259Z
+date: 2024-10-01T07:16:34.401Z
+updated: 2024-10-04T20:40:44.784Z
 tags:
   - ai video
   - ai instagram
@@ -34,9 +34,6 @@ thumbnail: https://thmb.techidaily.com/35711b04893827e589108adbb18a73b7e3ecd093c
 
 ## Part1: 10 best Instagram meme accounts
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1. [memes](https://www.instagram.com/memes/)
 
  Followers - 3 Million
@@ -46,8 +43,12 @@ thumbnail: https://thmb.techidaily.com/35711b04893827e589108adbb18a73b7e3ecd093c
 ![memes](https://images.wondershare.com/filmora/article-images/memes-ig.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 2. [7thgrader.s](https://www.instagram.com/7thgrader.s/)
 
  Followers - 5.3 Million
@@ -55,6 +56,13 @@ thumbnail: https://thmb.techidaily.com/35711b04893827e589108adbb18a73b7e3ecd093c
  7thgrader.s claims it’s the place to find all of the “most dank funny posts”. They post at least once a day, but you will often find them posting a little off schedule at times.
 
 ![7thgrader](https://images.wondershare.com/filmora/article-images/7thgrader-ig.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3. [memezar](https://www.instagram.com/memezar/)
 
@@ -64,6 +72,13 @@ thumbnail: https://thmb.techidaily.com/35711b04893827e589108adbb18a73b7e3ecd093c
 
 ![CelAction2D](https://images.wondershare.com/filmora/article-images/memezar-ig.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4. [vines](https://www.instagram.com/vines/)
 
  Followers 5.7 million
@@ -72,17 +87,6 @@ thumbnail: https://thmb.techidaily.com/35711b04893827e589108adbb18a73b7e3ecd093c
 
 ![vines](https://images.wondershare.com/filmora/article-images/vines-ig.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ### 5. [drunk](https://www.instagram.com/drunk/)
 
  Followers - 5.6 million
@@ -91,9 +95,6 @@ thumbnail: https://thmb.techidaily.com/35711b04893827e589108adbb18a73b7e3ecd093c
 
 ![drunk](https://images.wondershare.com/filmora/article-images/drunk-ig.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
-<!-- affiliate ads end -->
 ### 6. [fuckjerry](https://www.instagram.com/fuckjerry/?hl=en)
 
  Followers - 13.9 million
@@ -103,8 +104,12 @@ thumbnail: https://thmb.techidaily.com/35711b04893827e589108adbb18a73b7e3ecd093c
 ![fuckjerry](https://images.wondershare.com/filmora/article-images/fuckjerry-ig.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 7. [memerizey](https://www.instagram.com/memerizey/)
 
  Followers – 175 thousand
@@ -113,12 +118,6 @@ thumbnail: https://thmb.techidaily.com/35711b04893827e589108adbb18a73b7e3ecd093c
 
 ![memerizey](https://images.wondershare.com/filmora/article-images/memerizey-ig.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ### 8. [funnyvideos](https://www.instagram.com/funnyvideos/)
 
  Followers - 528 thousand
@@ -128,8 +127,12 @@ thumbnail: https://thmb.techidaily.com/35711b04893827e589108adbb18a73b7e3ecd093c
 ![funnyvideos](https://images.wondershare.com/filmora/article-images/funnyvideos-ig.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
+  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 9. [funnymemes](https://www.instagram.com/funnymemes/)
 
  Followers – 7.9 million
@@ -147,17 +150,12 @@ thumbnail: https://thmb.techidaily.com/35711b04893827e589108adbb18a73b7e3ecd093c
 ![swearcasm](https://images.wondershare.com/filmora/article-images/swearcasm-ig.JPG)
 
 <!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 2: Why Are Memes So Popular On Instagram, Anyway
 
  There are so many different reasons that memes have gotten a lot of traction over the years. In fact, they’ve become such a phenomenon that academics are actually starting to research them.
@@ -165,15 +163,16 @@ thumbnail: https://thmb.techidaily.com/35711b04893827e589108adbb18a73b7e3ecd093c
  Here are two of the big reasons why they’ve become a popular form of communication.
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 1\. Memes are Very Easy to Understand
 
  Memes are meant to be something that we use in order to easily communicate ideas with other people. Memes capture the essence of a thought in a creative way that everyone understands. They’re visual, they’re short, they catch our attention and they help people to grasp your thoughts in a quick, concise way.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. We Like Sharing Memes
 
  Think about it – if you see a meme that you find amusing or that fits you or someone you know really well, then you will share it to your social media page or send it to your friend. Sharing memes is a lot of fun, and so it’s become something that is really popular for many of us to do.
@@ -186,13 +185,18 @@ thumbnail: https://thmb.techidaily.com/35711b04893827e589108adbb18a73b7e3ecd093c
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
 
 Follow @Ollie Mattison
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -200,3 +204,27 @@ Follow @Ollie Mattison
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-twists-that-tell-stories-crafting-captivating-visual-narratives-on-instagram-platforms/"><u>[New] 2024 Approved Twists That Tell Stories Crafting Captivating Visual Narratives on Instagram Platforms</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-a-curators-choice-top-12-websites-to-steal-millions-of-favorite-pixels-for-2024/"><u>[New] A Curator's Choice Top 12 Websites to Steal Millions of Favorite Pixels for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-behind-the-curtain-peek-tracking-insta-post-watchers/"><u>[New] Behind-the-Curtain Peek Tracking Insta Post Watchers</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-crafting-your-signature-voice-for-instagram-success-for-2024/"><u>[New] Crafting Your Signature Voice for Instagram Success for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nnovate-your-channels-closing-scenes-free-end-screens-for-2024/"><u>[New] Innovate Your Channels' Closing Scenes Free End Screens for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-perfect-selfies-tips-for-instagram-story-magnification-for-2024/"><u>[New] Perfect Selfies Tips for Instagram Story Magnification for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-unleashing-potential-sharing-youtube-content-within-instagram-stories/"><u>[Updated] 2024 Approved Unleashing Potential Sharing YouTube Content Within Instagram Stories</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-developing-dynamic-instagram-highlights/"><u>[Updated] In 2024, Developing Dynamic Instagram Highlights</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-pivot-to-popularity-mastering-video-flip-on-social/"><u>[Updated] In 2024, Pivot to Popularity Mastering Video Flip on Social</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-lightning-fast-visualization-for-win11-users-for-2024/"><u>[Updated] Lightning-Fast Visualization for Win11 Users for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-instagram-influence-made-possible-today/"><u>2024 Approved Instagram Influence Made Possible Today</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-retro-remake-applying-modern-filters-on-previous-media-posts/"><u>2024 Approved Retro Remake Applying Modern Filters on Previous Media Posts</u></a></li>
+<li><a href="https://win-dash.techidaily.com/easy-installation-smart-meter-communication-drivers-for-windows-7-to-11-free-download/"><u>Easy Installation: Smart Meter Communication Drivers for Windows 7 to 11 (Free Download)</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-itel-s23plus-phone-without-google-account-by-drfone-android/"><u>How to Unlock Itel S23+ Phone without Google Account?</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-changefake-your-lava-yuva-3-pro-location-on-viber-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Fake Your Lava Yuva 3 Pro Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-check-distance-and-radius-on-google-maps-for-your-htc-u23-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Check Distance and Radius on Google Maps For your HTC U23 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-thumbnail-triumphs-a-smartphone-guide-to-engaging-youtube-videos/"><u>In 2024, Thumbnail Triumphs A Smartphone Guide to Engaging YouTube Videos</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/leading-tools-unveiled-the-7-key-apps-for-increasing-web-traffic/"><u>Leading Tools Unveiled: The 7 Key Apps for Increasing Web Traffic</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/rootjunky-apk-to-bypass-google-frp-lock-for-vivo-y27s-by-drfone-android/"><u>Rootjunky APK To Bypass Google FRP Lock For Vivo Y27s</u></a></li>
+</ul></div>
+
