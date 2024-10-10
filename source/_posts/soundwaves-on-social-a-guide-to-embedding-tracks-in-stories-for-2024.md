@@ -1,7 +1,7 @@
 ---
 title: "\"Soundwaves on Social  A Guide to Embedding Tracks in Stories for 2024\""
-date: 2024-10-03T16:01:58.504Z
-updated: 2024-10-05T05:59:15.062Z
+date: 2024-10-08T17:57:51.304Z
+updated: 2024-10-10T16:32:28.554Z
 tags:
   - ai video
   - ai instagram
@@ -76,10 +76,10 @@ That’s it! In this way, you can learn how to add music to IG story and customi
 ![ Share Your IG Story](https://images.wondershare.com/filmora/article-images/share-your-ig-story.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Create Stunning IG Stories to Captivate Your Audience?
@@ -92,31 +92,24 @@ Boomerangs are extremely popular in Instagram stories due to their quick yet int
 
 ![ Boomerangs & Layouts](https://images.wondershare.com/filmora/article-images/boomerangs-layouts.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528681/16446" target="_top" id="1528681">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528681" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528681/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### Use inbuilt Instagram filters
 
 Instagram also keeps rotating different filters that we can add to our stories. You can explore them from the bottom panel and make your stories look visually appealing. There are tons of gradients and stickers here that you can explore and easily add to your story.
 
 ![ Inbuilt IG Filters](https://images.wondershare.com/filmora/article-images/inbuilt-ig-filters.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### Add polls, challenges, countdowns, and more
 
 Apart from adding music, Instagram also lets us add tons of other things to our story. You can mention any other user in your story or add a location to get more views. There are also options to add a hashtag or create a poll. You can also find different challenges to explore (like the ice bucket challenge) to post your story under a specific category.
 
 ![ Add Polls and More](https://images.wondershare.com/filmora/article-images/add-polls-challenges.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Ask questions to interact with your audience
 
@@ -129,15 +122,28 @@ If you plan to add video content to your Instagram stories, then consider using 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 There you go! Now when you know how to add music to IG Story, you can easily post impressive content on your Instagram profile. For your convenience, I have come up with a stepwise guide on how to put music on IG story that you can easily follow. Besides that, I have also listed some expert tips that you can implement to post visually stunning stories. Go ahead and try these tips and share this guide with your friends to help them add music to IG story as well.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="864" height="1296" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -154,22 +160,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-accessing-and-saving-tweets-visuals-in-your-android-device/"><u>[New] 2024 Approved Accessing and Saving Tweets' Visuals in Your Android Device</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-audience-enhancement-with-audition-fades/"><u>[New] Audience Enhancement with Audition Fades</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-instagram-mastery-in-recreating-visual-stories/"><u>[New] In 2024, Instagram Mastery in Recreating Visual Stories</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-mastering-the-art-of-instagram-filter-use-for-2024/"><u>[New] Mastering the Art of Instagram Filter Use for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-quick-steps-for-recording-insta-stories/"><u>[Updated] 2024 Approved Quick Steps for Recording Insta Stories</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-the-essential-list-of-preferred-ae-themes-on-ig/"><u>[Updated] 2024 Approved The Essential List of Preferred AE Themes on IG</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-critical-selection-for-the-finest-3ds-emulators-on-pc-for-2024/"><u>[Updated] Critical Selection for the Finest 3Ds Emulators on PC for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-crafting-success-in-youtubes-creator-hub/"><u>[Updated] In 2024, Crafting Success in YouTube's Creator Hub</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-the-visual-markers-guide-customizing-instagram-photo-watermarks-for-2024/"><u>[Updated] The Visual Marker's Guide Customizing Instagram Photo Watermarks for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-hide-and-seek-top-5-for-secret-story-lovers/"><u>2024 Approved Hide & Seek Top 5 For Secret Story Lovers</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/download-the-latest-canon-ip110-printer-drivers-for-windows-11-10-8-and-7/"><u>Download the Latest Canon IP110 Printer Drivers for Windows 11, 10, 8 & 7</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/free-downloads-how-to-install-the-latest-dell-e6430-driver-for-windows-issue-resolved/"><u>Free Downloads: How to Install the Latest Dell E6430 Driver for Windows - Issue Resolved</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-use-special-features-virtual-location-on-itel-p55plus-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On Itel P55+? | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-elevate-your-social-strategy-with-these-top-8-apps-phones-included/"><u>In 2024, Elevate Your Social Strategy with These Top 8 Apps, Phones Included</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-step-by-step-instructions-for-incorporating-custom-gifs-and-icons-into-your-story-posts-on-instagram/"><u>In 2024, Step-by-Step Instructions for Incorporating Custom GIFS & Icons Into Your Story Posts on Instagram</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-the-ultimate-review-of-avs-video-editor-a-beginners-guide-for-2024/"><u>New The Ultimate Review of AVS Video Editor A Beginners Guide for 2024</u></a></li>
-<li><a href="https://win-wonderful.techidaily.com/step-by-step-tutorial-how-to-download-and-transcode-buzzfeed-media-in-various-formats-on-windowsmac-systems/"><u>Step-by-Step Tutorial: How to Download and Transcode BuzzFeed Media in Various Formats on Windows/Mac Systems</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-top-10-apps-for-creating-spectacular-instagram-reels-for-2024/"><u>[New] Top 10 Apps for Creating Spectacular Instagram Reels for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-amplify-your-influence-on-ig-how-to-gain-1k-followers-monthly-for-2024/"><u>[Updated] Amplify Your Influence on IG How to Gain 1K Followers Monthly for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-unlocking-the-potential-of-your-phone-and-dslr-for-igtv-videos/"><u>[Updated] In 2024, Unlocking the Potential of Your Phone & DSLR for IGTV Videos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/10-awesome-ideas-for-igtv-videos-brands-shouldnt-miss-out-on/"><u>10 Awesome Ideas for IGTV Videos Brands Shouldn't Miss Out On</u></a></li>
+<li><a href="https://video-capture.techidaily.com/10-best-offline-android-games-to-pass-time-filmora/"><u>10 Best Offline Android Games to Pass Time - Filmora</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-renowned-experts-exquisite-insta-highlight-creators/"><u>2024 Approved Renowned Experts Exquisite Insta Highlight Creators</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/essential-android-camera-techniques-and-software-for-2024/"><u>Essential Android Camera Techniques & Software for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/essential-checklist-key-points-prior-to-acquiring-secondhand-ipad-devices/"><u>Essential Checklist: Key Points Prior to Acquiring Secondhand iPad Devices</u></a></li>
+<li><a href="https://fox-access.techidaily.com/exquisite-airplay-scripts-for-listeners-for-2024/"><u>Exquisite Airplay Scripts for Listeners for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-pokemon-go-joystick-on-vivo-y100i-power-5g-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Vivo Y100i Power 5G? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-ways-to-find-unlocking-codes-for-xiaomi-13t-pro-phones-by-drfone-android/"><u>In 2024, Ways To Find Unlocking Codes For Xiaomi 13T Pro Phones</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/mastering-your-pc-settings-navigating-to-control-panel-in-windows-versions-11-7-and-8/"><u>Mastering Your PC Settings: Navigating to Control Panel in Windows Versions 11, 7, and 8</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/tactical-approaches-to-harvesting-hd-content-from-social-feeds/"><u>Tactical Approaches to Harvesting HD Content From Social Feeds</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/the-strategic-approach-to-embedding-youtube-links-in-insta-stories/"><u>The Strategic Approach to Embedding YouTube Links in Insta Stories</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/unlock-the-full-potential-of-skype-written-in-spanish-but-not-widely-known-among-english-speakers-it-was-used-as-a-basis-for-creating-new-models-like-bert-a/"><u>Unlock the Full Potential of Skype’ Written in Spanish, but Not Widely Known Among English Speakers. It Was Used as a Basis for Creating New Models Like BERT and GPT-3. How Can I Access This Model? Is It Free to Use?</u></a></li>
 </ul></div>
 

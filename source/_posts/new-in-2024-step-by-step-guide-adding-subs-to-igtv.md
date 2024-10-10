@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Step-by-Step Guide  Adding Subs to IGTV\""
-date: 2024-09-30T17:20:35.591Z
-updated: 2024-10-05T03:03:12.270Z
+date: 2024-10-06T17:15:46.407Z
+updated: 2024-10-10T17:49:03.210Z
 tags:
   - ai video
   - ai instagram
@@ -64,10 +64,10 @@ Adding subtitles to a video can be a painstakingly long process if you’re work
 Once you’re done adding the subtitles you should click on the **Photo Camera icon** to take a snapshot of the video, you can use as a **cover photo for your IGTV video**. Export the video and proceed to upload it to IGTV from your web browser or from your phone.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Add Text to IGTV Videos with the Quik App For iOS and Android Devices
@@ -75,10 +75,10 @@ Once you’re done adding the subtitles you should click on the **Photo Camera i
 In case you like editing IGTV videos from your phone, you can try adding subtitles to your IGTV videos with the Quik app. After you’ve completed all other video editing tasks, you should tap on the **Text icon** and type in the text you’d like to add to the video. Hit the **OK button** after you’ve added the text and that’s it you’ve successfully created the subtitles for your IGTV video. How long the process of creating hardcoded subtitles is going to last depends on the duration of the video and the amount of narration or dialogue in the video.
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
-  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
+  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
 </a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Tips for Adding Subtitles to IGTV Videos
@@ -92,10 +92,10 @@ Even though adding subtitles to videos can require a lot of precision and attent
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -113,18 +113,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-captivating-content-creation-the-best-10-igtv-strategies-for-brands-for-2024/"><u>[New] Captivating Content Creation The Best 10 IGTV Strategies for Brands for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-uncover-the-past-advanced-methods-for-instagram-image-retrieval/"><u>[Updated] In 2024, Uncover the Past Advanced Methods for Instagram Image Retrieval</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-step-by-step-for-turning-insta-videos-into-mp3s-for-2024/"><u>[Updated] Step-by-Step for Turning Insta Videos Into MP3s for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-unveiling-todays-instagram-trends-and-tags-for-2024/"><u>[Updated] Unveiling Today's #Instagram Trends and Tags for 2024</u></a></li>
-<li><a href="https://win-dash.techidaily.com/iuoajowmoocjoejqeobruodqeocpoocuplusodsplusocueocsplusodvooditrlho3lj5blvpfmlrnms5xjgajjg4jjg6njg5bjg6vjgrfjg6xjg7zjg4bjgqpjg7pjgrdjgi0i/"><u>「忘れ物のライセンスコード:再取得方法とトラブルシューティング」</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/2024-approved-unboxing-logitechs-ultimate-4k-webcam/"><u>2024 Approved Unboxing Logitech's Ultimate 4K Webcam</u></a></li>
-<li><a href="https://win-popular.techidaily.com/complete-tutorial-streaming-discovery-channels-original-programming-via-smart-tv-or-set-top-box/"><u>Complete Tutorial: Streaming Discovery Channel's Original Programming via Smart TV or Set-Top Box</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/digital-duo-dynamics-joining-instagram-and-tiktok-powerfully/"><u>Digital Duo Dynamics Joining Instagram and TikTok Powerfully</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/download-windows-11-video-editor-professionelle-filme-und-videos-erstellen/"><u>Download Windows 11 Video Editor: Professionelle Filme Und Videos Erstellen</u></a></li>
-<li><a href="https://win-blog.techidaily.com/elden-ring-startup-problem-solved-step-by-step-fix-for-black-screen-trouble/"><u>Elden Ring Startup Problem Solved: Step-by-Step Fix for Black Screen Trouble</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-fix-error-495-while-downloadupdating-android-apps-on-samsung-galaxy-xcover-6-pro-tactical-edition-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Error 495 While Download/Updating Android Apps On Samsung Galaxy XCover 6 Pro Tactical Edition | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-contacts-files-from-oppo-k11-5g-by-fonelab-android-recover-contacts/"><u>How To Restore Missing Contacts Files from Oppo K11 5G.</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-from-cluttered-to-clear-a-canva-guide-for-borders-removal/"><u>In 2024, From Cluttered to Clear A Canva Guide for Borders Removal</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-dominate-social-media-sales-5-strategic-moves-for-instagram-experts/"><u>[New] 2024 Approved Dominate Social Media Sales 5 Strategic Moves for Instagram Experts</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-elevate-followers-with-effective-igtv-hashtag-techniques-for-2024/"><u>[New] Elevate Followers with Effective IGTV Hashtag Techniques for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-how-to-go-frame-by-frame-on-youtube-video-5-free-methods/"><u>[New] In 2024, How to Go Frame by Frame on YouTube Video [5 Free Methods]</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-obscure-watching-methods-5-unique-stories-apps-for-2024/"><u>[New] Obscure Watching Methods 5 Unique Stories Apps for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-instagrams-edge-transforming-your-videography-with-precision-cropping/"><u>[Updated] 2024 Approved Instagram's Edge Transforming Your Videography with Precision Cropping</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-top-10-tools-to-perfect-your-igtv-edits/"><u>[Updated] 2024 Approved Top 10 Tools to Perfect Your IGTV Edits</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-elevating-your-gaming-the-xbox-recorder-playbook/"><u>[Updated] In 2024, Elevating Your Gaming The Xbox Recorder Playbook</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-unlocking-the-secrets-of-spectacular-insta-films/"><u>[Updated] In 2024, Unlocking the Secrets of Spectacular Insta Films</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/focus-on-the-essentials-mastering-close-up-in-videoleap-videos/"><u>Focus on the Essentials Mastering Close-Up in Videoleap Videos</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-tecno-pop-7-pro-bootloader-easily-by-drfone-android/"><u>How to Unlock Tecno Pop 7 Pro Bootloader Easily</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-excellent-storage-upgrade-for-sony-a7s-ii-cameras/"><u>In 2024, Excellent Storage Upgrade for Sony A7S II Cameras</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-oppo-find-n3-flip-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Oppo Find N3 Flip to Outlook | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-vivo-t2x-5g-phones-by-drfone-android/"><u>In 2024, Top 11 Free Apps to Check IMEI on Vivo T2x 5G Phones</u></a></li>
 </ul></div>
 

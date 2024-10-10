@@ -1,7 +1,7 @@
 ---
 title: "\"[New] VisuallyVivid  Adjust Your Content for Instagram Success\""
-date: 2024-08-04T22:50:33.698Z
-updated: 2024-08-05T22:50:33.698Z
+date: 2024-10-09T17:32:55.603Z
+updated: 2024-10-10T16:38:11.874Z
 tags:
   - ai video
   - ai instagram
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/bb9accbf9aa450f0fe34df3fa6aee3bab970d5d0d
 
 # Latest Instagram Photo and Video Size Checklist
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -32,9 +29,6 @@ Taking photos with iPhones and Android Smartphones and posting them to Instagram
 
 Troubles begin when you want to upload photos and videos that weren't captured with a Smartphone to Instagram. In most cases, the photos and videos produced by DSLR cameras and other semi-professional and professional equipment are much larger than the sizes supported by Instagram. That is the reason why we created this guide that will help you post visual content that is perfectly adjusted to Instagram in 2021.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Types of Files Accepted by Instagram
 
 The first thing you need to pay attention to when uploading images and videos to Instagram is that the files you are uploading are in one of the photo or video formats that Instagram supports.
@@ -52,23 +46,26 @@ Duration of Videos on Instagram
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
+  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Best Image Sizes for Instagram Posts
 
 A couple of years ago, Instagram has finally allowed its users to upload images that aren't square shaped. In 2021, you can also upload horizontally and vertically oriented photos in addition to the standard square shape. However, in order to create a perfect Instagram post, and prevent the platform from cropping your photos you need to use the Instagram image sizes featured below.
 
 #### Instagram's Main Feed
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
 
@@ -92,11 +89,14 @@ The photos you post as stories on Instagram are always vertically oriented and f
 
 The profile pictures on Instagram are tiny, and the optimum size for them is 160X160 px, while their shape is always a square which means that you'll have to set their aspect ratio to 1:1.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -104,11 +104,31 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-capture-the-inspired-moment-essential-photos-for-ig/"><u>[New] 2024 Approved Capture the Inspired Moment Essential Photos for IG</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-the-ultimate-10-steps-to-optimize-your-insta-storytelling/"><u>[New] 2024 Approved The Ultimate 10 Steps to Optimize Your Insta Storytelling</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-tiktoks-favorite-products-the-best-on-amazon/"><u>[New] 2024 Approved TikTok's Favorite Products The Best On Amazon</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-enhancing-vimeo-playback-velocity/"><u>[New] Enhancing Vimeo Playback Velocity</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-demystifying-creator-studio-a-practical-handbook/"><u>[New] In 2024, Demystifying Creator Studio A Practical Handbook</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-ensure-your-video-fits-the-instagram-aesthetic-perfectly/"><u>[Updated] 2024 Approved Ensure Your Video Fits the Instagram Aesthetic Perfectly</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-instagram-icons-unveiled-elevate-your-fame-and-followers-in-record-time-heres-how/"><u>[Updated] 2024 Approved Instagram Icons Unveiled Elevate Your Fame & Followers in Record Time – Here's How</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-professional-macbook-webcam-capture-techniques-guide-for-2024/"><u>[Updated] Professional MacBook Webcam Capture Techniques Guide for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-visuals-that-stand-out-top-10-ig-grid-making-innovations/"><u>[Updated] Visuals that Stand Out Top 10 IG Grid Making Innovations</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/12-ultimate-insta-image-enhancers/"><u>12 Ultimate Insta Image Enhancers</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-tailored-instagram-filters-a-step-by-step-process/"><u>2024 Approved Tailored Instagram Filters A Step-by-Step Process</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/comprehensive-guide-to-premium-data-reservoirs-for-2024/"><u>Comprehensive Guide to Premium Data Reservoirs for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-fine-tuning-your-videos-for-viral-instagram-moments/"><u>In 2024, Fine-Tuning Your Videos for Viral Instagram Moments</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-remove-passcode-from-iphone-se-2020-complete-guide-drfone-by-drfone-ios/"><u>In 2024, How To Remove Passcode From iPhone SE (2020)? Complete Guide | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/network-locked-sim-card-inserted-on-your-realme-12plus-5g-phone-unlock-it-now-by-drfone-android/"><u>Network Locked SIM Card Inserted On Your Realme 12+ 5G Phone? Unlock It Now</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/seamless-samsung-tv-software-updates-easy-how-tos-revealed/"><u>Seamless Samsung TV Software Updates: Easy How-To's Revealed</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/step-by-step-tutorial-how-to-bypass-tecno-camon-20-pro-5g-frp-by-drfone-android/"><u>Step-by-Step Tutorial How To Bypass Tecno Camon 20 Pro 5G FRP</u></a></li>
+</ul></div>
+

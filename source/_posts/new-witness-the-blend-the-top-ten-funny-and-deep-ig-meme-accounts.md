@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Witness the Blend  The Top Ten Funny & Deep IG Meme Accounts\""
-date: 2024-08-04T22:50:19.836Z
-updated: 2024-08-05T22:50:19.836Z
+date: 2024-10-05T16:43:25.536Z
+updated: 2024-10-10T17:28:32.896Z
 tags:
   - ai video
   - ai instagram
@@ -40,29 +40,23 @@ thumbnail: https://thmb.techidaily.com/3e42d7d3d66b1bb7fc10d0f6ca519d43c3162c70f
 
  Memes is one of the biggest communities for memes on the internet, with followers on Facebook as well. They are currently developing a Memes app that you can use in order to make your own memes.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
-<!-- affiliate ads end -->
 ![memes](https://images.wondershare.com/filmora/article-images/memes-ig.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 2. [7thgrader.s](https://www.instagram.com/7thgrader.s/)
 
  Followers - 5.3 Million
 
  7thgrader.s claims it’s the place to find all of the “most dank funny posts”. They post at least once a day, but you will often find them posting a little off schedule at times.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
-<!-- affiliate ads end -->
 ![7thgrader](https://images.wondershare.com/filmora/article-images/7thgrader-ig.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 3. [memezar](https://www.instagram.com/memezar/)
 
  Followers – 5.4 Million
@@ -71,29 +65,41 @@ thumbnail: https://thmb.techidaily.com/3e42d7d3d66b1bb7fc10d0f6ca519d43c3162c70f
 
 ![CelAction2D](https://images.wondershare.com/filmora/article-images/memezar-ig.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4. [vines](https://www.instagram.com/vines/)
 
  Followers 5.7 million
 
  While the app “Vine” has been taken offline, vines is not – they currently do a lot of meme based videos, some of which were on Vine when it was still useable. These include news clips and other funny videos.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![vines](https://images.wondershare.com/filmora/article-images/vines-ig.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 5. [drunk](https://www.instagram.com/drunk/)
 
  Followers - 5.6 million
 
  This Instagram page claims to be the largest Instagram community of drunk fails and memes – and the site is still going very strong. While there are a lot of drunk memes and fails, you will also find a variety of ordinary memes from around the web.
 
-<!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![drunk](https://images.wondershare.com/filmora/article-images/drunk-ig.JPG)
 
 ### 6. [fuckjerry](https://www.instagram.com/fuckjerry/?hl=en)
@@ -110,16 +116,8 @@ thumbnail: https://thmb.techidaily.com/3e42d7d3d66b1bb7fc10d0f6ca519d43c3162c70f
 
  Memerizey is a great meme site that has been developed for the Spanish-speaking Instagram crowd, providing them with their own batches of memes, both popular memes and ones that are specially tailored toward the Spanish speaking community
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
-<!-- affiliate ads end -->
 ![memerizey](https://images.wondershare.com/filmora/article-images/memerizey-ig.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 8. [funnyvideos](https://www.instagram.com/funnyvideos/)
 
  Followers - 528 thousand
@@ -136,6 +134,13 @@ The powerful video editing program for your Windows PC</a>
 
 ![funnymemes](https://images.wondershare.com/filmora/article-images/funnymemes-ig.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 10. [swearcasm](https://www.instagram.com/swearcasm/)
 
  Followers – 359 thousand
@@ -144,9 +149,6 @@ The powerful video editing program for your Windows PC</a>
 
 ![swearcasm](https://images.wondershare.com/filmora/article-images/swearcasm-ig.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2: Why Are Memes So Popular On Instagram, Anyway
 
  There are so many different reasons that memes have gotten a lot of traction over the years. In fact, they’ve become such a phenomenon that academics are actually starting to research them.
@@ -154,30 +156,47 @@ The powerful video editing program for your Windows PC</a>
  Here are two of the big reasons why they’ve become a popular form of communication.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 1\. Memes are Very Easy to Understand
 
  Memes are meant to be something that we use in order to easily communicate ideas with other people. Memes capture the essence of a thought in a creative way that everyone understands. They’re visual, they’re short, they catch our attention and they help people to grasp your thoughts in a quick, concise way.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. We Like Sharing Memes
 
  Think about it – if you see a meme that you find amusing or that fits you or someone you know really well, then you will share it to your social media page or send it to your friend. Sharing memes is a lot of fun, and so it’s become something that is really popular for many of us to do.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## Conclusion
 
  There are so many great memes out there for us to share and enjoy, and so it’s definitely worth it to find the Instagram accounts that you enjoy and that you’ll be able to use regularly to get a laugh and have fun with your friends.
 
  These are our favorites and they always seem to have the most hilarious memes. But you’re sure to find others that you’re going to want to follow and keep up with!
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -185,11 +204,33 @@ Ollie Mattison is a writer and a lover of all things video.
 
 Follow @Ollie Mattison
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-top-8-youtube-ranks-expertly-navigating-with-key-tools/"><u>[New] 2024 Approved Top 8 YouTube Ranks Expertly Navigating with Key Tools</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-top-tips-for-masterful-looped-videos-on-instagram/"><u>[New] 2024 Approved Top Tips for Masterful Looped Videos on Instagram</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-guide-to-avoid-instagram-auto-suggest-feature/"><u>[New] Guide to Avoid Instagram Auto-Suggest Feature</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-crafting-excellent-canon-temp-video-series/"><u>[New] In 2024, Crafting Excellent Canon Temp Video Series</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-navigating-auto-captioned-content-in-social-media-visuals/"><u>[New] In 2024, Navigating Auto-Captioned Content in Social Media Visuals</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-the-art-of-hashtagging-strategies-for-maximum-impact-on-facebook-for-2024/"><u>[New] The Art of Hashtagging Strategies for Maximum Impact on Facebook for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-boosting-user-interaction-mastering-hashtag-use-on-instagram/"><u>[Updated] Boosting User Interaction Mastering Hashtag Use on Instagram</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-chromebook-and-hp-efficient-webcam-recording-tips/"><u>[Updated] Chromebook & HP Efficient Webcam Recording Tips</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-adaptive-sharing-techniques-for-igtv-on-fb/"><u>[Updated] In 2024, Adaptive Sharing Techniques for IGTV on FB</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-step-by-step-instagram-videos-that-wow-viewers-for-2024/"><u>[Updated] Step-by-Step Instagram Videos that Wow Viewers for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-expert-advice-on-itunes-video-capturing/"><u>2024 Approved Expert Advice on iTunes Video Capturing</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-from-sideways-to-symmetry-the-instagram-chronicles-of-flipping-photos/"><u>2024 Approved From Sideways to Symmetry The Instagram Chronicles of Flipping Photos</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-strategies-for-effortless-audio-merging-in-adobe-premiere/"><u>2024 Approved Strategies for Effortless Audio Merging in Adobe Premiere</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ving-asmr-bliss-selecting-the-right-mic-for-2024/"><u>Achieving ASMR Bliss Selecting the Right Mic for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-the-newest-hp-laserjet-p1nsiii-series-drivers-complete-guide-and-download-for-windows-operating-systems/"><u>Get the Newest HP LaserJet P1nsiii Series Drivers - Complete Guide & Download for Windows Operating Systems</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-infinix-hot-40-pro-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Infinix Hot 40 Pro | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-elevate-your-storytelling-the-best-practices-for-instagram-loops/"><u>In 2024, Elevate Your Storytelling The Best Practices for Instagram Loops</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/tips-for-seamlessly-screening-instagram-stories-for-2024/"><u>Tips for Seamlessly Screening Instagram Stories for 2024</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/top-14-image-gaming-apps-for-windows-11-leading-software-picks/"><u>Top 14 Image Gaming Apps for Windows 11: Leading Software Picks</u></a></li>
+</ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: "Troubleshooting Tips for Call of Duty: Black Ops Cold War - Overcoming Error 27711"
-date: 2024-10-03T10:17:15.856Z
-updated: 2024-10-04T21:08:50.376Z
+date: 2024-10-04T17:55:48.105Z
+updated: 2024-10-10T16:19:01.151Z
 tags:
   - win11
   - win10
@@ -26,13 +26,6 @@ In the past couple days, many Cold War gamers are reporting a**UI error 27711** 
 3. **[Update your graphics driver](https://tools.techidaily.com/drivereasy/download/)**
 4. **[Install all Windows updates](https://tools.techidaily.com/drivereasy/download/)**
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Fix 1: Restart your PC
 
  Some gamers on[Reddit](https://www.reddit.com/r/blackopscoldwar/comments/kia139/get%5Fui%5Ferror%5F27711%5Fand%5Falso%5Fsomething%5Felse/) reported that the game went back to normal after a system restart. So before you try anything more complicated,**exit your game and do a normal reboot** . You’d be surprised how often this trick works.
@@ -47,18 +40,24 @@ In the past couple days, many Cold War gamers are reporting a**UI error 27711** 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/bocw-verify.jpg)
 2. Click **Options**  and select **Scan and Repair** . Then wait until the checking is completed.  
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
-  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/bocw-verify-2.jpg)
 
 Now you can launch the game and see if it loads this time.
 
  If this method doesn’t give you luck, simply take a look at the next one below.
+
+<!-- affiliate ads begin -->
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Fix 3: Update your graphics driver
 
@@ -97,6 +96,13 @@ To do so, first visit the website of your GPU manufacturer:
 
  If the new driver doesn’t do the charm, you can move on to the next fix.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Fix 4: Install all Windows updates
 
  Windows updates include several kinds of updates, with some mitigate vulnerabilities and some offer new features. We recommend**keeping your system up to date** so that you can fully enjoy the game.
@@ -107,31 +113,25 @@ Here’s how you can check for updates manually:
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/windows-10-start-menu-open-settings-gear-icon.jpg)
 2. Scroll down and select**Update & Security** .  
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/windows-10-start-menu-open-settings-update.jpg)
 3. Click**Windows Update** .  
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/windows-10-start-menu-open-settings-update-2.jpg)
 4. Click**Check for updates** . Then wait for the process to complete. After that, restart your PC.  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/windows-10-start-menu-open-settings-update-3.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982499">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
+  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  To make sure you’ve installed _all_  the system updates, **repeat these steps** until it prompts “You’re up to date” when you click **Check for updates** again.
@@ -157,24 +157,20 @@ Here’s how you can check for updates manually:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-mastering-instagram-essential-hashtag-tips/"><u>[New] In 2024, Mastering Instagram Essential Hashtag Tips</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-navigating-the-pathway-ios-tips-for-instagram-content/"><u>[New] In 2024, Navigating the Pathway IOS Tips for Instagram Content</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-increase-igtv-views-strategic-use-of-hashtags-for-2024/"><u>[New] Increase IGTV Views Strategic Use of Hashtags for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-techniques-for-straightening-aerial-video-stability/"><u>[New] Techniques for Straightening Aerial Video Stability</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-explore-10-prime-video-editing-apps-for-android-and-pc-for-2024/"><u>[Updated] Explore 10 Prime Video Editing Apps for Android and PC for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-crafting-visual-narratives-adding-memorable-story-emoji-images/"><u>[Updated] In 2024, Crafting Visual Narratives Adding Memorable Story Emoji Images</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-in-2024-newbies-guide-to-vlogging-gear-and-software-insights/"><u>[Updated] In 2024, Newbie's Guide to Vlogging Gear and Software Insights</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-quintessential-video-tools-for-perfecting-instagram-reels/"><u>[Updated] In 2024, Quintessential Video Tools for Perfecting Instagram Reels</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-maximizing-inner-illumination-with-natures-glow/"><u>[Updated] Maximizing Inner Illumination with Nature's Glow</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-simplified-pathway-using-instagram-live-effectively-for-2024/"><u>[Updated] Simplified Pathway Using Instagram Live Effectively for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/cing-creativity-and-logic-in-gaming-videos/"><u>Balancing Creativity and Logic in Gaming Videos</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/how-to-create-insta-highlight-cover-photos-an-ultimate-guide/"><u>How to Create Insta Highlight Cover Photos An Ultimate Guide</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-apple-iphone-xr-with-a-mask-on-drfone-by-drfone-ios/"><u>How to Unlock Apple iPhone XR with a Mask On | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-cards-of-vivo-y100a-without-puk-codes-by-drfone-android/"><u>In 2024, How To Unlock SIM Cards Of Vivo Y100A Without PUK Codes</u></a></li>
-<li><a href="https://discover-guides.techidaily.com/mach-deine-alten-vhs-aufnahmen-wieder-lebendig-umfassende-anleitung-zum-konvertieren-auf-pcdvd/"><u>Mach Deine Alten VHS-Aufnahmen Wieder Lebendig – Umfassende Anleitung Zum Konvertieren Auf PC/DVD</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/overcoming-photoshop-memory-issues-tips-for-clearing-scratch-disk-overflow/"><u>Overcoming Photoshop Memory Issues: Tips for Clearing Scratch Disk Overflow</u></a></li>
-<li><a href="https://win-forum.techidaily.com/simplified-file-cleanup-how-to-perform-a-force-delete-on-folders-in-windows-n-via-revouninstaller-a-comprehensive-walkthrough/"><u>Simplified File Cleanup: How to Perform a Force Delete on Folders in Windows N via RevoUninstaller - A Comprehensive Walkthrough</u></a></li>
-<li><a href="https://blog-min.techidaily.com/stay-connected-abroad-discover-how-mint-mobiles-updated-roaming-services-elevate-your-overseas-experience/"><u>Stay Connected Abroad: Discover How Mint Mobile's Updated Roaming Services Elevate Your Overseas Experience</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/unlocking-the-power-of-cross-platform-social-media-with-youtube-and-instagram-stories-for-2024/"><u>Unlocking the Power of Cross-Platform Social Media with YouTube & Instagram Stories for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-co-create-content-to-maximize-youtube-follower-count/"><u>[New] 2024 Approved Co-Create Content to Maximize YouTube Follower Count</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-navigating-instagrams-live-broadcasting/"><u>[New] Navigating Instagram's Live Broadcasting</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-unleash-creativity-designing-awe-inspiring-covers-for-instagram-highlights/"><u>[Updated] 2024 Approved Unleash Creativity Designing Awe-Inspiring Covers for Instagram Highlights</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-game-on-with-more-space-topping-10-hddssds/"><u>[Updated] Game On with More Space Topping 10 HDD/SSDs</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-how-to-enhance-content-discovery-with-instagrams-changes/"><u>[Updated] How to Enhance Content Discovery with Instagram's Changes</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-flip-the-script-how-to-turn-your-instagram-visuals-into-viral-stars/"><u>[Updated] In 2024, Flip the Script How to Turn Your Instagram Visuals Into Viral Stars</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-instagram-peak-hours-explained-maximizing-engagement/"><u>[Updated] In 2024, Instagram Peak Hours Explained Maximizing Engagement</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-ultimate-insiders-guide-to-instagram-stories-magic-for-2024/"><u>[Updated] The Ultimate Insider's Guide to Instagram Stories Magic for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-top-rated-free-apps-to-download-reels-from-instagram-effortlessly/"><u>2024 Approved Top-Rated, Free Apps to Download Reels From Instagram Effortlessly</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/amass-a-thousand-tactics-for-monthly-instagram-following/"><u>Amass a Thousand Tactics for Monthly Instagram Following</u></a></li>
+<li><a href="https://blog-min.techidaily.com/boosting-terminal-clarity-on-linux-techniques-for-displaying-extra-lines/"><u>Boosting Terminal Clarity on Linux - Techniques for Displaying Extra Lines</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/evga-classified-x670e-the-ultra-premium-amd-motherboard-hits-the-market/"><u>EVGA Classified X670E: The Ultra-Premium AMD Motherboard Hits the Market</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-intercept-text-messages-on-honor-x9b-drfone-by-drfone-virtual-android/"><u>In 2024, How to Intercept Text Messages on Honor X9b | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-the-new-wave-of-youtube-channel-titles-perfect-for-vloggers-limited-to-156-characters/"><u>In 2024, The New Wave of YouTube Channel Titles Perfect for Vloggers (Limited to 156 Characters)</u></a></li>
+<li><a href="https://facebook.techidaily.com/racing-the-future-the-genesis-of-metas-supercomputer/"><u>Racing the Future: The Genesis of Meta's Supercomputer</u></a></li>
 </ul></div>
 

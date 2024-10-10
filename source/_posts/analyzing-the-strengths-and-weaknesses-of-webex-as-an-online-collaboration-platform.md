@@ -1,7 +1,7 @@
 ---
 title: Analyzing the Strengths and Weaknesses of WebEx as an Online Collaboration Platform
-date: 2024-08-04T22:50:20.908Z
-updated: 2024-08-05T22:50:20.908Z
+date: 2024-10-04T16:54:20.328Z
+updated: 2024-10-10T17:33:37.112Z
 categories:
   - BestProducts
 description: This Article Describes Analyzing the Strengths and Weaknesses of WebEx as an Online Collaboration Platform
@@ -13,9 +13,6 @@ thumbnail: https://www.lifewire.com/thmb/6tPvayBfparNN80H3K-NMdT0Kfc=/400x300/fi
 
 2.9
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 ## Samsung UN65NU8000FXZA
 
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/p_vV8LWwbJ2oMuL1UYGHR2p4huI=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-1-97ff5fdad950453785f7a3f5491bf8fd.jpg)
@@ -42,12 +39,16 @@ Lifewire / Andy Zahn
 
 2.9
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Samsung UN65NU8000FXZA
 
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/J81HLCswW9vG3SGkOY0nkv2_soM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-1-97ff5fdad950453785f7a3f5491bf8fd.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -73,7 +74,21 @@ Lifewire / Andy Zahn
 
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/_yzFIL-bClIpQ2-BreG8tli1L2g=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-4-a802a799a7c34067905c9ff965feea8e.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Design: Big and tough**
 
@@ -91,9 +106,6 @@ Lifewire / Andy Zahn
 
  We did encounter one troublesome bug where the remote partially de-synced from the display so that only the power button functioned properly. This is obviously a known issue, as on-screen instructions immediately appeared to reset the remote and re-establish the connection, and we found these instructions repeated inside the battery compartment of the remote. We also missed having dedicated buttons for popular streaming services such as Netflix and Hulu.
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ## **Setup Process: Some assembly required**
 
  The sturdiness of the NU8000’s stand comes at a small price in terms of ease of setup. The back panel of the pillar must be popped off to screw the stand together. The assembled base is then attached to the screen via a plate that slides into place and is then secured by more screws. The caveat is that unless you have a large table available for this process then it's very difficult and requires the cooperation of at least two other people. Once this is complete, insert the batteries into the remote, attach the power cord and any other wired connections, and you’re ready to go.
@@ -120,25 +132,28 @@ Lifewire / Andy Zahn
 
  Overall we were disappointed by the quality of image of this TV, and that’s a big mark against a device whose primary purpose is to provide an excellent cinematic viewing experience. With a less expensive display, we would not be so bothered by such issues, but the $1,000 price tag warrants holding the NU8000 to a higher standard.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/0imcVI8dzYw11TAOKkt8EnXJE5k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-2-0c325c2d3f1e448d9d0b10f24152a097.jpg)
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 ## **Audio Quality: Surprisingly good**
 
  The speakers in the NU8000 are not bad at all for built-in TV[speakers](https://www.lifewire.com/best-surround-sound-speakers-4059402) . They provide decent overall sound quality that's just a little flat sounding. This flatness can be easily fixed in software to provide a much punchier and more satisfying listening experience. It won’t replace a good surround sound system, but they're more than adequate. This screen would work well in a minimalistic space-saving setup.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/AXYnUtoRwLv0QLo0Xm0_W28X-zg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-5-531f7de77d9746ba993c9966f10920be.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
@@ -150,16 +165,10 @@ Lifewire / Andy Zahn
 
  The other software issue is that the NU8000 runs an older version of FreeSync, which means it doesn’t handle screen tearing as well as newer displays, especially when gaming on high-end hardware. However, during our testing, we didn’t notice an appreciable problem with this, though that may vary depending on your viewing and gaming habits.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 ## **Price: Expensive at MSRP**
 
  With an MSRP of $999 the NU8000 is certainly no bargain, especially considering that superior displays are available for the same cost. However, as this is an older TV it may be possible to find steep discounts that make up for its deficiencies.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
 ## **Competition: NU8000 vs RU8000**
 
  When talking about the NU8000 it's impossible not to compare it to the newer and superior RU8000, especially considering their identical MSRP. Though in most respects they're technically identical, clearly there is a lot going on under the hood that elevates the RU8000 over the NU8000\. The display of the RU8000 provides noticeably better contrast and color rendition than the NU8000\. The software, though identical, runs much more smoothly on the RU8000, and the connection of the remote control was much more reliable.
@@ -173,6 +182,19 @@ Lifewire / Andy Zahn
 **Hard to recommend.**
 
  The Samsung UN65NU8000FXZ is capable, provides high resolution, and has excellent, flexible software with a good selection of apps. It's also exceptionally thin with a screen that's almost bezel-less, but unless the extremely sturdy stand is the most important feature to you, then RU8000 is just a better display at the exact same MSRP.
+
+<!-- affiliate ads begin -->
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -193,8 +215,6 @@ Lifewire / Andy Zahn
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -202,4 +222,24 @@ Lifewire / Andy Zahn
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-unravel-time-the-art-of-snapchat-video-reverse/"><u>[New] 2024 Approved Unravel Time The Art of Snapchat Video Reverse</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-quick-guide-off-instagrams-igtv/"><u>[New] In 2024, Quick Guide Off Instagram's IGTV</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-understanding-instagrams-privacy-controls/"><u>[New] In 2024, Understanding Instagram's Privacy Controls</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-tips-to-make-your-instagram-video-goes-viral-for-2024/"><u>[New] Tips to Make Your Instagram Video Goes Viral for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-the-art-of-retracing-instagram-pictures-roots/"><u>[Updated] In 2024, The Art of Retracing Instagram Pictures' Roots</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-unlimited-savvy-instagrams-infinite-save-tool/"><u>[Updated] Unlimited Savvy Instagram's Infinite Save Tool</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-unobstructed-movie-magic-erasing-youtube-borders/"><u>[Updated] Unobstructed Movie Magic Erasing YouTube Borders</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-beyond-the-lens-the-complete-selfie-confirmation-on-ig/"><u>2024 Approved Beyond the Lens The Complete Selfie Confirmation on IG</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-elevate-design-complimentary-cutting-edge-psd-texts/"><u>2024 Approved Elevate Design Complimentary, Cutting-Edge PSD Texts</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/easy-routines-for-documenting-instagram-stories-for-2024/"><u>Easy Routines for Documenting Instagram Stories for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/guide-on-how-to-free-up-iphone-se-space-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>Guide on How To Free Up iPhone SE Space | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-how-to-become-an-instagram-influencer-easily/"><u>In 2024, How to Become an Instagram Influencer Easily</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-erase-an-apple-iphone-8-plus-without-apple-id-password-by-drfone-ios/"><u>In 2024, How To Erase an Apple iPhone 8 Plus Without Apple ID Password?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-realme-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Realme 12 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-free-avi-video-rotator-software-and-apps-for-all-devices/"><u>New In 2024, Free AVI Video Rotator Software and Apps for All Devices</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/toms-guide-to-cutting-edge-pc-gear-innovations-and-reviews/"><u>Tom's Guide to Cutting-Edge PC Gear: Innovations and Reviews</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/ultimate-guide-to-fixing-non-functional-microphones-on-windows-11/"><u>Ultimate Guide to Fixing Non-Functional Microphones on Windows 11</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Silence Broken: Effective Solutions for PC Sound Failures in the World of Valheim"
-date: 2024-09-27T17:45:19.132Z
-updated: 2024-10-04T18:47:07.325Z
+date: 2024-10-07T17:26:22.082Z
+updated: 2024-10-10T16:47:53.554Z
 tags:
   - win11
   - win10
@@ -28,13 +28,6 @@ thumbnail: https://thmb.techidaily.com/d3b9fa260885ec727c421c1f7392781651fabce3d
 5. **[Install the latest game patch](https://tools.techidaily.com/drivereasy/download/)**
 6. **[Reinstall Origin and Apex Legends](https://tools.techidaily.com/drivereasy/download/)**
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Fix 1: Allow Origin to access your microphone
 
  The voice chat not working in Apex Legends error may happen if you have not allowed Origin to access your microphone.
@@ -53,18 +46,18 @@ thumbnail: https://thmb.techidaily.com/d3b9fa260885ec727c421c1f7392781651fabce3d
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/10/image-248.png)
 
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  By doing so, you have allowed Origin the access to the microphone on your computer.
 
  Now run Apex Legends and check to see if the microphone not working problem is resolved. If yes, then great! If the problem still remains, please try**Fix 2** , below.
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151871/7443" target="_top" id="2151871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151871" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 2: Update your audio driver
 
@@ -80,13 +73,6 @@ thumbnail: https://thmb.techidaily.com/d3b9fa260885ec727c421c1f7392781651fabce3d
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/06/image-35.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  3) Click **Update All** to automatically download and install the correct version of_ALL_ the drivers that are missing or out of date on your system (this requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)** [](https://tools.techidaily.com/drivereasy/download/) – you’ll be prompted to upgrade when you click **Update All** ). Or if you just want to update the audio driver, simply click the **Update** button next to it.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/06/image-36.png)
@@ -98,6 +84,19 @@ thumbnail: https://thmb.techidaily.com/d3b9fa260885ec727c421c1f7392781651fabce3d
 5) Launch Apex Legends to see if you can hear your friends without fail. If yes, you have solved the issue! If no, please move on to**Fix 3** , below.
 
 ---
+
+<!-- affiliate ads begin -->
+<span id="1976998">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Fix 3: Make sure your microphone is set as default in Windows
 
@@ -112,13 +111,6 @@ Here’s how to do it:
  4) In **Sound** settings, scroll down to the**Input** section, and in**Choose your input device** , make sure the microphone you are actively using is selected. Then,**test your microphone** by speaking into your mic to see if it ‘hears’ anything. If yes, it means you have configured the microphone properly.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/10/image-242.png)
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
-  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 5) Close the window.
 
@@ -136,33 +128,33 @@ Here is how to configure in-game settings:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/10/image-260.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  2) Click**More** \>**VOICE** , then make sure**the microphone you’re using is selected** and**Microphone volum** e is set to**an audio volume** . After that, in**Activation mode** , choose**Push-to-talk** .
 
 ![This image has an empty alt attribute; its file name is image-261-1024x700.png](https://images.drivereasy.com/wp-content/uploads/2019/10/image-261-1024x700.png)
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
+  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  3) Open Apex Legends, then go to**Settings > AUDIO** and set the **Voice Chat Record Mode** to **Push to Talk** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/10/image-262-1024x576.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  4) Again, play Apex Legends to see if the voice chat not working issue is resolved.
 
  Still no joy? Please try**Fix 5** , below.
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
-  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 5: Install the latest game patch
 
@@ -182,9 +174,23 @@ Here are the steps:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/10/image-174.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  2) In the program list, locate **Origin** , then right-click on it and click **Uninstall** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/10/image-175-1024x499.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  4) Locate **Apex Legends** and uninstall it too.
 
@@ -218,19 +224,22 @@ Here are the steps:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-crafting-instagram-content-with-visual-flair/"><u>[New] 2024 Approved Crafting Instagram Content with Visual Flair</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-saying-thanks-access-to-otu-creations-freepaid-for-2024/"><u>[New] Saying Thanks Access to OTU Creations (Free/Paid) for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-step-by-step-for-attaching-tunes-in-instagram-media/"><u>[Updated] 2024 Approved Step-by-Step for Attaching Tunes in Instagram Media</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-best-chosen-templates-for-viral-ae-content/"><u>[Updated] Best Chosen Templates for Viral AE Content</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-cutting-edge-editing-10-pioneering-tools-for-instagram-vids/"><u>[Updated] Cutting-Edge Editing 10 Pioneering Tools for Instagram Vids</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-deciphering-the-maximum-duration-for-instagram-videos-for-2024/"><u>[Updated] Deciphering the Maximum Duration for Instagram Videos for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-exploring-the-creme-de-la-creme-instas-influential-elite-for-2024/"><u>[Updated] Exploring the Crème De La Crème Insta's Influential Elite for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-unlocking-vimeo-mastery-of-tools-software-and-skillful-techniques-for-2024/"><u>[Updated] Unlocking Vimeo Mastery of Tools, Software & Skillful Techniques for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/2024-approved-revolutionary-videography-toolset-for-vimeo-users/"><u>2024 Approved Revolutionary Videography Toolset for Vimeo Users</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-turning-off-instagrams-igtv-in-a-nutshell/"><u>2024 Approved Turning Off Instagram's IGTV in a Nutshell</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-digital-detox-ignoring-negativity-on-youtube/"><u>In 2024, Digital Detox Ignoring Negativity on YouTube</u></a></li>
-<li><a href="https://article-tips.techidaily.com/prime-5-podcast-options-for-your-iphone-experience-for-2024/"><u>Prime 5 Podcast Options for Your iPhone Experience for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/santas-digital-deliveries-via-microsoft-marketplace/"><u>Santa's Digital Deliveries via Microsoft Marketplace</u></a></li>
-<li><a href="https://article-posts.techidaily.com/win-like-a-pro-with-this-no-cost-high-impact-voice-changer-for-valorant/"><u>Win Like a Pro with This No-Cost, High-Impact Voice Changer for Valorant</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-active-presenter-8-review-is-it-the-best-screen-recorder/"><u>[New] In 2024, Active Presenter 8 Review Is It The Best Screen Recorder?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-quick-and-simple-access-high-res-youtube-images-for-free-here/"><u>[New] In 2024, Quick & Simple Access High-Res YouTube Images for Free Here</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-mp4-capture-tech-download-and-testimonials-for-2024/"><u>[New] MP4 Capture Tech Download & Testimonials for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-multiplying-joy-sharing-a-pile-of-photos-and-videos-with-instagram-for-2024/"><u>[New] Multiplying Joy Sharing a Pile of Photos & Videos with Instagram for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-2023-facebook-live-video-downloaders/"><u>[Updated] 2024 Approved 2023 Facebook Live Video Downloaders</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-a-beginners-guide-to-youtube-seo-keywords/"><u>[Updated] 2024 Approved A Beginner's Guide to YouTube SEO Keywords</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-a-comprehensive-look-at-ig-reels-vs-stories/"><u>[Updated] A Comprehensive Look at IG Reels Vs Stories</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-the-comprehensible-guide-to-selecting-popular-youtube-openings/"><u>[Updated] In 2024, The Comprehensible Guide to Selecting Popular YouTube Openings</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-instagram-videos-enhance-your-watch-time/"><u>[Updated] Instagram Videos Enhance Your Watch Time</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-ultimate-guide-to-reverse-playbacks-on-instavids-for-2024/"><u>[Updated] The Ultimate Guide to Reverse Playbacks on InstaVids for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-inside-influence-a-peek-at-top-25-social-media-icons-on-insta/"><u>2024 Approved Inside Influence A Peek at Top 25 Social Media Icons on Insta</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-prime-viewer-iosandroidwindows-compatible/"><u>2024 Approved Prime Viewer IOS/Android/Windows Compatible</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/flip-the-script-how-to-turn-your-instagram-visuals-into-viral-stars-for-2024/"><u>Flip the Script How to Turn Your Instagram Visuals Into Viral Stars for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-to-unsubscribe-from-paramount-plus-the-complete-guide/"><u>How To Unsubscribe From Paramount Plus: The Complete Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-guide-to-silent-screen-time-view-unseen-stories-on-devices/"><u>In 2024, Guide to Silent Screen Time View Unseen Stories on Devices</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/mastering-file-and-folder-combination-in-windows-11/"><u>Mastering File & Folder Combination in Windows 11</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/simplified-pathway-using-instagram-live-effectively-for-2024/"><u>Simplified Pathway Using Instagram Live Effectively for 2024</u></a></li>
 </ul></div>
 

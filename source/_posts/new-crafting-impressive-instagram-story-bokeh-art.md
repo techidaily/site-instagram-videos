@@ -1,7 +1,7 @@
 ---
 title: "[New] Crafting Impressive Instagram Story Bokeh Art"
-date: 2024-07-25T21:46:35.591Z
-updated: 2024-07-26T21:46:35.591Z
+date: 2024-10-06T16:04:33.404Z
+updated: 2024-10-10T17:39:17.542Z
 tags:
   - ai video
   - ai instagram
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/cb2689090616a1ba21a99aa6be50929e603a0dc80
 
 # How to Add Good Bokeh Effects in Instagram Stories
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -44,8 +41,12 @@ The word “Bokeh” or “boke” refers to the Japanese concept of “blur.”
 A somewhat more complicated, but descriptive way to explain Bokeh is that it is not the actual blur of the background. The background blur is related to the depth of field in photography. Bokeh is the quality and feel of the reflected light points and surrounding “blur.” Complicated yet beautiful, and now accessible to people on mobile and desktop platforms.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 2: How to Apply the Bokeh Effect to Blur the Background of Instagram Stories
 
 Adding the Bokeh Effect to your Instagram Story is easy, although not all mobile devices have this feature available. Worry not, there are a variety of apps you can download that can get you this effect, and you can upload your final image from the camera roll.
@@ -60,16 +61,33 @@ _Steps for Adding the Bokeh Effect from the Instagram App_
 
 Again, _not all mobile devices are able to perform this function._ I’ve compiled a list of third-party applications you can download to generate the same effect.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: Best Bokeh Effect Apps for iOS and Android
 
 If you fall into the category of individuals whose Instagram does not include the Focus feature, there are a handful of apps you can use to create the Bokeh effect. Below I will share 2 apps that are perfect for adding bokeh effects to photos and videos.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\.  Auto Blur Background - iOS & Android - FREE
 
 ![bokeh effects app - Auto Blur Background](https://images.wondershare.com/filmora/article-images/auto-blur-background-bokeh-effect.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1542129">
+					<video width="864" height="1152" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The Auto Blur Background app for [iOS](https://apps.apple.com/us/app/auto-blur-background-dslr/id1473558422) and [Android](https://play.google.com/store/apps/details?id=com.judi.autoblur&hl=en&gl=US) is free to users and allows you to import images from your camera roll or take a photo right on the app for it to blur. Once you’ve set the desired amount of background blur you are provided with a variety of bokeh effects you can add.
 
@@ -92,14 +110,8 @@ To create an Instagram Story with the bokeh effect from this app:
 * Ad placements appear multiple times while using the app
 * Blur function not always accurate for the image
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\.  AfterFocus - iOS & Android - $0.99
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![bokeh effects app - AfterFocus](https://images.wondershare.com/filmora/article-images/create-bokeh-effects-with-afterfocus.jpg)
 
 AfterFocus is another Bokeh effect editing app you can use to import photos to your Instagram story with this feature. This app allows you to define the focus area and then the app does the rest of the work! This app has an extremely natural and professional appearance.
@@ -134,17 +146,18 @@ Upon downloading this software here are the steps to creating the tilt-shift eff
 2. Bring the clip you’re looking to edit from the upper box to your “timeline” (the lower box of your screen).
 3. Go to the **Effects** panel and find the **utility** category, you will see options for **Tilt-shift Circle** and **Tilt-Shift Linear.** Or you can use the search bar at the top and search tilt, and you will see the tilt-shift circle and tilt-shift linear.
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![add bokeh effect in Filmora](https://images.wondershare.com/filmora/article-images/find-tilt-shift-effect-bokeh-effect.jpg)
 
 1. Drag the effect over the portion of the clip you are editing. These effects can be adjusted to change the intensity, size and rotation of the effect.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
-<!-- affiliate ads end -->
 ![add bokeh effect in Filmora](https://images.wondershare.com/filmora/article-images/add-tilt-shift-circle-bokeh-effect.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 1. Exporting media from Filmora is easy. Your content can be shared from this platform directly to YouTube and Vimeo, or save to your computer. Click the **Export** button in the main interface features, select the format with which you’d like your content to be saved as, and name your file accordingly. Select the location with which you will be exporting the content to and then hit **Export**.
 
@@ -164,12 +177,28 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-boosting-brand-visibility-essential-insta-highlight-upgrades/"><u>[New] Boosting Brand Visibility Essential Insta Highlight Upgrades</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-how-to-post-youtube-videos-as-instagram-stories/"><u>[New] In 2024, How to Post YouTube Videos as Instagram Stories</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-insta-video-size-strategy-for-maximum-engagement-for-2024/"><u>[New] Insta Video Size Strategy for Maximum Engagement for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-mastering-instagram-video-downloads-pcmac-guide-for-2024/"><u>[New] Mastering Instagram Video Downloads PC/Mac Guide for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-tap-into-instagrams-secret-stash-of-free-filters-with-search/"><u>[Updated] In 2024, Tap Into Instagram’s Secret Stash of Free Filters with Search</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-unearthing-timeless-treasures-a-classic-lit-exploration-for-2024/"><u>[Updated] Unearthing Timeless Treasures A Classic Lit Exploration for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/comprehensive-list-of-premium-ways-to-access-cricket-live-for-2024/"><u>Comprehensive List of Premium Ways to Access Cricket Live for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/expert-tips-for-effortless-instagram-video-dialogues-for-2024/"><u>Expert Tips for Effortless Instagram Video Dialogues for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fake-the-location-to-get-around-the-mlb-blackouts-on-lava-blaze-curve-5g-drfone-by-drfone-virtual-android/"><u>Fake the Location to Get Around the MLB Blackouts on Lava Blaze Curve 5G | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-to-access-startup-recovery-on-a-mac-computer/"><u>How to Access Startup Recovery on a Mac Computer</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/how-to-navigate-apples-podcast-acceptance-policy/"><u>How to Navigate Apple's Podcast Acceptance Policy</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-streaming-software-showdown-wirecast-vs-obs-explored/"><u>In 2024, Streaming Software Showdown Wirecast vs OBS Explored</u></a></li>
+<li><a href="https://fake-location.techidaily.com/methods-to-change-gps-location-on-realme-gt-neo-5-drfone-by-drfone-virtual-android/"><u>Methods to Change GPS Location On Realme GT Neo 5 | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/play-store-stuck-on-downloading-of-asus-rog-phone-8-7-ways-to-resolve-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Stuck on Downloading Of Asus ROG Phone 8? 7 Ways to Resolve | Dr.fone</u></a></li>
+</ul></div>
 

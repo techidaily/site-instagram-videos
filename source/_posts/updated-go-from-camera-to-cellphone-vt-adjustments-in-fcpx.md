@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Go From Camera to Cellphone  VT Adjustments in FCPX\""
-date: 2024-09-28T18:10:01.801Z
-updated: 2024-10-05T00:43:39.659Z
+date: 2024-10-07T17:50:52.401Z
+updated: 2024-10-10T16:52:57.786Z
 tags:
   - ai video
   - ai instagram
@@ -51,10 +51,10 @@ Before entering the nitty-gritty on how to edit vertical videos with FCPX, you s
 | **Audio codecs supported**       | 128 kbps, Vorbis                                         |
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to Edit and Export Vertical Videos for Instagram in Final Cut Pro X?
@@ -96,17 +96,17 @@ Too many steps? Then try a **beginner-friendly editing tool**, Filmora!
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
-  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: Tips on Editing Vertical Videos for Instagram
@@ -126,10 +126,10 @@ Is the video already shot horizontally on your camera or smartphone? No worries,
 Vertical video is a great option to showcase wide and tall subjects where you can place close-ups and show off details to get up close and personal. It could be a product or fabric. You can showcase enticing minor elements that attract an audience in such landscape shots.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -153,22 +153,16 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-infusing-your-reels-with-soundscape-elements/"><u>[New] 2024 Approved Infusing Your Reels with Soundscape Elements</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-behind-the-scenes-professional-steam-capture-methods/"><u>[New] In 2024, Behind the Scenes Professional Steam Capture Methods</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-exploring-video-threads-on-youtube/"><u>[New] In 2024, Exploring Video Threads on YouTube</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-giving-a-fresh-twist-to-pre-filtered-memories-using-instagram-tools/"><u>[New] In 2024, Giving a Fresh Twist to Pre-Filtered Memories Using Instagram Tools</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-harness-the-potential-of-instagram-videos-for-brand-growth/"><u>[New] In 2024, Harness the Potential of Instagram Videos for Brand Growth</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-instagram-storytelling-mastery-crafting-a-dynamic-marketing-plan/"><u>[New] Instagram Storytelling Mastery Crafting a Dynamic Marketing Plan</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-the-symphony-of-stories-music-tips-for-social-media-gems/"><u>2024 Approved The Symphony of Stories Music Tips for Social Media Gems</u></a></li>
-<li><a href="https://android-frp.techidaily.com/best-samsung-frp-bypass-guide-by-drfone-android/"><u>Best Samsung FRP Bypass Guide</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/exploring-the-gamers-paradise-of-the-samsung-q60r-smart-qled-4k-tv-a-comprehensive-analysis/"><u>Exploring the Gamers Paradise of the Samsung Q60R Smart QLED 4K TV: A Comprehensive Analysis</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/how-to-intercept-text-messages-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>How to Intercept Text Messages on Apple iPhone 7 | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-detailed-review-of-doctorsim-unlock-service-for-apple-iphone-15-pro-max-drfone-by-drfone-ios/"><u>In 2024, Detailed Review of doctorSIM Unlock Service For Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-masterful-instagram-storytelling-with-templates-and-hacks/"><u>In 2024, Masterful Instagram Storytelling with Templates & Hacks</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-navigating-video-editing-the-essentials-of-cropping-and-exporting-to-instagram/"><u>In 2024, Navigating Video Editing The Essentials of Cropping and Exporting to Instagram</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/mastering-the-art-of-instagram-post-scheduling-for-2024/"><u>Mastering the Art of Instagram Post Scheduling for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/peering-into-the-pinnacle-of-4k-monitoring-with-lgs-ultrafine-display-for-2024/"><u>Peering Into the Pinnacle of 4K Monitoring with LG’s UltraFine Display for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/transform-your-pc-with-style-a-comprehensive-guide-to-crafting-dazzling-interfaces-using-rainmeter/"><u>Transform Your PC with Style: A Comprehensive Guide to Crafting Dazzling Interfaces Using Rainmeter</u></a></li>
-<li><a href="https://fox-that.techidaily.com/unveiling-the-destination-for-your-facetime-pictures-find-out-where-they-land/"><u>Unveiling the Destination for Your FaceTime Pictures: Find Out Where They Land</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-the-influencers-roadmap-instagram-edition-for-2024/"><u>[New] The Influencer's Roadmap Instagram Edition for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-the-rhythm-rulebook-seamlessly-mixing-music-into-instagram-posts/"><u>[New] The Rhythm Rulebook Seamlessly Mixing Music Into Instagram Posts</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-unlocking-creative-potential-integrating-custom-graphic-elements-into-your-story/"><u>[Updated] 2024 Approved Unlocking Creative Potential Integrating Custom Graphic Elements Into Your Story</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-swipe-right-on-creativity-youtubes-top-techniques-for-greenscreens/"><u>2024 Approved Swipe Right on Creativity YouTube’s Top Techniques for Greenscreens</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/content-strategy-game-changers-leveraging-ai-technology-to-enhance-writing-workflows/"><u>Content Strategy Game-Changers: Leveraging AI Technology to Enhance Writing Workflows</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-do-you-unlock-your-iphone-15-pro-learn-all-4-methods-drfone-by-drfone-ios/"><u>In 2024, How Do You Unlock your iPhone 15 Pro? Learn All 4 Methods | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/incredible-virtual-room-encounters-for-2024/"><u>Incredible Virtual Room Encounters for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/protecting-your-privacy-how-to-remove-apple-id-from-apple-iphone-12-by-drfone-ios/"><u>Protecting Your Privacy How To Remove Apple ID From Apple iPhone 12</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/social-stardom-awaits-add-1k-to-your-insta-profile-each-month/"><u>Social Stardom Awaits Add 1K to Your Insta Profile Each Month</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/top-rated-free-movies-applications-for-ipad-pro-ultimate-downloads-guide/"><u>Top Rated Free Movies Applications for iPad Pro: Ultimate Downloads Guide</u></a></li>
+<li><a href="https://games-able.techidaily.com/unlocking-ps4-input-pc-and-mac-integration-guide/"><u>Unlocking PS4 Input: PC & Mac Integration Guide</u></a></li>
 </ul></div>
 

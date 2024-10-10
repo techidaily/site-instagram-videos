@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Step-by-Step  Adding a Flurry of Images & Videos to Your IG Story\""
-date: 2024-10-03T21:19:39.705Z
-updated: 2024-10-04T16:51:04.996Z
+date: 2024-10-06T16:49:01.810Z
+updated: 2024-10-10T17:18:47.047Z
 tags:
   - ai video
   - ai instagram
@@ -41,23 +41,9 @@ thumbnail: https://thmb.techidaily.com/46c850237c04863ff656e578f32b008a00b71b463
 
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * As soon as you tap it, you will be able to see the recent photos and videos in your phone. Tap and hold, on any of the preferred image or video which you wish to upload, until you sense a slight vibration. Now, you have enabled the 'Select Multiple', scroll through the gallery and select rest 9 photos or videos that you wish to upload.
 
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-2.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Alternatively, if you have upgraded your Instagram app, you can simply tap the 'Select Multiple' option, represented by an icon of 'stacked squares', and select up to 10 photos/videos.
 
@@ -70,10 +56,10 @@ thumbnail: https://thmb.techidaily.com/46c850237c04863ff656e578f32b008a00b71b463
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-3.png)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * (Optional) If you've selected less than 10 photos and want to add more, tap '<' or go back to the previous screen or tap '+' displayed on the right side of the photos/videos. Tapping '<' or going back to the previous screen can also be used to deselect a photo/video.
@@ -84,9 +70,23 @@ thumbnail: https://thmb.techidaily.com/46c850237c04863ff656e578f32b008a00b71b463
 
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-5.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Lastly, hit on 'Share' to publish your post with multiple photos/videos in it.
 
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-6.png)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
+  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -95,10 +95,10 @@ thumbnail: https://thmb.techidaily.com/46c850237c04863ff656e578f32b008a00b71b463
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -116,22 +116,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-unveiling-instagrams-videography-timeframe-for-2024/"><u>[New] Unveiling Instagram's Videography Timeframe for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-prime-pick-extensive-digital-vaults/"><u>[Updated] 2024 Approved Prime Pick Extensive Digital Vaults</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-the-insta-archivists-playbook-for-mastery/"><u>[Updated] 2024 Approved The Insta Archivist's Playbook for Mastery</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-behind-the-scenes-unpacking-instagram-stories/"><u>[Updated] Behind the Scenes Unpacking Instagram Stories</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-how-to-record-roblox-gameplay-on-mac/"><u>[Updated] How to Record Roblox Gameplay on Mac</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-direct-download-vs-alternative-store-instagram-reels-efficiently/"><u>[Updated] In 2024, Direct Download vs Alternative Store Instagram Reels Efficiently</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-insta-zoom-mastery-in-and-out-for-clearer-selfies/"><u>[Updated] In 2024, Insta Zoom Mastery In and Out for Clearer Selfies</u></a></li>
-<li><a href="https://location-social.techidaily.com/4-most-known-ways-to-find-someone-on-tinder-for-samsung-galaxy-s23plus-by-name-drfone-by-drfone-virtual-android/"><u>4 Most-Known Ways to Find Someone on Tinder For Samsung Galaxy S23+ by Name | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/enhancing-imagery-a-step-by-step-guide-to-crop-videos-on-instagram-for-2024/"><u>Enhancing Imagery A Step-by-Step Guide to Crop Videos on Instagram for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/exploring-the-reasons-behind-instagram-disconnections/"><u>Exploring the Reasons Behind Instagram Disconnections</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-motorola-razr-40-ultra-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Motorola Razr 40 Ultra to Other Android Devices? | Dr.fone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-maximizing-impact-on-insta-story-with-multiple-images/"><u>In 2024, Maximizing Impact on Insta Story with Multiple Images</u></a></li>
-<li><a href="https://win11.techidaily.com/regain-missing-windows-storage-access/"><u>Regain Missing Windows Storage Access</u></a></li>
-<li><a href="https://fox-links.techidaily.com/the-essential-role-of-voice-in-visual-content/"><u>The Essential Role of Voice in Visual Content</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/the-smart-choice-essential-steps-in-upgrading-your-tech-for-2024/"><u>The Smart Choice Essential Steps in Upgrading Your Tech for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/the-ultimate-checklist-for-instagram-popularity-surge-for-2024/"><u>The Ultimate Checklist for Instagram Popularity Surge for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/troubleshooting-access-problems-with-destiny-2-servers-tips-and-tricks/"><u>Troubleshooting Access Problems with Destiny 2 Servers - Tips and Tricks</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-invisible-audiences-viewing-instagram-stories-privately-from-pcandroidios-screens/"><u>[New] 2024 Approved Invisible Audiences Viewing Instagram Stories Privately From PC/Android/iOS Screens</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-overcoming-unnatural-motion-blur-in-uav-videos/"><u>[New] Overcoming Unnatural Motion Blur in UAV Videos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-exhaustive-breakdown-of-vsco-photography-tool/"><u>[Updated] 2024 Approved Exhaustive Breakdown of VSCO Photography Tool</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-elevate-your-content-with-these-25-powerful-instagram-tags-for-2024/"><u>[Updated] Elevate Your Content with These 25 Powerful Instagram Tags for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-insta-chat-101-an-introduction-to-online-video-talks/"><u>[Updated] Insta Chat 101 An Introduction to Online Video Talks</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-recording-success-how-to-grab-phonescreens-with-snapchat-easily/"><u>[Updated] Recording Success How to Grab Phonescreens with Snapchat Easily</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-accelerated-aesthetics-rapid-revamping-of-images-on-windows-photo-editor/"><u>2024 Approved Accelerated Aesthetics Rapid Revamping of Images on Windows Photo Editor</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-enhance-yt-experience-the-most-outstanding-reaction-ideas/"><u>2024 Approved Enhance YT Experience The Most Outstanding Reaction Ideas</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-novice-to-pro-steps-for-social-success/"><u>2024 Approved From Novice to Pro Steps for Social Success</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/essential-tips-for-win11-setup-using-workstation-17/"><u>Essential Tips for Win11 Setup Using Workstation 17</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-crafting-a-viral-phenomenon-on-igtv-with-savvy-hash-tags/"><u>In 2024, Crafting a Viral Phenomenon on IGTV with Savvy Hash Tags</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-enhancing-instagram-communications-through-video-engagement/"><u>In 2024, Enhancing Instagram Communications Through Video Engagement</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-unlock-clear-shots-instagram-storys-in-and-out-tactics/"><u>In 2024, Unlock Clear Shots Instagram Story's In and Out Tactics</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-unraveling-the-art-of-screencasts-a-step-by-step-approach/"><u>In 2024, Unraveling the Art of Screencasts A Step-by-Step Approach</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/instagram-glow-up-the-best-three-highlight-ideas/"><u>Instagram Glow Up The Best Three Highlight Ideas</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/say-no-to-unsolicited-content-on-insta-for-2024/"><u>Say No to Unsolicited Content on Insta for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/slide-into-style-instagrams-secrets-to-upside-down-visual-content/"><u>Slide Into Style Instagram's Secrets to Upside-Down Visual Content</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-10-advantages-of-choosing-a-low-profile-mechanical-keyboard/"><u>Top 10 Advantages of Choosing a Low-Profile Mechanical Keyboard</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/top-18-best-free-video-compression-tools-of-2e24-windows-and-mac-compatible/"><u>Top 18 Best Free Video Compression Tools of 2E24 - Windows & Mac Compatible</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Smart Snap Strategies  Insta Story Zoom 101\""
-date: 2024-07-25T21:45:49.735Z
-updated: 2024-07-26T21:45:49.735Z
+date: 2024-10-05T17:27:20.239Z
+updated: 2024-10-10T17:33:23.045Z
 tags:
   - ai video
   - ai instagram
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/c8505bae3e314a2b381005e22ef6317da32419f0b
 
 # How to Zoom in/Out in Instagram Stories
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -37,18 +34,12 @@ Here, in this article, we are going to introduce various methods of **zooming in
 * [Part 1: 4 Ways to Zoom in/out on Instagram Stories](#part1)
 * [Part 2: Edit Instagram Videos with Excellent Video Editor](#part2)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ## How to zoom in/out in Instagram Stories
 
 #### 1\. Normal Mode
 
 You can zoom in/out while clicking a picture for Instagram Stories, by pinching the screen in 'Normal' mode. For recording an Insta Story video in zoom in/out mode, press the record button and slide the same finger up/down to zoom in/out.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-normal-mode.jpg)
 
 Image resource: later.com
@@ -57,10 +48,6 @@ Image resource: later.com
 
 #### 2\. Rewind Mode
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-rewind-mode.jpg)
 
 Image resource: techjunkie.com
@@ -69,9 +56,6 @@ We know a video in 'Rewind' mode is pretty cute and funny, as the chain of event
 
 #### 3\. Boomerang
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-superzoom-mode.jpg)
 
 Image resource: metro.com
@@ -80,9 +64,6 @@ Shooting a video in 'Boomerang' is exciting while creating Instagram Stories. We
 
 #### 4\. Hands-Free Mode
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-hands-free-mode.jpg)
 
 Image resource: later.com
@@ -91,11 +72,32 @@ There are two-options while you want to zoom in/out using the 'Hands-Free' mode.
 
 Be it a 'Boomerang', 'Rewind', 'Hands-Free', or 'Normal' mode video, learning how to zoom in Instagram Stories is sure to make your stories cool and funky.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Edit Instagram Videos with Wondershare Filmora
 
 Editing Instagram videos is not difficult at all as long as you installed a powerful yet easy-to-use video editing tool. Luckily, Wondershare Filmora is one of them because you can custom your videos with Filmora according to your needs even if you didn't take any training.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Final Verdict
 
@@ -114,13 +116,18 @@ You May also like
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -128,4 +135,27 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-moments-in-music-hot-20-rap-songs-dominating-tiktok/"><u>[New] 2024 Approved Moments in Music Hot 20 Rap Songs Dominating TikTok</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-captivating-creations-the-process-of-making-popular-video-memes/"><u>[New] Captivating Creations The Process of Making Popular Video Memes</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-followers-and-posts-10-instagram-essentials-to-watch/"><u>[New] Followers & Posts 10 Instagram Essentials to Watch</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-copyright-guide-for-instagram-music/"><u>[New] In 2024, Copyright Guide for Instagram Music</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-pixelflame-recorders-for-firefox/"><u>[New] In 2024, PixelFlame Recorders for Firefox</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-optimizing-images-with-ae-luts-step-by-step/"><u>[New] Optimizing Images with AE LUTs Step-by-Step</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-paving-pathways-in-pixels-the-leading-vr-treadmills-reviewed/"><u>[New] Paving Pathways in Pixels The Leading VR Treadmills Reviewed</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-perfect-your-content-mix-horizontal-videos-on-the-igtv-stage-for-2024/"><u>[New] Perfect Your Content Mix Horizontal Videos on the IGTV Stage for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-a-guide-to-gauging-igtv-video-impressions/"><u>[Updated] In 2024, A Guide to Gauging IGTV Video Impressions</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-perfect-pixels-a-guide-to-the-11-best-edits-for-color-balance-for-2024/"><u>[Updated] Perfect Pixels A Guide to the 11 Best Edits for Color Balance for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-secretive-story-viewing-tactics-for-android-iphone-and-pc/"><u>[Updated] Secretive Story Viewing Tactics for Android, iPhone & PC</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-efficiently-storing-instagram-reels-two-simplified-techniques/"><u>2024 Approved Efficiently Storing Instagram Reels Two Simplified Techniques</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-flip-and-flash-unveiling-the-power-of-instagrams-angled-photos/"><u>2024 Approved Flip and Flash Unveiling the Power of Instagram's Angled Photos</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-hardware-basics-preparing-for-big-sur-os/"><u>2024 Approved Hardware Basics Preparing for Big Sur OS</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-prioritize-quality-and-ease-the-top-12-videophones/"><u>2024 Approved Prioritize Quality and Ease The Top 12 Videophones</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/attracting-watchers-discover-the-top-6-video-types-for-2024/"><u>Attracting Watchers Discover the Top 6 Video Types for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>How to use Snapchat Location Spoofer to Protect Your Privacy On Apple iPhone XS? | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-imovie-techniques-for-squaring-up-your-instagram-feed/"><u>In 2024, IMovie Techniques for Squaring Up Your Instagram Feed</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-essential-guide-to-low-cost-cloud-storage-plans/"><u>In 2024, The Essential Guide to Low-Cost Cloud Storage Plans</u></a></li>
+</ul></div>
 

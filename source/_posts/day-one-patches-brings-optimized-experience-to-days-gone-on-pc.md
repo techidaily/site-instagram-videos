@@ -1,7 +1,7 @@
 ---
 title: Day One Patches Brings Optimized Experience to 'Days Gone' On PC
-date: 2024-09-28T04:38:59.623Z
-updated: 2024-10-04T23:04:33.070Z
+date: 2024-10-09T16:07:08.499Z
+updated: 2024-10-10T17:27:01.199Z
 tags:
   - win11
   - win10
@@ -41,13 +41,26 @@ Battlefield 2042 is one of the most awaited games. Now players can dive into the
 3. Select **Game Mode**  from the left panel. Then toggle **On**  Game Mode.  
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/08/turn-on-game-mode.png)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Now launch Battlefield 2042\. If your game still stutters a lot or it’s showing pretty low FPS, try the next fix below.
 
@@ -65,14 +78,14 @@ Below are a few common overlays and how to disable them.
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/7-2-1-1.jpg)
 3. Select the **Game Overlay** on the navigation bar and switch **Enable in-game overlay** .  
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2021/09/discord-overlay.png)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Twitch
 
@@ -83,14 +96,14 @@ Below are a few common overlays and how to disable them.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/10/Twitch-in-game-overlay.png)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  After disabling overlays, launch Battlefield 2042 and it should run smoothly.
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3\. Update your graphics driver
 
@@ -125,22 +138,15 @@ Below are a few common overlays and how to disable them.
 ![Download & Update NVIDIA GeForce RTX 3080 Ti driver](https://images.drivereasy.com/wp-content/uploads/2021/06/Download-Update-NVIDIA-GeForce-RTX-3080-Ti-driver.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **The Pro version of Driver Easy** comes with _full technical support_ . If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
 
  After updating drivers, restart your PC for the changes to take full effect. If you still have FPS drops and stuttering issues, try the next fix below.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 4\. Enable hardware-accelerated GPU scheduling
 
@@ -157,18 +163,25 @@ Below are a few common overlays and how to disable them.
 ![enable hardware-acceleration GPU scheduling](https://images.drivereasy.com/wp-content/uploads/2021/08/turn-on-hardware-accelerated-GPU-scheduling.png)
 4. Also make sure you’ve selected**Desktop app** . Then click on the**Browse** button.  
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2021/10/graphics-settings.png)
 5. Then navigate to your game’s installation directory. Click**BF2042.exe** and click**Add** .  
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047346/19272" target="_top" id="2047346">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047346" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047346/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2021/10/add-BF2042.png)
 6. Your game should appear on the list. Click on the**Options** button.  
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/10/options-button.png)
 7. Select**High Performance** .  
@@ -190,14 +203,20 @@ Below are a few common overlays and how to disable them.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/10/delete-cache.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 If this doesn’t do the trick, try the next fix below.
+
+<!-- affiliate ads begin -->
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 6\. Tweak in-game settings
 
@@ -207,13 +226,6 @@ If this doesn’t do the trick, try the next fix below.
 * Vertical sync:**OFF**
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/10/disable-vertical-sync-and-future-frame-rendering.png)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  After applying the changes, relaunch your game and you should be able to gain a better performance without noticeable FPS drops and stutters.
 
@@ -236,22 +248,19 @@ If this doesn’t do the trick, try the next fix below.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-navigating-trends-essential-hashtags-for-todays-influencers/"><u>[New] 2024 Approved Navigating Trends Essential Hashtags for Today's Influencers</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-your-personal-igtv-channel-guide-for-inspiration/"><u>[New] 2024 Approved Your Personal IGTV Channel Guide for Inspiration</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-ideal-app-for-aspiring-filmmakers-a-reel-crafting-list/"><u>[New] Ideal App for Aspiring Filmmakers A Reel-Crafting List</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-dive-into-the-world-of-instagram-voice-personalization/"><u>[New] In 2024, Dive Into the World of Instagram Voice Personalization</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-premium-selection-excellent-webcam-platforms/"><u>[New] Premium Selection Excellent Webcam Platforms</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-unveiling-clearer-imagery-instagrams-video-cropping-secrets/"><u>[Updated] 2024 Approved Unveiling Clearer Imagery Instagram's Video Cropping Secrets</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-how-to-multiply-engagement-on-your-instagram-story/"><u>[Updated] How to Multiply Engagement on Your Instagram Story</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-videography-on-fb-horizontal-or-vertical-placement/"><u>[Updated] In 2024, Videography on FB Horizontal or Vertical Placement?</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-the-ultimate-path-to-a-thriving-instagram-community/"><u>[Updated] The Ultimate Path to a Thriving Instagram Community</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-the-ultimate-webcam-users-guide-for-quality-recordings/"><u>[Updated] The Ultimate WebCam User's Guide for Quality Recordings</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-a-comprehensive-guide-to-capturing-your-hp-pcs-display/"><u>2024 Approved A Comprehensive Guide to Capturing Your HP PC's Display</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-beyond-staged-success-ten-truths-about-reels-on-instagram/"><u>2024 Approved Beyond Staged Success Ten Truths About Reels on Instagram</u></a></li>
-<li><a href="https://driver-download.techidaily.com/1722958518599-lenovo-x1-carbon-drivers-compatible-with-windows-11-and-windows-7-get-them-now/"><u>Lenovo X1 Carbon Drivers: Compatible with Windows 11 & Windows 7 – Get Them Now!</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/methods-to-deal-with-restricted-codecs/"><u>Methods to Deal with Restricted Codecs</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/quick-fixes-for-vlc-when-it-cant-play-mkv-videos/"><u>Quick Fixes for VLC When It Can't Play MKV Videos</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/review-of-m3-macbook-air-the-accessible-intelligent-machine-from-apple-revolutionizes-computing/"><u>Review of M3 MacBook Air: The Accessible, Intelligent Machine From Apple Revolutionizes Computing</u></a></li>
-<li><a href="https://win-blog.techidaily.com/tackling-connectivity-errors-for-a-smoother-experience-in-granblue-fantasy-on-pc/"><u>Tackling Connectivity Errors for a Smoother Experience in Granblue Fantasy on PC</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-transformations-unlocked-the-2-most-effective-ways-to-convert-video/"><u>[New] In 2024, Transformations Unlocked The 2 Most Effective Ways to Convert Video</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-paint-your-posts-brightly-instagrams-triple-highlight-strategies-for-2024/"><u>[New] Paint Your Posts Brightly Instagram's Triple Highlight Strategies for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-three-key-strategies-to-frame-your-insta-films-better/"><u>[New] Three Key Strategies to Frame Your Insta Films Better</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-unveiling-14-dynamic-text-animation-samples-for-2024/"><u>[New] Unveiling 14 Dynamic Text Animation Samples for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-mastering-iphone-x-identity-verification-restoring-biometric-lock/"><u>[Updated] In 2024, Mastering iPhone X Identity Verification Restoring Biometric Lock</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-inverted-illusions-the-art-of-rotating-visuals-for-social-media-success-for-2024/"><u>[Updated] Inverted Illusions The Art of Rotating Visuals for Social Media Success for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-strategies-for-successful-youtube-monetization-for-2024/"><u>[Updated] Strategies for Successful YouTube Monetization for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-key-points-to-understand-tiktok-web-macos/"><u>2024 Approved Key Points to Understand TikTok Web (macOS)</u></a></li>
+<li><a href="https://win-able.techidaily.com/1723007559146-download-days-gone-for-windows-and-xbox-the-ultimate-open-world-fps-experience-begins/"><u>Download 'Days Gone' For Windows & Xbox: The Ultimate Open-World FPS Experience Begins!</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/instagram-to-origins-the-step-by-step-image-trackback/"><u>Instagram to Origins The Step-by-Step Image Trackback</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-from-chrome-os-to-linux-a-comprehensive-installation-guide/"><u>New 2024 Approved From Chrome OS to Linux A Comprehensive Installation Guide</u></a></li>
+<li><a href="https://program-issues.techidaily.com/pc-troubles-9-essential-solutions-to-fix-ark-survival-evolved-game-crashes/"><u>PC Troubles? 9 Essential Solutions to Fix ARK: Survival Evolved Game Crashes</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/step-by-step-retrieving-cortana-history-from-windows/"><u>Step-by-Step: Retrieving Cortana History From Windows</u></a></li>
+<li><a href="https://driver-download.techidaily.com/updated-hp-deskjet-3755-inkjet-printer-drivers-for-enhanced-performance-on-windows-1187/"><u>Updated HP DeskJet 3755 Inkjet Printer Drivers for Enhanced Performance on Windows (11,8,7)</u></a></li>
 </ul></div>
 

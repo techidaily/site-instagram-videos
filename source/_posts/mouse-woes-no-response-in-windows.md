@@ -1,7 +1,7 @@
 ---
 title: "Mouse Woes: No Response in Windows"
-date: 2024-07-25T21:46:50.594Z
-updated: 2024-07-26T21:46:50.594Z
+date: 2024-10-09T16:47:10.118Z
+updated: 2024-10-10T16:07:20.033Z
 tags:
   - win11
   - win10
@@ -32,18 +32,12 @@ thumbnail: https://thmb.techidaily.com/d1af8070250ed0fc44c0eb3bb732f040d9be0391d
 
  If you do not have a receiver for your wireless mouse, then you are having a Bluetooth mouse, not a wireless mouse. Some of the instructions here might not apply.
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.drivereasy.com/wp-content/uploads/2017/03/img_58ca13fd8604e.jpg)
 
  **NOTE** : Replace your mouse if it’s over 5 years old.
 
  Some of the following fixes require a working pointing device. Try using a pointing pen, a USB mouse, a touchpad, or speech recognition. If you have previously enabled the remote connection on your Windows 10, or that you have installed Teamviewer, use them as per your own needs.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 1: Reinstall the wireless mouse driver
 
 **NOTE**  : You should use the remote control feature to proceed with the following method.
@@ -52,9 +46,6 @@ thumbnail: https://thmb.techidaily.com/d1af8070250ed0fc44c0eb3bb732f040d9be0391d
 
  1) On your keyboard, press the**Windows logo + R keys** simultaneously to open the Run box. Type**devmgmt.msc** and hit Enter.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.drivereasy.com/wp-content/uploads/2015/11/run-devmgmt.msc_.jpg)
 
 2) Expand **Mice and other pointing devices**  . Right-click your wireless mouse and click**Update Driver** .
@@ -83,6 +74,19 @@ thumbnail: https://thmb.techidaily.com/d1af8070250ed0fc44c0eb3bb732f040d9be0391d
 
  9) See if the problem is resolved.
 
+<!-- affiliate ads begin -->
+<span id="1983446">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2: Update the mouse driver
 
  If your wireless mouse still refuses to work after the method above, it’s likely that you’re using the wrong or outdated driver altogether.
@@ -97,10 +101,20 @@ thumbnail: https://thmb.techidaily.com/d1af8070250ed0fc44c0eb3bb732f040d9be0391d
 
  2) Run Driver Easy and click the**Scan Now** button. Driver Easy will then scan your computer and detect any problem drivers.
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/update-drivers-1.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1993645">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  3) Click the**Update** button next to the flagged mouse device to automatically download and install the correct version of its driver (you can do this with the FREE version).
 
@@ -110,10 +124,6 @@ thumbnail: https://thmb.techidaily.com/d1af8070250ed0fc44c0eb3bb732f040d9be0391d
 
  4) Restart your computer and check to see if Windows 10 can now detect your wireless mouse.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## 3: Check your hardware, devices, and wireless connections
 
  1)**Connect your mouse receiver to a different port** . If possible, try the USB port at the back of the computer, since they typically have more power available.
@@ -132,43 +142,49 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/win-11-run-control-panel.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  2) Click on**System and Security** . If you don’t see it, make sure you’ve set **Category** as your view-by.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2023/10/win11-Control-Panel-System-and-Security.jpg)
 
  3) Click **Power Options** .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
-<!-- affiliate ads end -->
 ![](https://images.drivereasy.com/wp-content/uploads/2023/10/win11-Control-Panel-System-and-Security-Power-Options.jpg)
 
  4) In the left pane, click on**Choose what the power buttons do** .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.drivereasy.com/wp-content/uploads/2023/10/win11-Power-Options-Choose-what-the-power-buttons-do.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  5) Click on the**Change settings that are currently unavailable** link.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.drivereasy.com/wp-content/uploads/2023/10/win11-Power-Options-Change-settings-that-are-currently-unavailable.jpg)
 
  6) Uncheck the box for**Turn on fast startup (recommended)** . Click **Save changes** and close the window.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->
 ![](https://images.drivereasy.com/wp-content/uploads/2023/10/win11-turn-off-fast-startup.jpg)
 
  5) Restart your computer. All drivers will be initialized on startup now. So the time needed to start your computer might be longer.
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 5: Repair system files
 
  If all else fails, it’s time to check if the issue stems from**corrupted system files** .
@@ -204,8 +220,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -213,4 +227,16 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-conquering-instagram-reels-like-an-elite-creator/"><u>[Updated] 2024 Approved Conquering Instagram Reels Like an Elite Creator</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-step-by-step-how-to-upscalled-vids-on-instagram/"><u>[Updated] In 2024, Step-by-Step How to Upscalled Vids on Instagram</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-youtube-vs-dailymention-spotlighting-key-aspects/"><u>[Updated] YouTube Vs. DailyMention Spotlighting Key Aspects</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-mastering-srt-to-txt-translation-the-fastest-guide/"><u>2024 Approved Mastering SRT to TXT Translation - The Fastest Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/beam-your-best-selecting-the-stirring-photos-on-instagram/"><u>Beam Your Best Selecting the Stirring Photos on Instagram</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-xiaomi-13-ultra-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Xiaomi 13 Ultra without Losing Data | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/how-to-see-who-unfollowed-you-on-instagram/"><u>How to See Who Unfollowed You On Instagram</u></a></li>
+<li><a href="https://review-topics.techidaily.com/quickly-repair-damaged-pdf-v16-files-by-stellar-guide/"><u>Quickly Repair Damaged PDF v1.6 Files</u></a></li>
+<li><a href="https://win11.techidaily.com/reinstating-synapse-control-on-1011-windows-os/"><u>Reinstating Synapse Control on 10/11 Windows OS</u></a></li>
+</ul></div>
 

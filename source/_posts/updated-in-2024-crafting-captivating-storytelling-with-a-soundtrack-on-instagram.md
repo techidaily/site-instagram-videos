@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Crafting Captivating Storytelling with a Soundtrack on Instagram"
-date: 2024-10-04T02:36:40.098Z
-updated: 2024-10-05T06:43:16.176Z
+date: 2024-10-07T16:07:59.856Z
+updated: 2024-10-10T17:31:12.866Z
 tags:
   - ai video
   - ai instagram
@@ -70,6 +70,13 @@ You can tap on the music sticker to change the icon. You can also switch to the 
 
 You can also press the color wheel at the top corner of the screen to adjust the color of music stickers and the lyrics as well.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Add Lyrics to Stories through Instagram Music?
 
 Some songs have options to play music with lyrics to the story. Here is how you can add lyrics.
@@ -109,16 +116,10 @@ When you click on the three dots, you will be presented with a few options; clic
 ![Share Spotify Music to Instagram Story](https://images.wondershare.com/filmora/article-images/share-spotify-music-to-instagram-stories.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
+  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 3: Post**
@@ -143,19 +144,6 @@ When you **select the ellipsis sign,** you will see a few options and an Instagr
 
 The song will be shared to the stories, **make changes you want, and post**.
 
-<!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Method 3: Share Music to Instagram through Apple Music
 
 Apple Music is one of the best music apps which many people use to listen to their favorite songs. It is an iOS app through which you can also post music on Instagram stories. Let's see how to post music through Apple Music on Instagram stories.
@@ -175,13 +163,6 @@ When you click on three vertical dots, you will have a few options. **Click on s
 Note: You might have to click on "More" on some smartphones.
 
 ![Share Apple Music to Instagram Story](https://images.wondershare.com/filmora/article-images/share-apple-music-instagram.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 4: Post on stories**
 
@@ -205,6 +186,13 @@ Once selected, you can edit and customize that video or photo as per your choice
 
 ![Add Music to Filmora](https://images.wondershare.com/filmora/article-images/add-music-to-video-filmorago.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 4: Share the** **Video** **with Music to Instagram**
 
 Finally, you can share your edited Instagram Story Video to your Instagram account right from the app.
@@ -212,23 +200,10 @@ Finally, you can share your edited Instagram Story Video to your Instagram accou
 ![Share video with Music to Ins](https://images.wondershare.com/filmora/article-images/share-video-with-music-to-instagram.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1542129">
-					<video width="864" height="1152" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Frequently Asked Questions About Instagram Music
@@ -247,6 +222,13 @@ If you wish to add music to your Instagram stories, there are many ways to do it
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -262,17 +244,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-5-proven-methods-to-enhance-your-instagram-tv-experience/"><u>[New] 2024 Approved 5 Proven Methods to Enhance Your Instagram TV Experience</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-creating-an-impactful-film-short-summary/"><u>[Updated] Creating an Impactful Film Short Summary</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-mastering-the-art-of-youtube-posts-via-instagram-stories-for-2024/"><u>[Updated] Mastering the Art of YouTube Posts via Instagram Stories for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-the-netgear-nighthawk-rax80-the-ultimate-wi-fi-6-experience/"><u>Comprehensive Review of the Netgear Nighthawk RAX80: The Ultimate Wi-Fi 6 Experience</u></a></li>
-<li><a href="https://techidaily.com/how-to-factory-reset-honor-x7b-in-5-easy-ways-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Honor X7b in 5 Easy Ways | Dr.fone</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/in-2024-master-list-of-vimeo-video-capturers/"><u>In 2024, Master List of Vimeo Video Capturers</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-mastering-instagram-video-length-constraints-explained/"><u>In 2024, Mastering Instagram Video Length Constraints Explained</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-skyrocketing-engagement-on-igtv-with-smart-hash-tagging/"><u>In 2024, Skyrocketing Engagement on IGTV with Smart Hash Tagging</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-youtube-music-arrangement-tips/"><u>In 2024, YouTube Music Arrangement Tips</u></a></li>
-<li><a href="https://games-able.techidaily.com/say-yes-to-quality-gaming-apps-top-5-benefits-of-paid-versions/"><u>Say Yes to Quality Gaming Apps: Top 5 Benefits of Paid Versions</u></a></li>
-<li><a href="https://program-issues.techidaily.com/solution-found-repairing-google-meetings-camera-issues-quickly/"><u>Solution Found: Repairing Google Meeting's Camera Issues Quickly!</u></a></li>
-<li><a href="https://change-location.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-xiaomi-redmi-a2plus-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Xiaomi Redmi A2+ | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-capture-creativity-with-smartphones-best-apps/"><u>[New] Capture Creativity with Smartphones' Best Apps</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-direct-engagement-syncing-instagram-with-facebook-for-2024/"><u>[New] Direct Engagement Syncing Instagram with Facebook for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-reviving-your-stream-tackling-facebook-live-glitches/"><u>[New] Reviving Your Stream Tackling Facebook Live Glitches</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-dine-into-the-digital-age-tiktoks-cutest-eats/"><u>[Updated] Dine Into the Digital Age #Tiktok's Cutest Eats</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-elevating-your-instagram-presence-with-optimized-video-sizes/"><u>[Updated] Elevating Your Instagram Presence with Optimized Video Sizes</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-unlocking-igtvs-potential-secrets-to-attract-more-subscribers/"><u>[Updated] In 2024, Unlocking IGTV's Potential Secrets to Attract More Subscribers</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/1-step-by-step-guide-adding-subtitles-to-your-mp4-files/"><u>1. Step-by-Step Guide: Adding Subtitles to Your MP4 Files</u></a></li>
+<li><a href="https://win-dash.techidaily.com/get-the-newest-hp-printer-driver-software-for-windows-11-users-start-here/"><u>Get the Newest HP Printer Driver Software for Windows 11 Users – Start Here!</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/leveraging-hashtags-and-mentions/"><u>Leveraging Hashtags and Mentions</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/master-the-art-of-fast-instagram-videos-for-2024/"><u>Master the Art of Fast Instagram Videos for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/revamping-your-devices-brain-laptop-cpu-for-improved-speed/"><u>Revamping Your Device’s Brain (Laptop CPU) for Improved Speed</u></a></li>
+<li><a href="https://common-error.techidaily.com/step-by-step-guide-overcoming-windows-update-error-0x800701f/"><u>Step-by-Step Guide: Overcoming Windows Update Error 0X80070#1F</u></a></li>
+<li><a href="https://win-answers.techidaily.com/strategies-to-fix-interrupted-data-flow-and-packet-loss-in-discord-chats/"><u>Strategies to Fix Interrupted Data Flow & Packet Loss in Discord Chats</u></a></li>
 </ul></div>
 

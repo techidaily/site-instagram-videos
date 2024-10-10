@@ -1,7 +1,7 @@
 ---
 title: "[New] Delight in These Top 10 Insta Memes That Spark Joy & Sobs"
-date: 2024-07-25T21:46:47.514Z
-updated: 2024-07-26T21:46:47.514Z
+date: 2024-10-07T16:56:14.529Z
+updated: 2024-10-10T16:22:39.015Z
 tags:
   - ai video
   - ai instagram
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/d021ea19d35ef3673abfe0bc9bdff457eb34791e5
 
 # 10 Best Instagram Meme Accounts to Make You Laugh (with Tears)
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
@@ -37,10 +34,6 @@ thumbnail: https://thmb.techidaily.com/d021ea19d35ef3673abfe0bc9bdff457eb34791e5
 
 ## Part1: 10 best Instagram meme accounts
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ### 1. [memes](https://www.instagram.com/memes/)
 
  Followers - 3 Million
@@ -50,17 +43,18 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 ![memes](https://images.wondershare.com/filmora/article-images/memes-ig.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 2. [7thgrader.s](https://www.instagram.com/7thgrader.s/)
 
  Followers - 5.3 Million
 
  7thgrader.s claims it’s the place to find all of the “most dank funny posts”. They post at least once a day, but you will often find them posting a little off schedule at times.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![7thgrader](https://images.wondershare.com/filmora/article-images/7thgrader-ig.JPG)
 
 ### 3. [memezar](https://www.instagram.com/memezar/)
@@ -69,9 +63,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  Meme is an account dedicating to making and compiling all sorts of memes that are found all over the internet, but especially on Instagram. They post, on average, twice a day.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
-<!-- affiliate ads end -->
 ![CelAction2D](https://images.wondershare.com/filmora/article-images/memezar-ig.JPG)
 
 ### 4. [vines](https://www.instagram.com/vines/)
@@ -80,28 +71,16 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  While the app “Vine” has been taken offline, vines is not – they currently do a lot of meme based videos, some of which were on Vine when it was still useable. These include news clips and other funny videos.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
-<!-- affiliate ads end -->
 ![vines](https://images.wondershare.com/filmora/article-images/vines-ig.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 5. [drunk](https://www.instagram.com/drunk/)
 
  Followers - 5.6 million
 
  This Instagram page claims to be the largest Instagram community of drunk fails and memes – and the site is still going very strong. While there are a lot of drunk memes and fails, you will also find a variety of ordinary memes from around the web.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![drunk](https://images.wondershare.com/filmora/article-images/drunk-ig.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ### 6. [fuckjerry](https://www.instagram.com/fuckjerry/?hl=en)
 
  Followers - 13.9 million
@@ -116,10 +95,14 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  Memerizey is a great meme site that has been developed for the Spanish-speaking Instagram crowd, providing them with their own batches of memes, both popular memes and ones that are specially tailored toward the Spanish speaking community
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![memerizey](https://images.wondershare.com/filmora/article-images/memerizey-ig.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 8. [funnyvideos](https://www.instagram.com/funnyvideos/)
 
@@ -129,22 +112,42 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
 ![funnyvideos](https://images.wondershare.com/filmora/article-images/funnyvideos-ig.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 9. [funnymemes](https://www.instagram.com/funnymemes/)
 
  Followers – 7.9 million
 
  Funnymemes focuses on providing videos and pictures to the Instagram community that are either adaptations of current memes, or they are new memes that they’ve developed. Either way, it’s a fun site that has been getting a lot of attention and that many people follow for the best meme options.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![funnymemes](https://images.wondershare.com/filmora/article-images/funnymemes-ig.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
+  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 10. [swearcasm](https://www.instagram.com/swearcasm/)
 
  Followers – 359 thousand
@@ -154,8 +157,12 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 ![swearcasm](https://images.wondershare.com/filmora/article-images/swearcasm-ig.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 2: Why Are Memes So Popular On Instagram, Anyway
 
  There are so many different reasons that memes have gotten a lot of traction over the years. In fact, they’ve become such a phenomenon that academics are actually starting to research them.
@@ -178,13 +185,18 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
 
 Follow @Ollie Mattison
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -192,3 +204,23 @@ Follow @Ollie Mattison
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-mastering-your-influence-amidst-changing-social-media-ecosystem/"><u>[New] 2024 Approved Mastering Your Influence Amidst Changing Social Media Ecosystem</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-unleash-the-power-of-branded-icons-and-gifs-in-instagram-stories/"><u>[Updated] 2024 Approved Unleash the Power of Branded Icons & GIFs in Instagram Stories</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-crafting-content-12-best-for-insta-edits-for-2024/"><u>[Updated] Crafting Content 12 Best for Insta Edits for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-dive-into-the-world-of-instagram-voice-personalization/"><u>[Updated] Dive Into the World of Instagram Voice Personalization</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-mastering-the-art-of-transferring-instagram-footage-to-pcmac/"><u>[Updated] In 2024, Mastering the Art of Transferring Instagram Footage to PC/Mac</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-charting-your-path-to-youtube-affiliate-status-with-10k-vistas-goal/"><u>2024 Approved Charting Your Path to YouTube Affiliate Status with 10K Vistas Goal</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-elevate-your-posts-with-4-effective-video-loop-techniques/"><u>2024 Approved Elevate Your Posts with 4 Effective Video Loop Techniques</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-smarter-video-sharing-with-igtv-a-guide-to-flipping-videos-right/"><u>2024 Approved Smarter Video Sharing with IGTV A Guide to Flipping Videos Right</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/aukeys-usb-30-hub-unveiled-elegant-design-meets-high-speed-connectivity-reviewed/"><u>Aukey's USB 3.0 Hub Unveiled: Elegant Design Meets High-Speed Connectivity Reviewed</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-pause-life360-location-sharing-for-huawei-nova-y91-drfone-by-drfone-virtual-android/"><u>How To Pause Life360 Location Sharing For Huawei Nova Y91 | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/in-depth-look-at-apples-latest-ipad-releases-m4-pro-large-screen-ipad-air-new-apple-pencil-expert-analysis/"><u>In-Depth Look at Apple's Latest iPad Releases: M4 Pro, Large-Screen iPad Air, New Apple Pencil | Expert Analysis</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-tiktok-velocity-dance-tutorial-filmora-for-2024/"><u>New TikTok Velocity Dance Tutorial| Filmora for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/reasons-for-infinix-smart-7-stuck-on-boot-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Infinix Smart 7 Stuck on Boot Screen and Ways To Fix Them | Dr.fone</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/ultimate-tutorial-on-how-to-use-a-no-cost-dvd-to-ipod-ripping-tool-for-perfect-media-playback/"><u>Ultimate Tutorial on How to Use a No-Cost DVD to iPod Ripping Tool for Perfect Media Playback</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-in-2024-techniques-for-reducing-digital-audio-file-sizes/"><u>Updated In 2024, Techniques for Reducing Digital Audio File Sizes</u></a></li>
+</ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Constructing Unique Instagram Story Panels\""
-date: 2024-10-01T02:54:02.882Z
-updated: 2024-10-05T04:12:41.031Z
+date: 2024-10-09T16:13:29.733Z
+updated: 2024-10-10T16:22:56.838Z
 tags:
   - ai video
   - ai instagram
@@ -63,13 +63,6 @@ Canva provides fully customizable templates for highlight cover, you can drag on
 
 ![Canva highlight cover template](https://images.wondershare.com/filmora/article-images/canva-instagram-highlight-cover-templates.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
-  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 If you choose to create Instagram highlight covers from scratch without a template, you can follow the steps below.
 
 On the design page, click on **Add Page** and then on the upper left side, you will see Background color, click on it and select the color you want to add. Alternatively, you can add your brand's hex code color. For the photos, you can either select a stock image from the Canva, connect your Instagram, or upload your own.
@@ -77,22 +70,21 @@ On the design page, click on **Add Page** and then on the upper left side, you w
 ![Add background to Canva highlight cover](https://images.wondershare.com/filmora/article-images/add-background-highlight-cover.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983551">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 4: Choose an icon or add text**
 
 ![ Canva highlight cover elements](https://images.wondershare.com/filmora/article-images/canva-highlight-cover-elements-library.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Once you have a background color or photo, you can add an icon, emoji, or text. On the left-hand side of the page, click on Elements and then select Graphics. Scroll to check all the graphics or search for a specific one. Select the icon you want to use, and you can even change the color by clicking on the left-hand corner for the colors. To add text on your highlight covers, select the Text tab and add the one you want.
 
@@ -104,7 +96,21 @@ You can make as many highlights covers as you want. Just click on the +Add page 
 
 ![ download  highlight cover ](https://images.wondershare.com/filmora/article-images/download-canva-instagram-highlight-cover.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Once you are done making the Instagram highlight covers and are satisfied with the work, click on the Download button. Choose the file type like PNG or JPG, save your download settings, and hit the Download tab. Your highlight covers download as a zip file. Unzip them and transfer them to your phone via your preferred method.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: How to Upload a Highlight Cover on Instagram
 
@@ -145,10 +151,10 @@ Creating Instagram Highlight Covers is a quick and easy way to maintain your bra
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -166,17 +172,14 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-change-default-image-savings-in-os-x/"><u>[New] Change Default Image Savings in OS X</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-inclusive-iptv-service-distribution-for-2024/"><u>[New] Inclusive IPTV Service Distribution for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-mastering-video-quality-in-obs/"><u>[New] Mastering Video Quality in OBS</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-bold-and-beautiful-implementing-borders-on-instagram-shots/"><u>[Updated] Bold & Beautiful Implementing Borders on Instagram Shots</u></a></li>
-<li><a href="https://extra-information.techidaily.com/updated-click-magic-secrets-to-stunning-polished-pics/"><u>[Updated] Click Magic Secrets to Stunning, Polished Pics</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-navigating-cross-platform-shares-igtv-and-facebook/"><u>[Updated] In 2024, Navigating Cross-Platform Shares IGTV & Facebook</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-investigating-authenticitys-role-in-social-media-selfie-presentation-for-2024/"><u>[Updated] Investigating Authenticity’s Role in Social Media Selfie Presentation for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-leveraging-connected-networks-fb-to-whatsapp-video-sharing-strategies/"><u>2024 Approved Leveraging Connected Networks FB to WhatsApp Video Sharing Strategies</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/avoiding-unauthorized-use-mastering-photowatermarking-on-instagram-for-2024/"><u>Avoiding Unauthorized Use Mastering Photowatermarking on Instagram for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-can-honor-x9bmirror-share-to-pc-drfone-by-drfone-android/"><u>In 2024, How Can Honor X9bMirror Share to PC? | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-zoom-in-to-speed-boosting-video-playback-mobileonline/"><u>In 2024, Zoom in to Speed Boosting Video Playback (Mobile/Online)</u></a></li>
-<li><a href="https://techidaily.com/top-ranking-vpn-solutions-the-ultimate-list/"><u>Top-Ranking VPN Solutions : The Ultimate List</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-mastering-luts-in-photoshop-a-step-by-step-guide/"><u>[New] 2024 Approved Mastering LUTs in Photoshop A Step-by-Step Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-business-boosters-the-ultimate-highlight-enhancement-guide/"><u>[Updated] In 2024, Business Boosters The Ultimate Highlight Enhancement Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-navigating-instagram-copyright/"><u>[Updated] In 2024, Navigating Instagram Copyright</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-intrigue-unboxed-top-websites-where-mystery-boxes-are-sold/"><u>[Updated] Intrigue Unboxed Top Websites Where Mystery Boxes Are Sold</u></a></li>
+<li><a href="https://driver-error.techidaily.com/bluetooth-persists-in-win10-resolution-found/"><u>Bluetooth Persists in Win10: Resolution Found</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-life360-shows-wrong-location-on-samsung-galaxy-a05s-drfone-by-drfone-virtual-android/"><u>How to Fix Life360 Shows Wrong Location On Samsung Galaxy A05s? | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/immediate-visual-effects-with-instagrams-chroma-keying-feature/"><u>Immediate Visual Effects with Instagram’s Chroma Keying Feature</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-ultimate-pre-purchase-checklist-for-your-next-smart-television-discover-the-7-key-points/"><u>The Ultimate Pre-Purchase Checklist for Your Next Smart Television - Discover the 7 Key Points</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/unlocking-the-potential-of-instagrams-sound-symbols/"><u>Unlocking the Potential of Instagram's Sound Symbols</u></a></li>
 </ul></div>
 
