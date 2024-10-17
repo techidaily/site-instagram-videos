@@ -1,7 +1,7 @@
 ---
 title: "Optimizing Your Disco Elysium Adventure: How to Fix PC Crashes & Enjoy the Game Seamlessly"
-date: 2024-10-09T16:43:45.286Z
-updated: 2024-10-10T17:27:09.228Z
+date: 2024-10-09T17:06:37.431Z
+updated: 2024-10-16T21:28:56.297Z
 tags:
   - win11
   - win10
@@ -34,13 +34,6 @@ A screenshot of Ghostwire: Tokyo from Steam
 7. **[Disable Steam Overlay](https://tools.techidaily.com/drivereasy/download/)**
 8. **[Disable third-party antivirus software](https://tools.techidaily.com/drivereasy/download/)**
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Fix 1: Verify the game files
 
  Game file corruption are usually the culprit for the game crashing issues. If you’re not sure if any game files are missing or corrupted on your PC, you can follow the instructions below to verify integrity of game files:
@@ -50,14 +43,14 @@ A screenshot of Ghostwire: Tokyo from Steam
 ![Steam game properties](https://images.drivereasy.com/wp-content/uploads/2021/04/Steam-game-F1-2020-properties.jpg)
 3. Click **LOCAL FILES** on the left, then click **Verify integrity of game files…** . If Steam finds anything wrong with the game files, it will re-download them from its official server.  
 
-![verify the integrity of game files](https://images.drivereasy.com/wp-content/uploads/2021/04/F1-2020-verify-the-integrity-of-game-files.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![verify the integrity of game files](https://images.drivereasy.com/wp-content/uploads/2021/04/F1-2020-verify-the-integrity-of-game-files.jpg)
 
  Depending on the size of the game files, it may take some time to verify all your game files.
 
@@ -73,6 +66,13 @@ A screenshot of Ghostwire: Tokyo from Steam
 
 There’re mainly two ways you can update your graphics drivers:
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Option 1: Manually
 
  You’ll need some computer skills and patience to update your drivers this way, because you need to find exactly the right the driver online, download it and install it step by step.
@@ -87,6 +87,19 @@ There’re mainly two ways you can update your graphics drivers:
  Once you’ve downloaded the correct drivers for your system, double-click on the downloaded file and follow the on-screen instructions to install the driver.
 
 Or
+
+<!-- affiliate ads begin -->
+<span id="1374819">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Option 2: Automatically (Recommended)
 
@@ -133,28 +146,28 @@ Or
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/fortect-1.jpg)
 3. Fortect will scan your computer thoroughly. This may take a few minutes.  
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
+  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/fortect-2.jpg)
 4. Once done, you’ll see a detailed report of all the issues on your PC. To fix them automatically, click**START REPAIR** . This requires you to purchase the full version. But don’t worry. If Fortect doesn’t solve the issue, you can request a refund within 60 days.  
 
-![](https://images.drivereasy.com/wp-content/uploads/2022/01/fortect-3.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![](https://images.drivereasy.com/wp-content/uploads/2022/01/fortect-3.jpg)
 
  Fortect comes with 24/7 Technical Support. If you need any assistance, you can use one of the following:  
 **Email:** <support@fortect.com>  
 **Submit a ticket:** _[https://www.fortect.com/company/contacts/](https://www.reimageplus.com/submit-ticket/)_
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Fix 4: Install the latest game patch
 
@@ -165,10 +178,10 @@ Or
  Run Ghostwire: Tokyo and see if the game crashing issue has been resolved. If it hasn’t, or there was no new game patch available, move on to next fix, below.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Fix 5: Install the latest DirectX files
@@ -185,13 +198,6 @@ Or
 4. Restart your computer and launch the game.
 
  See if Ghostwire: Tokyo crashes again after you installed the latest DirectX file. If this fix didn’t work for you, try the next fix, below.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Fix 6: Stop overclocking
 
@@ -215,16 +221,16 @@ Or
 
 ![disable steam overlay](https://images.drivereasy.com/wp-content/uploads/2021/05/disable-steam-overlay.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  If you’re using other apps with overlay features (e.g. Xbox Game Bar, Discord, Nvidia GeForce Experience, Twitch, etc.), ensure you’ve disabled the in-game overlay in those apps feature.
 
  Launch Ghostwire: Tokyo and see if the it crashes again. If this fix doesn’t work, try the next fix, below.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Fix 8: Disable third-party antivirus software
 
@@ -257,18 +263,18 @@ Or
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-defining-key-indicators-for-high-impact-igtv-videos/"><u>[New] Defining Key Indicators for High-Impact IGTV Videos</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-mastering-instagram-securing-sponsorships-amidst-content-creation/"><u>[New] In 2024, Mastering Instagram Securing Sponsorships Amidst Content Creation</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-expertly-enhance-videos-with-top-10plus-mobile-and-desktop-editors/"><u>[Updated] 2024 Approved Expertly Enhance Videos with Top 10+ Mobile & Desktop Editors</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-overcoming-technical-challenges-with-fb-live-videos/"><u>[Updated] Overcoming Technical Challenges with FB Live Videos</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-instagram-vids-determining-the-perfect-dimensions/"><u>2024 Approved Instagram Vids Determining the Perfect Dimensions</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/apple-iphone-6-plus-asking-for-passcode-after-ios-1714-update-what-to-do-drfone-by-drfone-ios/"><u>Apple iPhone 6 Plus Asking for Passcode after iOS 17/14 Update, What to Do? | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-can-i-use-a-fake-gps-without-mock-location-on-honor-90-gt-drfone-by-drfone-virtual-android/"><u>How Can I Use a Fake GPS Without Mock Location On Honor 90 GT? | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/ideal-images-to-ignite-your-inner-fire/"><u>Ideal Images to Ignite Your Inner Fire</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-10-best-fake-gps-location-spoofers-for-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>In 2024, 10 Best Fake GPS Location Spoofers for Honor X50i+ | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-unleash-your-photo-potential-with-instagram-filters/"><u>In 2024, Unleash Your Photo Potential with Instagram Filters</u></a></li>
-<li><a href="https://win-forum.techidaily.com/step-by-step-process-to-forcefully-eliminate-files-in-windows-11-with-the-help-of-revo-uninstaller/"><u>Step-by-Step Process to Forcefully Eliminate Files in Windows 11 with the Help of Revo Uninstaller</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/top-rated-4k-ultra-hd-projectors-below-2000-ideal-picks-for-your-cinematic-home-setup-in-2eight-fourteen/"><u>Top-Rated 4K Ultra HD Projectors Below $2000 - Ideal Picks for Your Cinematic Home Setup in 2Eight Fourteen</u></a></li>
-<li><a href="https://windows11.techidaily.com/troubleshooting-non-operational-event-viewer/"><u>Troubleshooting Non-Operational Event Viewer</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-advanced-techniques-to-save-snapchat-stories-on-devices-for-2024/"><u>[New] Advanced Techniques to Save Snapchat Stories on Devices for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-comprehensive-guide-to-adding-music-icons-in-instagram-posts/"><u>[New] Comprehensive Guide to Adding Music Icons in Instagram Posts</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-premier-hashtags-monitoring-on-facebook-twitter-and-instagram-for-2024/"><u>[New] Premier Hashtags Monitoring on Facebook, Twitter & Instagram for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-size-your-content-smartly-video-tips-for-instagram-excellence/"><u>[Updated] 2024 Approved Size Your Content Smartly Video Tips for Instagram Excellence</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-beyond-ustream-live-stream-platforms-reviewed/"><u>[Updated] Beyond Ustream Live Stream Platforms Reviewed</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-soundtracks-for-snaps-a-guide-to-video-audio-selection/"><u>[Updated] In 2024, Soundtracks for Snaps A Guide to Video Audio Selection</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-organizing-epics-implementing-chapters-in-vimeo-media-for-2024/"><u>[Updated] Organizing Epics Implementing Chapters in Vimeo Media for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-great-gopro-race-hero5-black-vs-hero4-silver-edition/"><u>[Updated] The Great GoPro Race Hero5 Black V/S Hero4 Silver Edition</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-from-unknown-to-famous-boosting-video-views-on-youtube-step-by-step/"><u>2024 Approved From Unknown to Famous Boosting Video Views on YouTube Step-by-Step</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/5-ways-to-track-apple-iphone-15-pro-max-without-app-drfone-by-drfone-virtual-ios/"><u>5 Ways to Track Apple iPhone 15 Pro Max without App | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/craft-corporate-emblems-from-available-graphic-samples-for-2024/"><u>Craft Corporate Emblems From Available Graphic Samples for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/latest-lenovo-webcam-driver-update-for-windows-7-systems/"><u>Latest Lenovo Webcam Driver Update for Windows 7 Systems</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/panoramic-insights-digest/"><u>Panoramic Insights Digest</u></a></li>
 </ul></div>
 

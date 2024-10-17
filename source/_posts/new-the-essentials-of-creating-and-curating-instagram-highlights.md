@@ -1,7 +1,7 @@
 ---
 title: "[New] The Essentials of Creating and Curating Instagram Highlights"
-date: 2024-10-04T16:22:09.568Z
-updated: 2024-10-10T16:20:42.607Z
+date: 2024-10-09T23:55:26.347Z
+updated: 2024-10-16T23:29:10.201Z
 tags:
   - ai video
   - ai instagram
@@ -37,6 +37,13 @@ Story Highlights allows you to display all sides of your personality, and you ca
 
 An amazing feature of Instagram highlights is that you can group your stories into sections and create them as folder sections (i.e highlights) on your profile. Once you post a story, you can save it in a Highlight (which is like a folder) and that will automatically be featured on your profile permanently until you decide to delete it or archive it. With this tool, you can design your profile in a unique way that best expresses you.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Create Instagram Highlights from Stories Archive?
 
 As mentioned above, Highlights are created through your Stories. You have two options for creating a Highlight. The first is that you either create a Highlight from a current Story or your Stories Archive.
@@ -48,6 +55,13 @@ Your Stories Archive is a feature that when enabled, ensures your Stories are au
 3. Scroll down till you see **Saving,** then turn on **Save story to archive.**
 
 ![ Instagram Highlight Archive](https://images.wondershare.com/filmora/article-images/save-story-to-archive-instagram.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 If you choose to create Highlights from your Stories archive, this is how you go about it:
 
@@ -67,13 +81,6 @@ Another way to create a highlight from archived stories is by;
 * Click **Add,** and then you are done creating a highlight.
 
 Above are the ways to create highlights on Instagram from Archive. They are pretty easy as long as you follow instructions correctly.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: How to Add New Stories to a Highlight?
 
@@ -95,10 +102,10 @@ You can choose to create a highlight from your current Story, all you need to do
 * Click on the **plus** **sign** if you want to create a new highlight, customize the name of the highlight and click
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: How to Delete Instagram Highlights?
@@ -116,10 +123,10 @@ If for instance, you decide that you want to remove some stories from a highligh
 * Click **Remove highlight,** then you are done!
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## FAQs About Instagram Highlights
@@ -152,13 +159,6 @@ attire need to be easy to find. You create a Highlight that you refer them to so
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -174,21 +174,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-uncomplicated-steps-to-record-instagrams-story-feed-for-2024/"><u>[New] Uncomplicated Steps to Record Instagram's Story Feed for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-seamless-tactic-for-igtv-stories-integration/"><u>[Updated] 2024 Approved Seamless Tactic for IGTV Stories Integration</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-instagram-reels-borrow-tips-and-tricks-from-tiktok-to-go-viral/"><u>[Updated] Instagram Reels Borrow Tips & Tricks From TikTok to Go Viral</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-the-secret-to-stylish-borders-in-instagram-visuals/"><u>[Updated] The Secret to Stylish Borders in Instagram Visuals</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-unseen-but-not-untouched-instagram-guide/"><u>2024 Approved Unseen but Not Untouched Instagram Guide</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/acid-pro-a-deep-dive-and-competitive-matchups-for-2024/"><u>ACID Pro A Deep Dive & Competitive Matchups for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/discover-10-leading-online-video-editors-android-pc/"><u>Discover 10 Leading Online Video Editors (Android, PC)</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/expert-analysis-of-the-jaco-smartpro-digital-tire-pump-your-compact-high-power-solution-reviewed/"><u>Expert Analysis of the Jaco SmartPro Digital Tire Pump: Your Compact, High-Power Solution Reviewed</u></a></li>
-<li><a href="https://win-blog.techidaily.com/fixing-dead-by-daylights-troublesome-error-code-ebd8014-methods-and-advice/"><u>Fixing Dead by Daylight's Troublesome Error Code Ebd8014: Methods and Advice</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/1716168997254-how-to-edit-vertical-videos-for-instagram-in-final-cut-pro-x-for-2024/"><u>How to Edit Vertical Videos for Instagram in Final Cut Pro X for 2024</u></a></li>
-<li><a href="https://techidaily.com/how-to-recover-lost-data-of-apple-iphone-xs-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How To Recover Lost Data of Apple iPhone XS? | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-mastering-instagram-fcpxs-guide-to-vertical-video-editing/"><u>In 2024, Mastering Instagram FCPX's Guide to Vertical Video Editing</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/is-your-apple-iphone-7-plus-in-security-lockout-proper-ways-to-unlock-drfone-by-drfone-ios/"><u>Is Your Apple iPhone 7 Plus in Security Lockout? Proper Ways To Unlock | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/premium-soundscapes-gpodc-recommendations-for-2024/"><u>Premium Soundscapes GPodC Recommendations for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/resolving-no-response-from-your-dns-server-try-these-top-4-tips/"><u>Resolving No-Response From Your DNS Server? Try These Top 4 Tips!</u></a></li>
-<li><a href="https://win-cheats.techidaily.com/ultimate-tutorial-on-securely-downloading-nbc-content-for-personal-collection/"><u>Ultimate Tutorial on Securely Downloading NBC Content for Personal Collection</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-enrich-user-experience-on-stories-via-interactive-qandas/"><u>[New] 2024 Approved Enrich User Experience on Stories via Interactive Q&As</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-how-to-speed-up-video-on-instagram-mobileonlinedesktop-solutions/"><u>[New] 2024 Approved How to Speed Up Video on Instagram [Mobile/Online/Desktop Solutions]</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-navigate-instagram-video-problems-with-ease/"><u>[New] 2024 Approved Navigate Instagram Video Problems with Ease</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-farm-fun-family-top-10-games-bringing-groups-of-friends-closer-to-farms/"><u>[New] In 2024, Farm Fun Family Top 10 Games Bringing Groups of Friends Closer to Farms</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-your-first-steps-for-youtube-earning-8-methods/"><u>[New] In 2024, Your First Steps for YouTube Earning - 8 Methods</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/20-most-reliable-hashtag-tracker-tools-fbtwitterinsta-for-2024/"><u>20 Most Reliable Hashtag Tracker Tools (FB/Twitter/Insta) for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-igtvs-power-boosters-crafting-viral-hash-tags/"><u>2024 Approved IGTV's Power Boosters Crafting Viral Hash Tags</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-the-art-of-patience-mastering-the-craft-of-producing-captivating-slow-motion-videos-and-photos-for-instagram/"><u>2024 Approved The Art of Patience Mastering the Craft of Producing Captivating Slow Motion Videos and Photos for Instagram</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/expert-email-creation-and-streamlined-inbox-reviews-discover-5-free-ai-tools-featuring-chatgpt-technology/"><u>Expert Email Creation & Streamlined Inbox Reviews: Discover 5 Free AI Tools Featuring ChatGPT Technology</u></a></li>
+<li><a href="https://win-forum.techidaily.com/guaranteed-permanent-deletion-of-files-on-windows-11-expert-methods-revealed/"><u>Guaranteed Permanent Deletion of Files on Windows 11: Expert Methods Revealed</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-fix-ipad-or-iphone-11-stuck-on-activation-lock-by-drfone-ios/"><u>How to Fix iPad or iPhone 11 Stuck On Activation Lock?</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-easy-transition-integrating-snapchat-with-macos/"><u>In 2024, Easy Transition Integrating Snapchat with macOS</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-top-screen-picks-for-professional-image-enhancers/"><u>In 2024, Top Screen Picks for Professional Image Enhancers</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/top-6-ways-to-transfer-text-messages-from-oppo-reno-9a-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 6 Ways to Transfer Text Messages from Oppo Reno 9A to Other Android Devices | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/understanding-artificei-intelligence-a-beginners-guide/"><u>Understanding ArtificeI Intelligence: A Beginner's Guide</u></a></li>
 </ul></div>
 

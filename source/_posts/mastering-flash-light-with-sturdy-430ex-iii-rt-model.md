@@ -1,7 +1,7 @@
 ---
 title: Mastering Flash Light with Sturdy 430EX III-RT Model
-date: 2024-10-08T16:57:39.804Z
-updated: 2024-10-10T17:00:38.979Z
+date: 2024-10-11T16:33:09.436Z
+updated: 2024-10-16T16:25:26.581Z
 categories:
   - BestProducts
 description: This Article Describes Mastering Flash Light with Sturdy 430EX III-RT Model
@@ -42,6 +42,19 @@ Lifewire / Claire Cohen
 
 ![Motorola MG7700](https://www.lifewire.com/thmb/3X3Cjz1mO5USWmPRXT1W5zSdqOE=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/hero-4082541-3-2-5c8fadb846e0fb00014a9735.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1328683">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Claire Cohen
 
 [View On Walmart $249](https://www.walmart.com/ip/652216495) [View On Best Buy $36](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2F6298663.p)
@@ -66,6 +79,13 @@ Lifewire / Claire Cohen
 
  We recently reviewed the MG7700 to examine just how well it would perform in an average home environment by evaluating the design, ease of setup, network speeds, and software features.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Design: Simple and functional
 
  The Motorola MG7700 is fairly compact at 9.1 x 2.6 x 2.6 inches with a gray finish and a black stand. On the front of the device, you’ll find several indicator lights that tell you if it’s powered up, whether any traffic is flowing through your network, and if people are connected to your wireless network. The light indicators are easy to see and understand — something you don’t typically find in a modem from your cable company.
@@ -82,6 +102,19 @@ Lifewire / Claire Cohen
 
  The Best Cable Modems on the Market
 
+<!-- affiliate ads begin -->
+<span id="1424533">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Setup Process: Location, location, location
 
  Since the Motorola MG7700 is a combined cable modem and router, you’ll need to plug it into[your ISP’s coaxial cable](https://www.lifewire.com/introduction-to-network-cables-817868) in order to pipe Internet into your home. This can limit your placement locations a bit since coax cables are often installed by your provider in less-than-ideal locations, especially if you live in an apartment building.
@@ -92,13 +125,6 @@ Lifewire / Claire Cohen
 
 ![Motorola 7700](https://www.lifewire.com/thmb/RfuGGYo_UZvzWOQw8Rb7KZnMkhs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-3-1-5c8faf2dc9e77c00014a9db2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Claire Cohen
 
  A last but vital thing to know: Motorola’s branding for the device makes clear that it’s designed for Comcast Xfinity, Cox, and Spectrum. If you don’t use one of those ISP carriers, your modem won’t work on the network.
@@ -106,10 +132,16 @@ Lifewire / Claire Cohen
  Information about approved third-party equipment can usually be found on your cable provider’s website. If not, it’s best to call and ask before you buy. We were able to set it up on Spectrum without any trouble.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Connectivity: The latest standards
@@ -138,13 +170,6 @@ Lifewire / Claire Cohen
 
 ![Motorola MG7700](https://www.lifewire.com/thmb/pHbG256tJv_ubRtv-HdKUka66IA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-3-3-5c8fb059c9e77c0001a926bf.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Claire Cohen
 
  If you have a large home like us and need stronger, more reliable speeds for numerous devices, some routers come with tri-band instead of the dual-band technology you’ll find in the MG7700\. These routers have an extra 5GHz band which translates to faster speeds, more bandwidth, and the ability to connect more devices at the same time. You can also purchase a Wi-Fi extender, so your signal can extend and reach all the dead areas, but those are sometimes finicky to set up.
@@ -152,28 +177,15 @@ Lifewire / Claire Cohen
  Overall, if you live in a large apartment or a modestly-sized home, you won’t be disappointed by the performance of the MG7700.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
-  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Software: User-friendly options
 
  The MG7700’s built-in software is customizable, too. Once your router is set up, you can go to a specified IP address (the instructions will tell you which one) in your Web browser to change settings, including the name of the default network, enabling password protection, toggling the channels your router will communicate on, and more. There’s also an Advanced page that allows you to set up a[firewall](https://www.lifewire.com/definition-of-firewall-817568) or enable parental controls. Overall, the settings are well laid out, easy to understand, and simple to change.
-
-<!-- affiliate ads begin -->
-<span id="1531879">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Price: Good value for the speed
 
@@ -238,17 +250,18 @@ Lifewire / Claire Cohen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-faster-than-light-instagram-video-experience-for-mobile-users/"><u>[New] In 2024, Faster-Than-Light Instagram Video Experience for Mobile Users</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-crafting-instagram-content-with-visual-flair/"><u>[Updated] 2024 Approved Crafting Instagram Content with Visual Flair</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-get-more-from-instagram-reels-top-8-downloaders-at-no-cost/"><u>[Updated] 2024 Approved Get More From Instagram Reels - Top 8 Downloaders at No Cost</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-cutting-through-the-clutter-how-to-stream-top-notch-upside-down-content-on-youtube-for-2024/"><u>[Updated] Cutting Through the Clutter How to Stream Top-Notch Upside-Down Content on Youtube for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-peering-into-popularity-instagram-analytics-for-you/"><u>[Updated] Peering Into Popularity Instagram Analytics for You</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/fovitec-spk10-037-softbox-lighting-kit-review-bright-and-versatile/"><u>Fovitec SPK10-037 Softbox Lighting Kit Review: Bright and Versatile</u></a></li>
-<li><a href="https://driver-download.techidaily.com/how-to-perform-amd-graphics-card-updates-on-windows-10-11-and-7/"><u>How to Perform AMD Graphics Card Updates on Windows 10, 11 & 7</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/in-2024-youtube-shorts-fund-how-to-maximize-your-earnings/"><u>In 2024, YouTube Shorts Fund How to Maximize Your Earnings</u></a></li>
-<li><a href="https://android-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-htc-u23-phone-frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your HTC U23 Phone FRP Lock</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/perfect-practices-in-livestreaming-athletic-competitions-for-2024/"><u>Perfect Practices in Livestreaming Athletic Competitions for 2024</u></a></li>
-<li><a href="https://win11.techidaily.com/resolving-steam-login-delays-windows-and-rust-edition/"><u>Resolving Steam Login Delays: Windows & Rust Edition</u></a></li>
-<li><a href="https://win-blog.techidaily.com/resolving-the-starfield-games-excessive-cpu-drain-top-tips-and-tricks-for-2ndv4lry-performance/"><u>Resolving the Starfield Game's Excessive CPU Drain: Top Tips & Tricks for 2nDv4lry Performance</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-ephemeral-film-sculptor/"><u>[New] 2024 Approved Ephemeral Film Sculptor</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-mastering-instagram-boost-your-following/"><u>[New] 2024 Approved Mastering Instagram Boost Your Following</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-scene-selection-mastery-livestreams/"><u>[New] Scene Selection Mastery Livestreams</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-aggregate-video-pieces-into-lists-for-2024/"><u>[Updated] Aggregate Video Pieces Into Lists for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-taking-your-reels-up-a-notch-with-these-top-editors/"><u>[Updated] Taking Your Reels Up a Notch with These Top Editors</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-streamlining-your-instagram-archive-with-ease/"><u>2024 Approved Streamlining Your Instagram Archive with Ease</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/discover-the-best-8-chatgpt-extensions-for-your-fitness-journey/"><u>Discover the Best 8 ChatGPT Extensions for Your Fitness Journey</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/efficiently-shifting-huge-video-files-from-iphone-to-mac/"><u>Efficiently Shifting Huge Video Files From iPhone to Mac</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/forefront-ai-or-chatgpt-exploring-differences-and-benefits/"><u>Forefront AI or ChatGPT? Exploring Differences and Benefits</u></a></li>
+<li><a href="https://win-dash.techidaily.com/get-updated-logitech-g35-device-drivers-for-various-windows-versions/"><u>Get Updated Logitech G35 Device Drivers for Various Windows Versions</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-vivo-x-flip-to-pc-drfone-by-drfone-android/"><u>How to Screen Mirroring Vivo X Flip to PC? | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-speeding-up-instagram-content-consumption/"><u>In 2024, Speeding Up Instagram Content Consumption</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/with-originality-10-tips-to-make-your-yt-shorts-shine-for-2024/"><u>Lead With Originality 10 Tips to Make Your YT Shorts Shine for 2024</u></a></li>
 </ul></div>
 

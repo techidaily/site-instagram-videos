@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] SnapSizeSecrets  Perfecting Photo and Video Sizes in Instagram\""
-date: 2024-10-05T16:20:59.156Z
-updated: 2024-10-10T16:01:09.412Z
+date: 2024-10-11T19:52:17.694Z
+updated: 2024-10-16T23:35:59.235Z
 tags:
   - ai video
   - ai instagram
@@ -46,10 +46,10 @@ Duration of Videos on Instagram
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Best Image Sizes for Instagram Posts
@@ -61,10 +61,10 @@ A couple of years ago, Instagram has finally allowed its users to upload images 
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
@@ -92,10 +92,10 @@ The profile pictures on Instagram are tiny, and the optimum size for them is 160
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -113,24 +113,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-decoding-the-mysteries-of-effective-youtube-keywords/"><u>[New] 2024 Approved Decoding the Mysteries of Effective YouTube Keywords</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-flip-the-script-how-to-turn-your-instagram-visuals-into-viral-stars/"><u>[New] 2024 Approved Flip the Script How to Turn Your Instagram Visuals Into Viral Stars</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-expert-review-of-powerdirector-apps-latest-edition-2024/"><u>[New] Expert Review of PowerDirector App's Latest Edition - 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-expert-techniques-to-make-the-most-of-instagrams-question-marker/"><u>[New] In 2024, Expert Techniques to Make the Most of Instagram's Question Marker</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-transform-your-visuals-instagram-video-borders/"><u>[Updated] 2024 Approved Transform Your Visuals Instagram Video Borders</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-final-cuts-vertical-voyage-editing-for-the-modern-instagram-reader/"><u>2024 Approved Final Cut's Vertical Voyage Editing for the Modern Instagram Reader</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-from-high-speed-to-leisurely-the-pathway-to-stellar-ig-reel-slow-motion/"><u>2024 Approved From High-Speed to Leisurely The Pathway to Stellar IG Reel Slow Motion</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-streamlining-your-youtube-music-journey/"><u>2024 Approved Streamlining Your YouTube Music Journey</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-the-deceptive-consequences-of-genuine-popularity-illusions/"><u>2024 Approved The Deceptive Consequences of Genuine Popularity Illusions</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/bridging-the-gap-between-youtube-and-instagram-stories-effectively-for-2024/"><u>Bridging the Gap Between YouTube & Instagram Stories Effectively for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/essential-tips-for-successfully-whitelisting-your-contact-information-in-email-marketing/"><u>Essential Tips for Successfully Whitelisting Your Contact Information in Email Marketing</u></a></li>
-<li><a href="https://fox-info.techidaily.com/exploring-the-ai-driven-shooting-modes-in-todays-cameras/"><u>Exploring the AI-Driven Shooting Modes in Today's Cameras</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-how-to-add-stickers-to-instagram-story-and-post/"><u>In 2024, How to Add Stickers to Instagram Story and Post?</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-instagram-tv-essentials-step-by-step-upload-guide/"><u>In 2024, Instagram TV Essentials Step-by-Step Upload Guide</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-techniques-for-depicting-realism-in-docuscripts/"><u>In 2024, Techniques for Depicting Realism in Docuscripts</u></a></li>
-<li><a href="https://techidaily.com/introducing-chatgpts-new-stealth-modes-privacy-enhanced-conversations/"><u>Introducing ChatGPT's New Stealth Modes: Privacy Enhanced Conversations</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/rootjunky-apk-to-bypass-google-frp-lock-for-xiaomi-redmi-k70-by-drfone-android/"><u>Rootjunky APK To Bypass Google FRP Lock For Xiaomi Redmi K70</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/the-economics-of-youtube-marketing-strategies-for-2024/"><u>The Economics of YouTube Marketing Strategies for 2024</u></a></li>
-<li><a href="https://driver-error.techidaily.com/usb-serial-linkup-windows-system-recovery-tips/"><u>USB Serial Linkup: Windows System Recovery Tips</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-bridging-platforms-posting-igtv-on-facebook-efficiently/"><u>[New] 2024 Approved Bridging Platforms Posting IGTV on Facebook Efficiently</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-your-step-by-step-guide-to-previewing-your-off-facebook-life-for-2024/"><u>[New] Your Step by Step Guide to Previewing Your Off-Facebook Life for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-vimeo-create-how-to-edit-videos-on-vimeo-for-free/"><u>[Updated] 2024 Approved Vimeo Create How to Edit Videos on Vimeo for Free?</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-superior-selection-winning-16-free-video-tools/"><u>[Updated] In 2024, Superior Selection Winning 16 Free Video Tools</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-protecting-melodies-on-instagram/"><u>2024 Approved Protecting Melodies on Instagram</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-snapit-share-it-in-order-on-ig/"><u>2024 Approved SnapIt, Share It in Order on IG</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-flash-dead-xiaomi-redmi-12-5g-safely-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Flash Dead Xiaomi Redmi 12 5G Safely | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-illuminate-images-top-3-methods-for-captivating-comments/"><u>In 2024, Illuminate Images Top 3 Methods for Captivating Comments</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-instagram-video-editor-how-to-edit-instagram-videos/"><u>In 2024, Instagram Video Editor How to Edit Instagram Videos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-melodies-that-matter-instagram-music-guide/"><u>In 2024, Melodies that Matter Instagram Music Guide</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/simple-steps-to-make-ipad-screen-captures-a-breeze-for-2024/"><u>Simple Steps to Make iPad Screen Captures a Breeze for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/top-gpus-for-ultra-hd-playback/"><u>Top GPUs for Ultra HD Playback</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/unveiling-the-secrets-of-skipping-content-on-tiktok/"><u>Unveiling the Secrets of Skipping Content on TikTok</u></a></li>
 </ul></div>
 

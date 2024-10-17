@@ -1,7 +1,7 @@
 ---
 title: Compact and Dependable Audew Portable Air Compressor - In-Depth Product Evaluation
-date: 2024-10-06T17:49:46.779Z
-updated: 2024-10-10T16:45:20.338Z
+date: 2024-10-09T20:01:38.744Z
+updated: 2024-10-16T18:22:24.649Z
 categories:
   - BestProducts
 description: This Article Describes Compact and Dependable Audew Portable Air Compressor - In-Depth Product Evaluation
@@ -37,16 +37,16 @@ Lifewire / Jeffrey Daniel Chadwick
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Kensun AC/DC Portable Air Pump Tire Inflator
 
 ![Kensun Portable Tire Inflator](https://www.lifewire.com/thmb/MEKNaqKs5klEYPtoc5EGv7lAyJU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/KensunPortableTireInflator_HeroSquare-c74ce1562bed43b897087fa89d11df23.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Jeffrey Daniel Chadwick
 
@@ -93,10 +93,16 @@ Lifewire / Jeffrey Daniel Chadwick
  Lifewire / Jeffrey Daniel Chadwick
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup Process: T-minus one minute**
@@ -104,6 +110,13 @@ Lifewire / Jeffrey Daniel Chadwick
  Once you’ve read the user manual, you’ll know how to use the Kensun portable tire inflator. Nevertheless, you’ll want to do some test runs before you take it on the road. During our testing phase, we timed how long it takes from getting out of the car to the pump inflating one of our tires. It took about one minute, which is good time if you’re on the side of the highway with an unexpected flat.
 
  Lifewire / Jeffrey Daniel Chadwick
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: Reliable, accurate, quick and loud**
 
@@ -130,10 +143,10 @@ Lifewire / Jeffrey Daniel Chadwick
  The Kensun Portable Tire Inflator has an MSRP of $80 on Amazon, which is a good price for what you get. It’s not nearly as affordable as some budget models we’ve seen, such as the Audew Portable Air Compressor Pump, which will only run you $40, but it gives you the convenience of not having to be tethered to your car to inflate something.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
-  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Kensun Portable Tire Inflator vs. Jaco Digital Tire Inflator**
@@ -149,13 +162,6 @@ Lifewire / Jeffrey Daniel Chadwick
  **A portable tire inflator that can work well in a car or at home.**
 
  The Kensun Portable Tire Inflator is a great choice to keep in your truck, garage, or wherever you keep your “just-in-case” supplies. It’s a device that is as necessary for drivers as jumper cables and an emergency flashlight. You can count on it to be reliable when you need it, and fill your tires quickly and accurately. Plus, the added benefit of being able to plug it into your wall can’t be overstated. It has its foibles, but in the grand scheme of things, they’re minor inconveniences.
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -182,18 +188,17 @@ Lifewire / Jeffrey Daniel Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-accelerating-instagram-videos-quick-tips/"><u>[New] 2024 Approved Accelerating Instagram Videos Quick Tips</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-superior-methods-transforming-pinterest-visuals-into-audios/"><u>[New] 2024 Approved Superior Methods Transforming Pinterest Visuals Into Audios</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-expert-tips-for-flipping-video-courses-on-instagram/"><u>[New] In 2024, Expert Tips for Flipping Video Courses on Instagram</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-gopro-hero-5-black-vs-nikon-keymission-170-which-one-is-better-for-2024/"><u>[Updated] GoPro Hero 5 Black vs Nikon Keymission 170 Which One Is Better for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-navigating-through-instagrams-new-trends-for-2024/"><u>[Updated] Navigating Through Instagram's New Trends for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-making-magic-transforming-ordinary-posts-into-social-sensations/"><u>2024 Approved Making Magic Transforming Ordinary Posts Into Social Sensations</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-transform-your-feed-a-comprehensive-guide-to-videos/"><u>2024 Approved Transform Your Feed A Comprehensive Guide to Videos</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/chase-laughter-and-tears-on-instagram-with-these-10-feeds-for-2024/"><u>Chase Laughter & Tears on Instagram with These 10 Feeds for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/experience-unmatched-dual-cpu-cooling-performance-with-silverstones-latest-aio-marvel-the-xe360-dual/"><u>Experience Unmatched Dual CPU Cooling Performance with SilverStone’s Latest AIO Marvel: The XE360-Dual</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-expert-strategies-for-flawless-green-screen-videos/"><u>In 2024, Expert Strategies for Flawless Green-Screen Videos</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-life360-from-tracking-you-on-xiaomi-13-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Life360 from Tracking You On Xiaomi 13 Ultra? | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-step-by-step-tips-for-green-screen-cinematography-success/"><u>In 2024, Step-by-Step Tips for Green Screen Cinematography Success</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/the-ultimate-guide-to-free-image-editor-apps/"><u>The Ultimate Guide to Free Image Editor Apps</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-creating-music-from-videos-instagrams-secret-sauce/"><u>[New] In 2024, Creating Music From Videos Instagram's Secret Sauce</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-mastering-instagrams-musical-licensing-landscape/"><u>[New] In 2024, Mastering Instagram's Musical Licensing Landscape</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-crafting-captivating-content-the-instagram-reel-way/"><u>[Updated] Crafting Captivating Content The Instagram Reel Way</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-boosting-viewership-and-fanship-through-strategic-igtv-hashtag-use/"><u>[Updated] In 2024, Boosting Viewership and Fanship Through Strategic IGTV Hashtag Use</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-undercover-instagram-story-experience-top-5-tools/"><u>[Updated] In 2024, Undercover Instagram Story Experience, Top 5 Tools</u></a></li>
+<li><a href="https://blog-min.techidaily.com/44cm44os44oz44k44or44ot44oh44kq57sb5asx5b6m44gu5luj6yer6lplus95yqgic0g44ky44kq44go44oe44k44ok44gu5yplusw44kk5rg644kb44ks55plusl44kl44g544gn44gt44go44gv77yf4131/"><u>「レンタルビデオ紛失後の代金追加 - ゲオとツタヤの取り決めを知るべきことは？」</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/2024-approved-explore-these-10-unique-tiktok-video-effects/"><u>2024 Approved Explore These 10 Unique TikTok Video Effects</u></a></li>
+<li><a href="https://common-error.techidaily.com/guide-activating-windows-7-bluetooth-connectivity-solutions-unveiled/"><u>Guide: Activating Windows 7 Bluetooth Connectivity - Solutions Unveiled</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-fix-speaker-setup-unknown-on-windows-10/"><u>How to Fix Speaker Setup (Unknown) on Windows 10</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/how-to-fix-the-driver-verifier-checksum-violation-bluescreen-on-your-pc-running-windows/"><u>How to Fix the Driver Verifier Checksum Violation Bluescreen on Your PC Running Windows #</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolving-common-problems-with-igfx-embedded-modules-a-comprehensive-guide/"><u>Resolving Common Problems with iGFX Embedded Modules - A Comprehensive Guide</u></a></li>
+<li><a href="https://win-workspace.techidaily.com/step-by-step-guide-uncovering-stealthy-keylogging-threats-on-your-windows-machine-via-keylogger-scanning-software/"><u>Step-by-Step Guide: Uncovering Stealthy Keylogging Threats on Your Windows Machine via Keylogger Scanning Software</u></a></li>
 </ul></div>
 
