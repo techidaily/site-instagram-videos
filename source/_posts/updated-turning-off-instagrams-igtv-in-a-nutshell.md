@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Turning Off Instagram's IGTV in a Nutshell"
-date: 2024-10-03T17:42:28.400Z
-updated: 2024-10-10T18:00:29.695Z
+date: 2024-10-19T16:19:58.555Z
+updated: 2024-10-22T17:05:24.384Z
 tags:
   - ai video
   - ai instagram
@@ -34,10 +34,10 @@ thumbnail: https://thmb.techidaily.com/fb708f6b02bb2770894398e8943ab9eb4326fec35
  Select the **Push Notifications option**, and then scroll all the way down to the **IGTV Video Updates section** of the Push Notifications menu. Tap on the **Off** option, and you’re done, you’ll no longer receive notifications from IGTV. If at any point you change your mind and you decide that you want to receive notifications from IGTV you can return to the Push Notifications menu and select the **From People I Follow** or **From Everyone** option in the IGTV Video Update section of the Push Notifications menu.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Hide IGTV Videos?
@@ -55,16 +55,10 @@ thumbnail: https://thmb.techidaily.com/fb708f6b02bb2770894398e8943ab9eb4326fec35
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1531879">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -82,20 +76,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-understanding-and-executing-photo-gender-modification-across-platforms/"><u>[New] 2024 Approved Understanding and Executing Photo Gender Modification Across Platforms</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-quick-step-by-step-guide-for-youtube-audio-in-imovie/"><u>[New] In 2024, Quick Step-by-Step Guide for YouTube Audio in iMovie</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-instagrams-most-reliable-grid-creation-tools-countdown-to-top-ten/"><u>[New] Instagram's Most Reliable Grid Creation Tools, Countdown to Top Ten</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-top-tech-gadgets-for-effortless-virtual-meetings-capture/"><u>[New] Top Tech Gadgets for Effortless Virtual Meetings Capture</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-best-hidden-instagram-tool-for-clandestine-stories/"><u>[Updated] 2024 Approved Best Hidden Instagram Tool for Clandestine Stories</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-effortless-visual-transitions-using-instagram-chroma-keying-for-2024/"><u>[Updated] Effortless Visual Transitions Using Instagram Chroma Keying for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-harnessing-pip-feature-a-comprehensive-guide/"><u>[Updated] Harnessing PIP Feature A Comprehensive Guide</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-the-top-gains-on-social-media-secure-and-scalable-tactics/"><u>[Updated] In 2024, The Top Gains on Social Media - Secure & Scalable Tactics</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/updated-integrating-unique-emojis-to-your-discord-profile-for-2024/"><u>[Updated] Integrating Unique Emojis to Your Discord Profile for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-iphoneandroid-5-tactics-for-downloading-igtv-for-2024/"><u>[Updated] IPhone/Android 5 Tactics for Downloading IGTV for 2024</u></a></li>
-<li><a href="https://discover-dash.techidaily.com/dvd-drmdvd/"><u>簡單指南：迅速取消DVD DRM保護並進行DVD備份</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/academic-engagement-lecture-capture-via-mac-computers-for-2024/"><u>Academic Engagement Lecture Capture via Mac Computers for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/blending-binaries-digital-photographic-techniques/"><u>Blending Binaries Digital Photographic Techniques</u></a></li>
-<li><a href="https://fox-links.techidaily.com/close-up-magic-avoiding-distance-blur-on-videoleap/"><u>Close-Up Magic Avoiding Distance Blur on Videoleap</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/delete-gmail-account-withwithout-password-on-oppo-a58-4g-by-drfone-android/"><u>Delete Gmail Account With/Without Password On Oppo A58 4G</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-top-10-best-apps-for-editing-igtv-vertical-videos/"><u>[New] 2024 Approved Top 10 Best Apps for Editing IGTV Vertical Videos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-instagram-story-and-reels-transform-your-vocal-brand-with-these-tricks/"><u>[Updated] 2024 Approved Instagram Story & Reels Transform Your Vocal Brand with These Tricks</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-quicken-video-playback-on-instagram-apps/"><u>[Updated] 2024 Approved Quicken Video Playback on Instagram Apps</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-explore-the-best-free-tools-to-shorten-youtube-videos-for-2024/"><u>[Updated] Explore the Best Free Tools to Shorten YouTube Videos for 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-in-2024-transitioning-smoothly-from-your-discord-networks/"><u>[Updated] In 2024, Transitioning Smoothly From Your Discord Networks</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-learning-luminaries-leading-ed-tutorials-online/"><u>[Updated] Learning Luminaries Leading Ed Tutorials Online</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-inside-outlooks-of-instagram-stories-consumers/"><u>2024 Approved Inside Outlooks of Instagram Stories Consumers</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-unlock-apple-id-from-your-apple-iphone-6s-plus-without-security-questions-by-drfone-ios/"><u>How to Unlock Apple ID From your Apple iPhone 6s Plus without Security Questions?</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-samsung-galaxy-m14-4g-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed Guide on Faking Your Location in Mozilla Firefox On Samsung Galaxy M14 4G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-oppo-f25-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Oppo F25 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-legal-framework-of-instagram-tunes/"><u>In 2024, Legal Framework of Instagram Tunes</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/mirror-of-society-top-100-inspiring-instagramcaptions/"><u>Mirror of Society Top 100 Inspiring #InstagramCaptions</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/navigating-through-troubled-waters-instagram-videos-guide/"><u>Navigating Through Troubled Waters Instagram Videos Guide</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/ultimate-combat-arcade-nintendo-switch-edition-max-156/"><u>Ultimate Combat Arcade Nintendo Switch Edition (Max 156)</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-2024-approved-free-avi-video-rotation-made-easy-top-16-picks-for-windows-mac-android-and-iphone/"><u>Updated 2024 Approved Free AVI Video Rotation Made Easy Top 16 Picks for Windows, MAC, Android, and iPhone</u></a></li>
 </ul></div>
 

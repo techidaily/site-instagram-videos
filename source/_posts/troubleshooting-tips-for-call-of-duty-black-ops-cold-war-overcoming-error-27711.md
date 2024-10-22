@@ -1,7 +1,7 @@
 ---
 title: "Troubleshooting Tips for Call of Duty: Black Ops Cold War - Overcoming Error 27711"
-date: 2024-10-11T20:41:24.196Z
-updated: 2024-10-16T22:00:56.636Z
+date: 2024-10-16T17:51:47.255Z
+updated: 2024-10-22T18:05:15.593Z
 tags:
   - win11
   - win10
@@ -26,18 +26,18 @@ In the past couple days, many Cold War gamers are reporting a**UI error 27711** 
 3. **[Update your graphics driver](https://tools.techidaily.com/drivereasy/download/)**
 4. **[Install all Windows updates](https://tools.techidaily.com/drivereasy/download/)**
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Fix 1: Restart your PC
 
  Some gamers on[Reddit](https://www.reddit.com/r/blackopscoldwar/comments/kia139/get%5Fui%5Ferror%5F27711%5Fand%5Falso%5Fsomething%5Felse/) reported that the game went back to normal after a system restart. So before you try anything more complicated,**exit your game and do a normal reboot** . You’d be surprised how often this trick works.
 
  If the error persists after a reboot, you can take a look at the next fix.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 2: Scan and repair your game
 
@@ -49,16 +49,16 @@ In the past couple days, many Cold War gamers are reporting a**UI error 27711** 
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/bocw-verify-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Now you can launch the game and see if it loads this time.
 
  If this method doesn’t give you luck, simply take a look at the next one below.
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528681/16446" target="_top" id="1528681">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528681" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528681/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 3: Update your graphics driver
 
@@ -108,25 +108,25 @@ Here’s how you can check for updates manually:
 2. Scroll down and select**Update & Security** .  
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/windows-10-start-menu-open-settings-update.jpg)
 3. Click**Windows Update** .  
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/windows-10-start-menu-open-settings-update-2.jpg)
 4. Click**Check for updates** . Then wait for the process to complete. After that, restart your PC.  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/windows-10-start-menu-open-settings-update-3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  To make sure you’ve installed _all_  the system updates, **repeat these steps** until it prompts “You’re up to date” when you click **Check for updates** again.
 
@@ -151,21 +151,14 @@ Here’s how you can check for updates manually:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-snapshot-excellence-the-finest-software-on-market-for-2024/"><u>[New] Snapshot Excellence The Finest Software on Market for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-discovering-youtubes-green-magic-for-effective-filming/"><u>[Updated] In 2024, Discovering Youtube's Green Magic for Effective Filming</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-effective-youtube-card-usage-guide/"><u>[Updated] In 2024, Effective YouTube Card Usage Guide</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-high-engagement-stories-filters-list/"><u>2024 Approved High-Engagement Stories Filters List</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-ignite-interest-captivate-views-elevate-likes-on-your-unboxings/"><u>2024 Approved Ignite Interest, Captivate Views Elevate Likes on Your Unboxings</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-mastering-mp4-conversion-effective-ipv-means-and-techniques/"><u>2024 Approved Mastering MP4 Conversion Effective IPV Means & Techniques</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-top-5-mac-os-sierra-video-editing-apps/"><u>2024 Approved Top 5 Mac OS Sierra Video Editing Apps</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/28-days-to-becoming-an-instagram-reel-sensation/"><u>28 Days to Becoming an Instagram Reel Sensation</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/3-facts-you-need-to-know-about-screen-mirroring-honor-magic-v2-drfone-by-drfone-android/"><u>3 Facts You Need to Know about Screen Mirroring Honor Magic V2 | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/elevating-your-ig-aesthetics-with-top-10-grid-builders-for-2024/"><u>Elevating Your IG Aesthetics with Top 10 Grid Builders for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-innovative-igtv-thumbnail-upgrades-guide/"><u>In 2024, Innovative IGTV Thumbnail Upgrades Guide</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-the-case-for-high-dynamic-range-in-modern-videography/"><u>In 2024, The Case for High Dynamic Range in Modern Videography</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-top-tips-for-creating-engaging-and-memorable-instagram-reels/"><u>In 2024, Top Tips for Creating Engaging and Memorable Instagram Reels</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/invest-in-insta-success-the-top-earners-playbook/"><u>Invest in Insta Success The Top Earners' Playbook</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/kop-nu-top-video-editing-software-for-entrepreneurs/"><u>Köp Nu: Top Video Editing Software for Entrepreneurs</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-realme-v30-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On Realme V30? | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-unleash-creativity-with-must-have-camera-extras/"><u>[New] Unleash Creativity with Must-Have Camera Extras</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-elevating-your-visuals-mastering-instagram-edits-in-fcpx/"><u>[Updated] Elevating Your Visuals Mastering Instagram Edits in FCPX</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-tips-for-uninterrupted-obs-video-playback/"><u>[Updated] Tips for Uninterrupted OBS Video Playback</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/fresh-content-massive-traction-secrets-to-a-thriving-insta-account/"><u>Fresh Content, Massive Traction Secrets to a Thriving Insta Account</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/how-to-download-igtv-videos-on-windows-pcmac-5-ways-for-2024/"><u>How to Download IGTV Videos on Windows PC/Mac? [5 Ways] for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-unfollower-detection-on-instagram/"><u>In 2024, Unfollower Detection on Instagram</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/snag-soundwaves-from-fb-topics-for-2024/"><u>Snag Soundwaves From Fb Topics for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/the-ultimate-guide-to-the-ambient-weather-ws-1002-wifi-observer-top-notch-quality-with-a-hefty-price/"><u>The Ultimate Guide to the Ambient Weather WS-1002 WiFi Observer: Top Notch Quality with a Hefty Price</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/uncover-recent-instagram-unfollow-patterns-for-2024/"><u>Uncover Recent Instagram Unfollow Patterns for 2024</u></a></li>
 </ul></div>
 

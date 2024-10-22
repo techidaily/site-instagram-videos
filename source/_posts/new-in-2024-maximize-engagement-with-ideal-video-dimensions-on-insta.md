@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Maximize Engagement with Ideal Video Dimensions on Insta"
-date: 2024-10-14T18:04:44.657Z
-updated: 2024-10-16T17:57:02.575Z
+date: 2024-10-21T17:03:41.123Z
+updated: 2024-10-22T17:07:04.406Z
 tags:
   - ai video
   - ai instagram
@@ -64,18 +64,18 @@ Even though MP4 is the only supported Instagram video format, you can set the vi
 
 ![instagram video dimensions](https://images.wondershare.com/filmora/instagram-video-format.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Since Instagram is not limited to videos, you might be puzzling about the required dimensions for Instagram photos, stories, IGTV, live videos and other supported features like ads. Keep calm, and find all the Instagram dimensions and sizes right in here.
 
 Other than just uploading ordinary videos and sharing photos, you can also **tell a story on Instagram**  using videos and photos in a slideshow format. For business purposes, you can format Instagram stories to **create Instagram Carousel ads**  to use as an advert.
 
 To realize the real importance of Instagram, start using the **video ads feature** , uploading **IGTV videos**  and **streaming live videos** . As you explore all these features, remember to use the specified Max Instagram video dimensions in this article.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### #1 - Instagram Video Dimensions And Sizes
 
@@ -96,13 +96,6 @@ Since the launch of Instagram video sharing feature, square videos are the most 
 
 ![instagram video format](https://images.wondershare.com/filmora/instagram-horizontal-videos.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Even though recording Instagram videos in a landscape form is a lot much easier, the majority of Instagram enthusiasts despise. It is the least used orientation mostly because it occupies a small space and the quality appears distorted.
 
 To recorded landscape videos, set the dimensions in the aspect ratio of 16:9 or 1.91:1\. In a situation where shooting videos in the landscape is necessary, we recommend the 16:9 Instagram size ratio. The maximum dimensions should be set at 1080px by 607px, which is the set cinematic standard.
@@ -111,7 +104,27 @@ To recorded landscape videos, set the dimensions in the aspect ratio of 16:9 or 
 
 ![instagram vertical video dimensions](https://images.wondershare.com/filmora/instagram-vertical-videos.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Vertical videos differ from square videos by very small margins. For your portrait videos to attract many viewers, ensure it is of the highest quality and has an aspect ratio of 4:5\. This ratio has to coincide with a 1080px by 1350px dimension.
+
+<!-- affiliate ads begin -->
+<span id="1160850">
+					<video width="576" height="324" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### #2 - Instagram Story Dimensions
 
@@ -207,6 +220,13 @@ Even though Instagram displays vertical photos at a maximum resolution of 480px 
 
 ![instagram post size](https://images.wondershare.com/filmora/instagram-landscape-photo-size.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
+  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 How many photos or pictures have you seen on Instagram with a border above and below it? They are countless.
 
 Using the wrong aspect ratio is the main cause of this effect. It is a bit challenging to set the recommended aspect ratio of 1.91:1.
@@ -214,13 +234,6 @@ Using the wrong aspect ratio is the main cause of this effect. It is a bit chall
 You are permitted to upload photos with a high aspect ratio as 16:9\. However, these extra sizes will display in the form of a black border.
 
 If you want to upload horizontal photos and maintain their original quality, the right Instagram image size is 1080px by 608px.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Well Prepare Your Instagram Videos and Photos with the Best Editing Software
 
@@ -236,16 +249,16 @@ It's free to use and click the below link to download now.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Since you will probably use a mobile phone for Instagram than a computer, download the free mobile video editor – **[Filmora](https://tools.techidaily.com/wondershare/filmora/download/).** There is every effect, transition, filters, texts, and themes to make your Instagram live videos and photos cinematic.
 
 **You may also like:** [How to Post/Share a Video From YouTube on Instagram >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144273/7443" target="_top" id="2144273">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144273" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144273/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -256,13 +269,6 @@ For your image and video, posts to have the right sizes, master the most used as
 What sizes and dimensions do you use to take Instagram photos and stream videos? Share your comments and thoughts.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -279,21 +285,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-top-5-best-hdmi-21-gaming-monitors-ps5-compatible/"><u>[New] 2024 Approved Top 5 Best HDMI 2.1 Gaming Monitors [PS5 Compatible]</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-breaking-the-ice-with-instagrams-interactive-audience-queries/"><u>[New] In 2024, Breaking the Ice with Instagram's Interactive Audience Queries</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-making-friends-across-networks-instagram-plus-facebook/"><u>[New] In 2024, Making Friends Across Networks Instagram + Facebook</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-visualize-success-with-these-three-insta-video-caption-approaches/"><u>[New] Visualize Success with These Three Insta Video Caption Approaches</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-10-sci-fi-vr-adventures-unveiling-distant-realities/"><u>[Updated] 2024 Approved 10 Sci-Fi VR Adventures Unveiling Distant Realities</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-a-step-by-step-guide-to-updating-photos-and-videos-on-instagram/"><u>[Updated] 2024 Approved A Step-by-Step Guide to Updating Photos and Videos on Instagram</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-elevating-your-instagram-presence-with-watermarks/"><u>[Updated] 2024 Approved Elevating Your Instagram Presence with Watermarks</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-from-picture-perfect-videos-to-melodious-mp3-files/"><u>[Updated] 2024 Approved From Picture-Perfect Videos to Melodious MP3 Files</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-innovative-strategies-for-top-10-ig-grid-design-software/"><u>[Updated] 2024 Approved Innovative Strategies for Top 10 IG Grid Design Software</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-highest-ranking-youtube-tracker-for-popular-video-insight/"><u>[Updated] Highest-Ranking YouTube Tracker for Popular Video Insight</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-deciphering-finances-how-much-do-youtubers-earn-per-ad/"><u>2024 Approved Deciphering Finances How Much Do YouTubers Earn Per Ad?</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/explore-new-horizons-with-these-7-free-ai-planners-and-chatgpt-analogs-for-swift-vacation-prep/"><u>Explore New Horizons with These 7 Free AI Planners and ChatGPT Analogs for Swift Vacation Prep</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-changefake-your-htc-u23-location-on-viber-drfone-by-drfone-virtual-android/"><u>How to Change/Fake Your HTC U23 Location on Viber | Dr.fone</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-expert-breakdown-vsdc-review-and-alternative-comparisons/"><u>In 2024, Expert Breakdown VSDC Review & Alternative Comparisons</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-ultimate-spots-for-discovering-rich-gold-text-effects/"><u>In 2024, Ultimate Spots for Discovering Rich, Gold Text Effects</u></a></li>
-<li><a href="https://ai-video-translation.techidaily.com/updated-in-2024-a-comprehensive-guide-for-free-video-translator-downloading/"><u>Updated In 2024, A Comprehensive Guide for Free Video Translator Downloading</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-twists-that-tell-stories-crafting-captivating-visual-narratives-on-instagram-platforms/"><u>[New] 2024 Approved Twists That Tell Stories Crafting Captivating Visual Narratives on Instagram Platforms</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-behind-the-curtain-peek-tracking-insta-post-watchers/"><u>[New] Behind-the-Curtain Peek Tracking Insta Post Watchers</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-crafting-your-signature-voice-for-instagram-success-for-2024/"><u>[New] Crafting Your Signature Voice for Instagram Success for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-perfect-selfies-tips-for-instagram-story-magnification-for-2024/"><u>[New] Perfect Selfies Tips for Instagram Story Magnification for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-ig-spotlight-superheroes-top-tier-covers-on-the-go-for-2024/"><u>[Updated] IG Spotlight Superheroes Top-Tier Covers on the Go for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-pivot-to-popularity-mastering-video-flip-on-social/"><u>[Updated] In 2024, Pivot to Popularity Mastering Video Flip on Social</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-the-ultimate-package-accessories-to-boost-your-yi-4k/"><u>[Updated] In 2024, The Ultimate Package Accessories to Boost Your YI 4K</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/2024-approved-how-to-check-your-videos-legal-status-before-tiktok-upload/"><u>2024 Approved How to Check Your Video's Legal Status Before TikTok Upload</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-instagram-influence-made-possible-today/"><u>2024 Approved Instagram Influence Made Possible Today</u></a></li>
+<li><a href="https://discover-deluxe.techidaily.com/comprehensive-strategies-for-effective-iphone-backups-using-sandisk-a-3-part-guide-to-protecting-your-mobile-memories/"><u>Comprehensive Strategies for Effective iPhone Backups Using SanDisk: A 3-Part Guide to Protecting Your Mobile Memories</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/diving-into-video-quality-dslr-vs-mirrorless-cameras/"><u>Diving Into Video Quality DSLR vs Mirrorless Cameras</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/eye-appeal-the-top-3-ways-to-increase-instagram-visibility-for-2024/"><u>Eye Appeal The Top 3 Ways to Increase Instagram Visibility for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-iphone-is-disabled-here-is-the-way-to-unlock-disabled-apple-iphone-x-by-drfone-ios/"><u>In 2024, iPhone Is Disabled? Here Is The Way To Unlock Disabled Apple iPhone X</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-motorola-moto-g34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Motorola Moto G34 5G | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/mastering-data-arrangement-in-microsoft-excel-discover-the-7-most-effective-techniques/"><u>Mastering Data Arrangement in Microsoft Excel: Discover the 7 Most Effective Techniques</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-infinix-note-30-5g-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Infinix Note 30 5G | Dr.fone</u></a></li>
+<li><a href="https://discover-community.techidaily.com/1726224329700-movavimpeg/"><u>オンラインでも簡単!MovaviのMPEGファイルを変換してください</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] The Essentials of Creating and Curating Instagram Highlights"
-date: 2024-10-09T23:55:26.347Z
-updated: 2024-10-16T23:29:10.201Z
+date: 2024-10-19T16:57:31.068Z
+updated: 2024-10-22T17:20:05.967Z
 tags:
   - ai video
   - ai instagram
@@ -38,10 +38,10 @@ Story Highlights allows you to display all sides of your personality, and you ca
 An amazing feature of Instagram highlights is that you can group your stories into sections and create them as folder sections (i.e highlights) on your profile. Once you post a story, you can save it in a Highlight (which is like a folder) and that will automatically be featured on your profile permanently until you decide to delete it or archive it. With this tool, you can design your profile in a unique way that best expresses you.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to Create Instagram Highlights from Stories Archive?
@@ -57,10 +57,10 @@ Your Stories Archive is a feature that when enabled, ensures your Stories are au
 ![ Instagram Highlight Archive](https://images.wondershare.com/filmora/article-images/save-story-to-archive-instagram.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If you choose to create Highlights from your Stories archive, this is how you go about it:
@@ -101,13 +101,6 @@ You can choose to create a highlight from your current Story, all you need to do
 * Go to your Instagram Story and click on the **Highlight** icon located at the lower right-hand corner.
 * Click on the **plus** **sign** if you want to create a new highlight, customize the name of the highlight and click
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 4: How to Delete Instagram Highlights?
 
 There are situations where you might decide you no longer want a highlight to feature on your page. Not to worry it’s there permanently only if you decide not to delete it. This is relatively easy to do. All you have to do is to;
@@ -123,10 +116,16 @@ If for instance, you decide that you want to remove some stories from a highligh
 * Click **Remove highlight,** then you are done!
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982462">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## FAQs About Instagram Highlights
@@ -159,6 +158,13 @@ attire need to be easy to find. You create a Highlight that you refer them to so
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -174,20 +180,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-enrich-user-experience-on-stories-via-interactive-qandas/"><u>[New] 2024 Approved Enrich User Experience on Stories via Interactive Q&As</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-how-to-speed-up-video-on-instagram-mobileonlinedesktop-solutions/"><u>[New] 2024 Approved How to Speed Up Video on Instagram [Mobile/Online/Desktop Solutions]</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-navigate-instagram-video-problems-with-ease/"><u>[New] 2024 Approved Navigate Instagram Video Problems with Ease</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-farm-fun-family-top-10-games-bringing-groups-of-friends-closer-to-farms/"><u>[New] In 2024, Farm Fun Family Top 10 Games Bringing Groups of Friends Closer to Farms</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-your-first-steps-for-youtube-earning-8-methods/"><u>[New] In 2024, Your First Steps for YouTube Earning - 8 Methods</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/20-most-reliable-hashtag-tracker-tools-fbtwitterinsta-for-2024/"><u>20 Most Reliable Hashtag Tracker Tools (FB/Twitter/Insta) for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-igtvs-power-boosters-crafting-viral-hash-tags/"><u>2024 Approved IGTV's Power Boosters Crafting Viral Hash Tags</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-the-art-of-patience-mastering-the-craft-of-producing-captivating-slow-motion-videos-and-photos-for-instagram/"><u>2024 Approved The Art of Patience Mastering the Craft of Producing Captivating Slow Motion Videos and Photos for Instagram</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/expert-email-creation-and-streamlined-inbox-reviews-discover-5-free-ai-tools-featuring-chatgpt-technology/"><u>Expert Email Creation & Streamlined Inbox Reviews: Discover 5 Free AI Tools Featuring ChatGPT Technology</u></a></li>
-<li><a href="https://win-forum.techidaily.com/guaranteed-permanent-deletion-of-files-on-windows-11-expert-methods-revealed/"><u>Guaranteed Permanent Deletion of Files on Windows 11: Expert Methods Revealed</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-fix-ipad-or-iphone-11-stuck-on-activation-lock-by-drfone-ios/"><u>How to Fix iPad or iPhone 11 Stuck On Activation Lock?</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-easy-transition-integrating-snapchat-with-macos/"><u>In 2024, Easy Transition Integrating Snapchat with macOS</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/in-2024-top-screen-picks-for-professional-image-enhancers/"><u>In 2024, Top Screen Picks for Professional Image Enhancers</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/top-6-ways-to-transfer-text-messages-from-oppo-reno-9a-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 6 Ways to Transfer Text Messages from Oppo Reno 9A to Other Android Devices | Dr.fone</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/understanding-artificei-intelligence-a-beginners-guide/"><u>Understanding ArtificeI Intelligence: A Beginner's Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-mastering-soft-focus-the-secret-of-great-bokeh-in-stories/"><u>[New] 2024 Approved Mastering Soft Focus The Secret of Great Bokeh in Stories</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-a-step-by-step-approach-to-enhancing-your-instagram-video-sizes/"><u>[New] In 2024, A Step-by-Step Approach to Enhancing Your Instagram Video Sizes</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-elite-architects-best-of-breed-instragram-hlv-artisans/"><u>[Updated] 2024 Approved Elite Architects Best-of-Breed Instragram HLV Artisans</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-crafting-captivating-igtv-cover-images-thumbnails-for-2024/"><u>[Updated] Crafting Captivating IGTV Cover Images (Thumbnails) for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-easy-mp3-conversion-from-mp3-files-to-youtube-videos-3-ways/"><u>[Updated] In 2024, Easy MP3 Conversion From MP3 Files to YouTube Videos [3 Ways]</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-showcasing-self-with-instagram-a-collection-of-100-captions-for-2024/"><u>[Updated] Showcasing Self with Instagram A Collection of 100 Captions for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-vertical-video-magic-adjusting-instagram-feed-with-final-cut-pro-x/"><u>2024 Approved Vertical Video Magic Adjusting Instagram Feed with Final Cut Pro X</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/effective-fixes-for-windows-update-problem-code-8007000e-explained/"><u>Effective Fixes for Windows Update Problem - Code 8007000E Explained</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-review-garmin-forerunner-e945-the-ultimate-gps-companion-for-fitness-enthusiasts/"><u>Expert Review: Garmin Forerunner E945 – The Ultimate GPS Companion for Fitness Enthusiasts</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-best-online-echo-chambers/"><u>In 2024, Best Online Echo Chambers</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-full-guide-to-fix-itoolab-anygo-not-working-on-lava-agni-2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Fix iToolab AnyGO Not Working On Lava Agni 2 5G | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-xiaomi-mix-fold-3-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Xiaomi Mix Fold 3 online without jailbreak</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-swift-solution-for-effortless-srt-to-text-txt-transform/"><u>In 2024, The Swift Solution for Effortless SRT to Text (TXT) Transform</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-the-ultimate-guide-to-converting-and-sharing-h-videos-on-igtv/"><u>In 2024, The Ultimate Guide to Converting and Sharing H-Videos on IGTV</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/solved-warning-camera-failed-on-poco-x5-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Solved Warning Camera Failed on Poco X5 | Dr.fone</u></a></li>
 </ul></div>
 

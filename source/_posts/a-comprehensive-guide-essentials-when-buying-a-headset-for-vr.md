@@ -1,7 +1,7 @@
 ---
 title: "A Comprehensive Guide: Essentials When Buying a Headset for VR"
-date: 2024-10-04T16:14:04.305Z
-updated: 2024-10-10T16:44:02.891Z
+date: 2024-10-17T17:01:55.081Z
+updated: 2024-10-22T17:00:29.622Z
 categories:
   - BestProducts
 description: "This Article Describes A Comprehensive Guide: Essentials When Buying a Headset for VR"
@@ -41,10 +41,10 @@ Lifewire / Kelsey Simon
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/rhT3ygZshpoBNXjxqRjfylp4VYU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
@@ -65,18 +65,18 @@ Lifewire / Kelsey Simon
 
  Torment: Tides of Numenera is the second game in the Torment series, offering players a rich world inspired by combining science-fiction and fantasy elements. Loaded with heavy-handed storytelling, players might find it hard to push through the poor graphics and the boring[gameplay](https://www.lifewire.com/record-gameplay-on-ps4-5074215) to truly enjoy the game’s plot. We had a rough time even making it through 10 hours of the game, latching on to the game’s one highlight, it’s rich and unique worldbuilding. Read on to see how it stacked up to the other games on our[best PC games](https://flow.dotdash.com/flow-queue?backTo=%2Fmy-projects%2F1804&source=todo&doc%5Fid=4580331&task%5Fid=1289817&project%5Fid=1804) roundup.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Story: Heavy-handed writing to the exclusion of all else**
 
  Torment: Tides of Numenera is a third-person role-playing game focused strongly on story―and oh, there is so much story. The game begins with the character you’ll play as waking up in a panic. Someone will narrate everything that’s going on to you, including what the area around you looks like. After a short introduction, you’ll be prompted to pick what you want to play as: Glaive, Jack, or Nano. These will roughly translate into someone more physical, someone mixed physical and magical, and a mage, but of course, set in this strange half-fantastical, half-science-fiction world where everything is new and unique.
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/b1_d8ikgtdkSH_Y0F510q_BXpK0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-03-d99b43959fa74b31a15f336852f14d75.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -92,13 +92,6 @@ Lifewire / Kelsey Simon
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/8H4QhkgilcsrFlNL40KO1tDnKvs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-02-cca6ebdc67d6477ab973b796fb7e773c.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
 
  Beyond this, the other major gameplay mechanic is a system of effort and inspiration. Every action you take will prompt you to use effort. This effort allows for your character to work harder at the chosen action, and thus gives your character a better chance of accomplishing their goal.
@@ -113,6 +106,13 @@ Lifewire / Kelsey Simon
 
  The one thing the game does have to offer is a rich and unique world that combines elements of fantasy and science fiction in an interesting way.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Graphics: Outdated and simplistic**
 
  Tides of Numenera was created in 2017―however, you wouldn’t know this if you jumped into the game and made a guess based upon the[graphics](https://www.lifewire.com/optimizing-video-game-frame-rates-811784) . The graphics look more like they’re stuck in the early 2000s, with blocky, almost pixelated characters. There is some forgiveness to be had because the game isn’t focused on the visuals―it’s more about the words and the story. But there is a limit to how forgiving one can be considering the game isn’t that old.
@@ -124,10 +124,10 @@ Lifewire / Kelsey Simon
  Lifewire / Kelsey Simon
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Only worth it if you’re keen on the story**
@@ -173,24 +173,24 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-hidden-perspectives-what-youre-ignoring-as-a-stories-viewer/"><u>[New] 2024 Approved Hidden Perspectives What You're Ignoring as a Stories Viewer</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-mastering-fast-play-instagram-videos-at-home-desktop/"><u>[New] 2024 Approved Mastering Fast-Play Instagram Videos at Home (Desktop)</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-boosting-engagement-and-followers-in-igtv-with-smart-hash-tagging/"><u>[New] Boosting Engagement and Followers in IGTV with Smart Hash Tagging</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-discover-the-richest-content-for-maximum-ig-revenue-for-2024/"><u>[New] Discover the Richest Content for Maximum IG Revenue for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-effortless-keyword-harvesting-explore-the-best-7-no-fee-tag-extractors-for-2024/"><u>[New] Effortless Keyword Harvesting Explore the Best 7 No-Fee Tag Extractors for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-perfect-every-moment-incorporating-captions-in-instagram-footage/"><u>[New] In 2024, Perfect Every Moment Incorporating Captions in Instagram Footage</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-instagram-pro-tip-speedy-like-video-strategies-for-2024/"><u>[New] Instagram Pro Tip Speedy Like-Video Strategies for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-mastering-instagram-rising-video-view-counts/"><u>[Updated] 2024 Approved Mastering Instagram Rising Video View Counts</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-engaging-audiences-on-instagram-the-power-of-creative-puzzles-for-2024/"><u>[Updated] Engaging Audiences on Instagram The Power of Creative Puzzles for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-navigating-network-growth-strategies-for-instagram-success/"><u>[Updated] In 2024, Navigating Network Growth Strategies for Instagram Success</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-unlocking-youtubes-potential-for-free-educational-events/"><u>[Updated] Unlocking YouTube's Potential for Free Educational Events</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-easy-ways-to-screen-record-instagram-story/"><u>2024 Approved Easy Ways to Screen Record Instagram Story</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-mastering-azures-transcription-service/"><u>2024 Approved Mastering Azure's Transcription Service</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-change-country-on-app-store-for-iphone-11-pro-with-7-methods-by-drfone-ios/"><u>How To Change Country on App Store for iPhone 11 Pro With 7 Methods</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-reset-gmail-password-on-vivo-s17t-devices-by-drfone-android/"><u>How to Reset Gmail Password on Vivo S17t Devices</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-infinix-smart-7-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Infinix Smart 7 | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-vivo-t2x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on Vivo T2x 5G | Dr.fone</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/in-2024-unveiling-the-best-for-screens-a-deep-dive-into-obs-studio-and-fraps/"><u>In 2024, Unveiling the Best for Screens A Deep Dive Into OBS Studio & Fraps</u></a></li>
-<li><a href="https://article-posts.techidaily.com/surveying-the-spectrum-of-windows-movie-maker-updates-for-2024/"><u>Surveying the Spectrum of Windows Movie Maker Updates for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-impressive-image-sequence-on-instagram/"><u>[New] 2024 Approved Impressive Image Sequence on Instagram</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-maximizing-visibility-in-a-newly-updated-social-platform/"><u>[New] 2024 Approved Maximizing Visibility in a Newly Updated Social Platform</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-how-to-create-impressive-slow-motion-content-a-step-by-step-instagram-reel-masterclass-for-2024/"><u>[New] How to Create Impressive Slow Motion Content A Step by Step Instagram Reel Masterclass for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-complete-annihilation-of-youtube-shorts-accessibility/"><u>[New] In 2024, Complete Annihilation of YouTube Shorts Accessibility</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-mastering-instagram-boost-your-following/"><u>[New] Mastering Instagram Boost Your Following</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-sifting-through-the-elements-of-instagram-stories/"><u>[New] Sifting Through the Elements of Instagram Stories</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-how-to-unlock-instagrams-filter-treasure-trove-without-spending/"><u>[Updated] 2024 Approved How to Unlock Instagram's Filter Treasure Trove Without Spending</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-seeking-freebies-learn-instagrams-secret-for-additional-filters/"><u>[Updated] 2024 Approved Seeking Freebies? Learn Instagram’s Secret for Additional Filters</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-fixed-obs-audio-capture-issue/"><u>[Updated] Fixed OBS Audio Capture Issue</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-convert-srt-free-top-10-web-subtitle-services/"><u>2024 Approved Convert SRT Free Top 10 Web Subtitle Services</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-masterful-designers-top-insta-hlv-page-builders/"><u>2024 Approved Masterful Designers Top Insta HLV Page Builders</u></a></li>
+<li><a href="https://howto.techidaily.com/best-methods-for-oppo-a1x-5g-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Oppo A1x 5G Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/o-choose-the-right-thumbnail-size-for-impact-for-2024/"><u>How to Choose the Right Thumbnail Size for Impact for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-honor-x9b-to-mac-drfone-by-drfone-android/"><u>How to Mirror Honor X9b to Mac? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-videos-from-vivo-v30-pro-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Videos from Vivo V30 Pro to iPad | Dr.fone</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/in-2024-does-itools-virtual-location-not-work-on-apple-iphone-14-pro-maxipad-drfone-by-drfone-virtual-ios/"><u>In 2024, Does iTools virtual location not work On Apple iPhone 14 Pro Max/iPad? | Dr.fone</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/studiolightkit-smartchoice-review/"><u>StudioLightkit SmartChoice Review</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/swiftly-uncover-unfollowers-on-instagram-for-2024/"><u>Swiftly Uncover Unfollowers on Instagram for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/sync-your-time-with-the-world-update-settings-on-a-kindle-paperwhite/"><u>Sync Your Time with the World: Update Settings on a Kindle Paperwhite</u></a></li>
 </ul></div>
 

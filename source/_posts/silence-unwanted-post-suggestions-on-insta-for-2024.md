@@ -1,7 +1,7 @@
 ---
 title: "Silence Unwanted Post Suggestions on Insta for 2024"
-date: 2024-10-09T21:44:22.241Z
-updated: 2024-10-16T16:12:42.002Z
+date: 2024-10-16T18:37:42.232Z
+updated: 2024-10-22T16:02:20.747Z
 tags:
   - ai video
   - ai instagram
@@ -71,29 +71,29 @@ Here's what you need to do:
 
 ![click on not interested on suggested posts](https://images.wondershare.com/filmora/article-images/instagram-suggestion-posts-options.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 6:** That post and user will be removed, and instead of that, you will see a message by Instagram asking for feedback. You can click on the option: I don't want to see posts from this account, and Instagram won't show you that user's posts.
 
 ![choose your feedback option](https://images.wondershare.com/filmora/article-images/instagram-suggestion-posts-feedback.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Now, you can apply the same steps for the rest of the posts as well. But do keep in mind that suggested posts will still appear. And you will have to apply this setting for each one so that you are shown fewer posts of unknown people.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: How to Delete Suggested Users from Instagram?
 
 If you don't want to see suggested users on your Instagram feed, there is a way to remove unknown users actually. You can do it by using your web browser or Instagram mobile app. Whichever is comfortable to use. However, please note that these steps have to be followed for each suggested user. Now, please use that and then follow these steps.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### For Instagram app users
 
@@ -108,10 +108,10 @@ If you don't want to see suggested users on your Instagram feed, there is a way 
 **Step 4:** To delete multiple suggested users, just click on the see all option, and the list of suggested users will appear; now click on the X for each user you want to delete. However, you need to delete everyone one by one individually.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### For web browsers
@@ -131,10 +131,16 @@ Just like Instagram show you suggested users and posts, your account gets recomm
 ![ uncheck the similar account suggestions box](https://images.wondershare.com/filmora/article-images/uncheck-similar-account-suggestions.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 5: How Does Instagram Suggestions Work?
@@ -170,18 +176,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/urate-your-learning-best-15-science-yt-experts/"><u>[New] Curate Your Learning Best 15 Science YT Experts</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ngage-entertain-enlighten-crafting-compelling-live-thumbnails/"><u>[New] Engage, Entertain, Enlighten Crafting Compelling Live Thumbnails</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-blending-beats-posting-tunes-on-digital-diaries/"><u>[New] In 2024, Blending Beats Posting Tunes on Digital Diaries</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-instagram-reel-downloads-quick-save-methods/"><u>[New] In 2024, Instagram Reel Downloads Quick Save Methods</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-mastering-podcast-submission-googles-steps/"><u>[New] Mastering Podcast Submission Google's Steps</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-photo-edit-pro-tips-hide-identities-effectively/"><u>[New] Photo Edit Pro Tips Hide Identities Effectively</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-mastering-the-height-final-cut-pro-x-techniques-for-instagram-video/"><u>[Updated] 2024 Approved Mastering the Height Final Cut Pro X Techniques for Instagram Video</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-how-to-add-border-to-instagram-photos/"><u>[Updated] How to Add Border to Instagram Photos?</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-the-ultimate-list-of-premium-androidpc-video-editors/"><u>[Updated] In 2024, The Ultimate List of Premium Android/PC Video Editors</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-unveiling-the-art-of-masterful-job-interview-execution/"><u>2024 Approved Unveiling the Art of Masterful Job Interview Execution</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-geo-blocking-and-how-to-bypass-it-on-asus-rog-phone-7-ultimate-drfone-by-drfone-virtual-android/"><u>In 2024, What is Geo-Blocking and How to Bypass it On Asus ROG Phone 7 Ultimate? | Dr.fone</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/top-14-dynamic-text-animations-in-design/"><u>Top 14 Dynamic Text Animations in Design</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/trendsetting-tags-top-10-to-make-your-post-pop/"><u>Trendsetting Tags Top 10 To Make Your Post Pop</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-reimagining-posts-a-new-perspective-on-ig/"><u>[New] 2024 Approved Reimagining Posts A New Perspective on IG</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-accelerating-streamed-instagram-content-mobile-hacks-for-2024/"><u>[New] Accelerating Streamed Instagram Content Mobile Hacks for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-broadcasting-higher-integrating-dji-drones-for-facebook-live-for-2024/"><u>[New] Broadcasting Higher - Integrating DJI Drones for Facebook Live for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-create-identity-a-quick-walkthrough-of-customizing-your-youtube-url/"><u>[New] In 2024, Create Identity A Quick Walkthrough of Customizing Your YouTube Url</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-the-secrets-of-squaring-up-making-square-format-videos-with-imovie-for-instagram/"><u>[New] In 2024, The Secrets of Squaring Up Making Square-Format Videos with iMovie for Instagram</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-skyrocketing-status-15-clever-methods-for-rapid-social-media-stardom-on-instagram/"><u>[Updated] In 2024, Skyrocketing Status 15 Clever Methods for Rapid Social Media Stardom on Instagram</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-exploring-the-best-5-book-promo-videos-for-authors/"><u>2024 Approved Exploring the Best 5 Book Promo Videos for Authors</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/build-better-websites-faster-with-chatgpt-discover-4-essential-techniques/"><u>Build Better Websites Faster with ChatGPT – Discover 4 Essential Techniques</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ting-video-revenue-youtubes-path/"><u>Elevating Video Revenue YouTube's Path</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-leave-a-life360-group-on-oppo-reno-11f-5g-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How To Leave a Life360 Group On Oppo Reno 11F 5G Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://article-helps.techidaily.com/m1-innovation-elevating-smoothness-in-every-editors-toolkit-for-2024/"><u>M1 Innovation Elevating Smoothness in Every Editor's Toolkit for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/sim-unlock-vivo-y100i-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>Sim Unlock Vivo Y100i Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
 </ul></div>
 
