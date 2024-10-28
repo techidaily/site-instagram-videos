@@ -1,7 +1,7 @@
 ---
 title: "Step by Step Repair: Restoring Functionality to Valorant's Voice Communication Tools"
-date: 2024-10-15T18:01:01.169Z
-updated: 2024-10-22T17:39:22.054Z
+date: 2024-10-25T08:33:54.238Z
+updated: 2024-10-27T18:48:50.682Z
 tags:
   - win11
   - win10
@@ -30,18 +30,18 @@ thumbnail: https://thmb.techidaily.com/7e858d7102e5ef6f6137f0acdeeba112d7b0daf0c
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Fix 1: Sign out Fortnite, then sign back in
 
  This is the quickest and easiest fix to try when chat’s not working in Fortnite. Just sign out of the game, then sign back in.
 
  Now run the game again and test to see whether chat is working. If it’s not, move on to Fix 2, below.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Fix 2: Update your sound card driver
 
@@ -62,6 +62,13 @@ thumbnail: https://thmb.techidaily.com/7e858d7102e5ef6f6137f0acdeeba112d7b0daf0c
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/Update-all-drivers.jpg)
 
  If you need assistance, please contact**Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Fix 3: Install the latest Fortnite patch
 
@@ -88,10 +95,10 @@ thumbnail: https://thmb.techidaily.com/7e858d7102e5ef6f6137f0acdeeba112d7b0daf0c
  Run Fortnite again to check whether your chat problem has been resolved. If it hasn’t, or there was no new game patch available, move on to Fix 4, below.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Fix 4: Make sure your microphone is on for Fortnite
@@ -102,6 +109,10 @@ thumbnail: https://thmb.techidaily.com/7e858d7102e5ef6f6137f0acdeeba112d7b0daf0c
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/Snap427.jpg)
 
+ 2\. Click **Microphone**  on the left pane, and make sure**Microphone access for this device** is**on** , and the status is **On** for **Fortnite** .
+
+![](https://images.drivereasy.com/wp-content/uploads/2018/09/Snap428.jpg)
+
 <!-- affiliate ads begin -->
 <a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
   <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
@@ -109,18 +120,7 @@ thumbnail: https://thmb.techidaily.com/7e858d7102e5ef6f6137f0acdeeba112d7b0daf0c
 <img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
- 2\. Click **Microphone**  on the left pane, and make sure**Microphone access for this device** is**on** , and the status is **On** for **Fortnite** .
-
-![](https://images.drivereasy.com/wp-content/uploads/2018/09/Snap428.jpg)
-
 3\. Run Fortnite to see if chat works now. If not, try Fix 5, below.
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 5: Check your audio settings
 
@@ -135,6 +135,13 @@ thumbnail: https://thmb.techidaily.com/7e858d7102e5ef6f6137f0acdeeba112d7b0daf0c
  ii. Click**the speaker icon** to view the audio settings. Then**turn off Voice Chat** and click**Apply** .  
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/Snap431-1024x576.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 iii. Exit Fortnite.
 
@@ -151,22 +158,15 @@ iii. Exit Fortnite.
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/Snap447.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  5\. While still in the**Recording** tab, try**speaking into your microphone** to test if it works properly. If it is, you should see some green in the bar on the right:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/Snap443.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  6\. Click **OK** .
 
@@ -183,10 +183,16 @@ iii. Exit Fortnite.
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/Snap940.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1938141">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  2\. Click**Uninstall** to uninstall Fortnite.
@@ -222,22 +228,14 @@ iii. Exit Fortnite.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-a-comprehensive-guide-to-crop-your-video-for-instagram-for-2024/"><u>[New] A Comprehensive Guide to Crop Your Video for Instagram for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-beyond-whats-visible-insights-into-instagram-story-consumers-for-2024/"><u>[New] Beyond What's Visible Insights Into Instagram Story Consumers for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/roadcasting-brilliance-in-final-fragments-for-2024/"><u>[New] Broadcasting Brilliance in Final Fragments for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-how-to-add-subtitles-to-igtv-videos-for-2024/"><u>[New] How to Add Subtitles to IGTV Videos for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-10-powerful-igtv-video-tips-for-amplified-brand-impact/"><u>[New] In 2024, 10 Powerful IGTV Video Tips for Amplified Brand Impact</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/new-in-2024-discover-the-magic-of-jujutsu-kaisen-with-tiktok-videos/"><u>[New] In 2024, Discover the Magic of Jujutsu Kaisen with TikTok Videos</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-effective-methods-for-transferring-youtube-videos-to-the-social-network/"><u>[New] In 2024, Effective Methods for Transferring YouTube Videos to the Social Network</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-skyrocketing-engagement-on-igtv-with-smart-hash-tagging-for-2024/"><u>[New] Skyrocketing Engagement on IGTV with Smart Hash Tagging for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-mastering-voice-effects-explore-free-flexible-audio-transformations/"><u>[Updated] Mastering Voice Effects Explore Free, Flexible Audio Transformations</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-tips-to-triple-your-instagram-video-viewers/"><u>[Updated] Tips to Triple Your Instagram Video Viewers</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-m1-chip-unmasked-apples-engineering-feat/"><u>2024 Approved M1 Chip Unmasked Apple's Engineering Feat</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-proven-techniques-to-enhance-engagement-and-interaction/"><u>2024 Approved Proven Techniques to Enhance Engagement and Interaction</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-unseen-screenshots-tracking-instagrams-hidden-viewer-list/"><u>2024 Approved Unseen Screenshots Tracking Instagram's Hidden Viewer List</u></a></li>
-<li><a href="https://program-issues.techidaily.com/apex-legends-online-connection-guide-expert-advice-on-getting-you-back-in-the-game/"><u>Apex Legends Online Connection Guide - Expert Advice on Getting You Back in the Game</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-changeadd-location-filters-on-snapchat-for-your-realme-narzo-60-pro-5g-drfone-by-drfone-virtual-android/"><u>How to Change/Add Location Filters on Snapchat For your Realme Narzo 60 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-mastering-instagrams-live-feature-without-your-identity/"><u>In 2024, Mastering Instagram's Live Feature Without Your Identity</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/keep-a-permanent-record-fbm-calls-full-recording/"><u>Keep a Permanent Record FBM Calls Full Recording</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-the-race-for-excellence-av1-vs-vp9-codec/"><u>[New] In 2024, The Race for Excellence AV1 Vs. VP9 Codec</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-skyrocket-with-subscribers-5-proven-methods-for-igtv-success/"><u>[New] Skyrocket with Subscribers 5 Proven Methods for IGTV Success</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-key-video-beginnings-identifying-the-best-16-for-more-watches/"><u>[Updated] 2024 Approved Key Video Beginnings Identifying the Best 16 for More Watches</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-unlock-additional-instagram-filters-a-step-by-step-guide/"><u>[Updated] In 2024, Unlock Additional Instagram Filters A Step-by-Step Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/essential-techniques-for-enhancing-your-instagram-videos/"><u>Essential Techniques for Enhancing Your Instagram Videos</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-the-essential-guide-to-capturing-switch-on-film/"><u>In 2024, The Essential Guide to Capturing Switch on Film</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/navigating-tech-trends-fresh-perspectives-from-toms-hardware-hub/"><u>Navigating Tech Trends: Fresh Perspectives From Tom's Hardware Hub</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/pioneering-popularity-with-powerful-instagram-videos-for-2024/"><u>Pioneering Popularity with Powerful Instagram Videos for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/why-is-ipogo-not-working-on-xiaomi-redmi-note-12-5g-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Xiaomi Redmi Note 12 5G? Fixed | Dr.fone</u></a></li>
 </ul></div>
 

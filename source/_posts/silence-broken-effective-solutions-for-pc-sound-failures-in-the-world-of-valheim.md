@@ -1,7 +1,7 @@
 ---
 title: "Silence Broken: Effective Solutions for PC Sound Failures in the World of Valheim"
-date: 2024-10-19T17:04:53.361Z
-updated: 2024-10-22T18:26:46.665Z
+date: 2024-10-26T21:14:24.638Z
+updated: 2024-10-27T23:57:04.706Z
 tags:
   - win11
   - win10
@@ -38,20 +38,34 @@ thumbnail: https://thmb.techidaily.com/d3b9fa260885ec727c421c1f7392781651fabce3d
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/10/image-245.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  2) In**Allow apps to access your microphone** , and turn on**the switch** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/10/image-246.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  3) Scroll down to**Allow desktop apps to access your microphone** , turn on**the switch** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/10/image-248.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  By doing so, you have allowed Origin the access to the microphone on your computer.
 
@@ -73,16 +87,16 @@ thumbnail: https://thmb.techidaily.com/d3b9fa260885ec727c421c1f7392781651fabce3d
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/06/image-35.png)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  3) Click **Update All** to automatically download and install the correct version of_ALL_ the drivers that are missing or out of date on your system (this requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)** [](https://tools.techidaily.com/drivereasy/download/) – you’ll be prompted to upgrade when you click **Update All** ). Or if you just want to update the audio driver, simply click the **Update** button next to it.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/06/image-36.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  You can also do it for free if you like, but it’s partly manual.
 
@@ -101,6 +115,13 @@ Here’s how to do it:
  1) On your keyboard, press **the Windows logo key** and R at the same time, then type **ms-settings:sound** and press **Enter** to open Control Panel.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/10/image-239.png)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  4) In **Sound** settings, scroll down to the**Input** section, and in**Choose your input device** , make sure the microphone you are actively using is selected. Then,**test your microphone** by speaking into your mic to see if it ‘hears’ anything. If yes, it means you have configured the microphone properly.
 
@@ -130,13 +151,6 @@ Here is how to configure in-game settings:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/10/image-262-1024x576.png)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
-  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  4) Again, play Apex Legends to see if the voice chat not working issue is resolved.
 
  Still no joy? Please try**Fix 5** , below.
@@ -144,10 +158,10 @@ Here is how to configure in-game settings:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Fix 5: Install the latest game patch
@@ -158,13 +172,6 @@ Here is how to configure in-game settings:
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Fix 6: Reinstall Origin and Apex Legends
 
  If the above steps don’t solve the issue, then it’s likely that the files in Origin or Apex Legends are corrupt. So you can reinstall the client and the game to see if it solves the problem.
@@ -174,13 +181,6 @@ Here are the steps:
  1) On your keyboard, press the **Windows logo key** and **R** at the same time, then type **appwiz.cpl** and press **Enter** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/10/image-174.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  2) In the program list, locate **Origin** , then right-click on it and click **Uninstall** .
 
@@ -218,22 +218,22 @@ Here are the steps:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-swift-success-stories-leveraging-instagram-likes-and-videos/"><u>[New] 2024 Approved Swift Success Stories Leveraging Instagram Likes and Videos</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-tapping-into-trends-your-guide-to-impactful-instagram-tags/"><u>[New] In 2024, Tapping Into Trends Your Guide to Impactful Instagram Tags</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-insta-experts-reveal-unknown-functions-and-features-for-2024/"><u>[New] Insta-Experts Reveal Unknown Functions and Features for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-instagram-filters-a-comprehensive-guide-for-2024/"><u>[New] Instagram Filters A Comprehensive Guide for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-navigating-the-insider-features-of-zoom-software-for-windows-11/"><u>[New] Navigating the Insider Features of Zoom Software for Windows 11</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-expert-techniques-to-make-the-most-of-instagrams-question-marker/"><u>[Updated] 2024 Approved Expert Techniques to Make the Most of Instagram's Question Marker</u></a></li>
-<li><a href="https://tiktok-video-files.techidaily.com/updated-in-2024-mastery-guide-critical-tiktok-macos-elements/"><u>[Updated] In 2024, Mastery Guide Critical TikTok (macOS) Elements</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-ryans-wealth-wonders-a-kids-fortune-in-the-streaming-space/"><u>[Updated] In 2024, Ryan’s Wealth Wonders A Kid's Fortune in the Streaming Space</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-maximizing-impact-10-indispentic-instagram-editors-apps/"><u>2024 Approved Maximizing Impact 10 Indispentic Instagram Editors' Apps</u></a></li>
-<li><a href="https://extra-information.techidaily.com/best-free-winpodcast-tools-compilation/"><u>Best Free WinPodcast Tools Compilation</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/convert-mov-files-to-mp4-for-free-cross-platform-support-for-mac-and-windows-11-users/"><u>Convert MOV Files to MP4 for Free: Cross-Platform Support for Mac and Windows 11 Users</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-samsung-galaxy-f34-5g-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On Samsung Galaxy F34 5G | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-hidefake-snapchat-location-on-your-asus-rog-phone-7-ultimate-drfone-by-drfone-virtual-android/"><u>How to Hide/Fake Snapchat Location on Your Asus ROG Phone 7 Ultimate | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/instagram-story-upgrade-how-to-add-music-effectively-for-2024/"><u>Instagram Story Upgrade How to Add Music Effectively for 2024</u></a></li>
-<li><a href="https://win-able.techidaily.com/overcoming-lost-ark-launch-problems-effective-solutions-updated-for-2025-mastering-the-fixes-for-when-lost-ark-wont-open-tips-and-tricks/"><u>Overcoming 'Lost Ark' Launch Problems: Effective Solutions Updated for 202#5 Mastering the Fixes for When Lost Ark Won't Open - Tips and Tricks</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/the-ultimate-method-for-joining-your-bluetooth-sound-system/"><u>The Ultimate Method for Joining Your Bluetooth Sound System</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/top-apps-for-instagram-strategy-mastery-and-expansion/"><u>Top Apps for Instagram Strategy Mastery and Expansion</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-a-straightforward-path-to-turn-off-igtv/"><u>[New] 2024 Approved A Straightforward Path to Turn Off IGTV</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-navigating-through-your-instagram-post-eye-balls/"><u>[New] 2024 Approved Navigating Through Your Instagram Post Eye-Balls</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-techniques-for-text-overlays-in-video-platforms-vimeo/"><u>[New] 2024 Approved Techniques for Text Overlays in Video Platforms (Vimeo)</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-mastering-instagram-stories-step-by-step-recording-guide-for-2024/"><u>[New] Mastering Instagram Stories Step-by-Step Recording Guide for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-ideal-echo-reapers-in-colleges-for-2024/"><u>[Updated] Ideal Echo Reapers in Colleges for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-sculpting-your-online-presence-with-top-niche-creators/"><u>[Updated] In 2024, Sculpting Your Online Presence with Top Niche Creators</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-walking-through-time-a-guide-to-inverted-videos-on-instagram/"><u>[Updated] In 2024, Walking Through Time A Guide to Inverted Videos on Instagram</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-mastering-the-craft-of-igtv-video-production-with-phones-and-dslrs/"><u>[Updated] Mastering the Craft of IGTV Video Production with Phones and DSLRs</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-vlog-heroes-the-best-video-capturers-unveiled/"><u>[Updated] VLog Heroes The Best Video Capturers Unveiled</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-pedagogical-picks-the-most-effective-video-recording-tools-for-instructors/"><u>2024 Approved Pedagogical Picks The Most Effective Video Recording Tools for Instructors</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-to-successfully-update-your-iphones-region-settings/"><u>How to Successfully Update Your iPhone's Region Settings</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-vivo-v27e-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Vivo V27e to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-mastering-instagram-launch-your-live-session/"><u>In 2024, Mastering Instagram Launch Your Live Session</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-turn-the-tape-counterclockwise-instagrams-reverse-play-technique/"><u>In 2024, Turn the Tape Counterclockwise Instagram's Reverse Play Technique</u></a></li>
+<li><a href="https://app-tips.techidaily.com/must-know-review-inside-look-at-the-revolutionary-eva-previously-ex-journey-chatbot/"><u>Must-Know Review: Inside Look at the Revolutionary EVA (Previously Ex Journey) Chatbot</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/top-strategies-fix-hitman-3-crashes-and-boost-performance-in-your-gaming-rig/"><u>Top Strategies: Fix Hitman 3 Crashes and Boost Performance in Your Gaming Rig</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/top-performing-2-in-1-convertible-laptops-beyond-hp-and-lenovo-uncovered/"><u>Top-Performing 2-in-1 Convertible Laptops Beyond HP and Lenovo: Uncovered</u></a></li>
 </ul></div>
 

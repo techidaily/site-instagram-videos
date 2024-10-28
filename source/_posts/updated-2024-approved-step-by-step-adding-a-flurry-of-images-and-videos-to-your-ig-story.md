@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Step-by-Step  Adding a Flurry of Images & Videos to Your IG Story\""
-date: 2024-10-18T17:36:57.730Z
-updated: 2024-10-22T16:25:14.148Z
+date: 2024-10-21T17:17:20.642Z
+updated: 2024-10-28T08:27:46.321Z
 tags:
   - ai video
   - ai instagram
@@ -41,16 +41,16 @@ thumbnail: https://thmb.techidaily.com/46c850237c04863ff656e578f32b008a00b71b463
 
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * As soon as you tap it, you will be able to see the recent photos and videos in your phone. Tap and hold, on any of the preferred image or video which you wish to upload, until you sense a slight vibration. Now, you have enabled the 'Select Multiple', scroll through the gallery and select rest 9 photos or videos that you wish to upload.
 
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-2.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Alternatively, if you have upgraded your Instagram app, you can simply tap the 'Select Multiple' option, represented by an icon of 'stacked squares', and select up to 10 photos/videos.
 
@@ -66,26 +66,26 @@ thumbnail: https://thmb.techidaily.com/46c850237c04863ff656e578f32b008a00b71b463
 
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-4.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * The next screen lets you caption your post, 'Add Location' and 'Tag people'. To tag people on individual photos, tap 'Tag People' and scroll through the slideshow to tag your friends in the images of your choice.
 
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-5.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Lastly, hit on 'Share' to publish your post with multiple photos/videos in it.
 
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-6.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -95,10 +95,10 @@ thumbnail: https://thmb.techidaily.com/46c850237c04863ff656e578f32b008a00b71b463
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948891/19272" target="_top" id="1948891">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948891" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948891/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -116,19 +116,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-a-step-by-step-guide-to-including-vimeo-on-instagram/"><u>[New] 2024 Approved A Step-by-Step Guide to Including Vimeo on Instagram</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-mastering-the-art-of-swapping-gender-representation-in-snapchatfacebook-photos/"><u>[New] In 2024, Mastering the Art of Swapping Gender Representation in Snapchat/Facebook Photos</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-visual-storytelling-on-social-media-crafting-an-effective-plan/"><u>[Updated] 2024 Approved Visual Storytelling on Social Media Crafting an Effective Plan</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-following-fades-track-losses-on-insta-for-2024/"><u>[Updated] Following Fades Track Losses on Insta for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-join-the-hilarity-tearfulness-spectacle-of-top-memes-on-ig/"><u>[Updated] Join the Hilarity-Tearfulness Spectacle of Top Memes on IG</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-the-echo-of-you-customizing-your-speak-on-reels-and-stories-for-2024/"><u>[Updated] The Echo of You Customizing Your Speak on Reels & Stories for 2024</u></a></li>
-<li><a href="https://solve-helper.techidaily.com/cookiebot-driven-success-boost-your-sites-performance-with-cutting-edge-technology/"><u>Cookiebot-Driven Success: Boost Your Site's Performance with Cutting-Edge Technology</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/essential-fixes-resolving-game-disc-compatibility-problems-with-the-nintendo-wii/"><u>Essential Fixes: Resolving Game Disc Compatibility Problems with the Nintendo Wii</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-mirth-makers-zombie-fashionistas/"><u>In 2024, Mirth Makers Zombie Fashionistas</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/navigating-youtube-skip-the-top-8-novice-missteps-in-2024/"><u>Navigating YouTube Skip the Top 8 Novice Missteps, In 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/optimize-your-windows-11-search-top-5-expert-methods/"><u>Optimize Your Windows 11 Search: Top 5 Expert Methods</u></a></li>
-<li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-xiaomi-redmi-k70-pro-drfone-by-drfone-virtual-android/"><u>The Best 8 VPN Hardware Devices Reviewed On Xiaomi Redmi K70 Pro | Dr.fone</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/the-definitive-2023-bandicam-handbook-for-gamers/"><u>The Definitive 2023 Bandicam Handbook for Gamers</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/top-11-free-apps-to-check-imei-on-poco-c50-phones-by-drfone-android/"><u>Top 11 Free Apps to Check IMEI on Poco C50 Phones</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-unlocking-the-secrets-of-instagrams-video-capsule/"><u>[New] 2024 Approved Unlocking the Secrets of Instagram's Video Capsule</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-cutting-the-chaff-skilled-techniques-for-cropping-videos-for-instagram/"><u>[New] Cutting the Chaff Skilled Techniques for Cropping Videos for Instagram</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-unlocking-maximum-potential-screen-recording-on-anymac/"><u>[New] Unlocking Maximum Potential Screen Recording on AnyMac</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-master-the-art-of-audible-social-media-posts-without/"><u>[Updated] 2024 Approved Master the Art of Audible Social Media Posts (Without)</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-shifting-gender-identity-in-online-profile-pictures/"><u>[Updated] 2024 Approved Shifting Gender Identity in Online Profile Pictures</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-discover-10-leading-online-video-editors-android-pc-for-2024/"><u>[Updated] Discover 10 Leading Online Video Editors (Android, PC) for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-prestige-pickers-top-ranked-websites-for-snapping-alert-songs/"><u>[Updated] Prestige Pickers Top-Ranked Websites for Snapping Alert Songs</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-efficiently-share-your-vision-via-igtv/"><u>2024 Approved Efficiently Share Your Vision via IGTV</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-from-tiktok-to-instagram-stardom-replicating-popular-reel-techniques/"><u>2024 Approved From TikTok to Instagram Stardom Replicating Popular Reel Techniques</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-perfectly-emulated-sony-ps3-titles-top-5-windows-tools/"><u>2024 Approved Perfectly Emulated Sony PS3 Titles Top 5 Windows Tools</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/complete-fixes-to-solve-apple-iphone-15-pro-max-randomly-asking-for-apple-id-password-drfone-by-drfone-ios/"><u>Complete Fixes To Solve Apple iPhone 15 Pro Max Randomly Asking for Apple ID Password | Dr.fone</u></a></li>
+<li><a href="https://win-dash.techidaily.com/ease-of-use-free-downloads-available-for-eveos-bluetooth-device-drivers/"><u>Ease of Use: Free Downloads Available for Eveo's Bluetooth Device Drivers</u></a></li>
+<li><a href="https://driver-install.techidaily.com/fast-track-intel-graphics-patching/"><u>Fast Track Intel Graphics Patching</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-in-ar-games-on-honor-play-7t-drfone-by-drfone-virtual-android/"><u>In 2024, How to Simulate GPS Movement in AR games On Honor Play 7T? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-a-lost-oppo-a78-5g-for-free-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track a Lost Oppo A78 5G for Free? | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-sharexs-standards-met-by-others/"><u>In 2024, ShareX's Standards Met by Others</u></a></li>
 </ul></div>
 

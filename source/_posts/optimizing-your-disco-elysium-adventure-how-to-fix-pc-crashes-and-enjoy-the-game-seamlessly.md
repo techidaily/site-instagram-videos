@@ -1,7 +1,7 @@
 ---
 title: "Optimizing Your Disco Elysium Adventure: How to Fix PC Crashes & Enjoy the Game Seamlessly"
-date: 2024-10-16T16:07:52.495Z
-updated: 2024-10-22T16:18:27.664Z
+date: 2024-10-26T00:19:52.448Z
+updated: 2024-10-27T21:08:09.800Z
 tags:
   - win11
   - win10
@@ -34,6 +34,13 @@ A screenshot of Ghostwire: Tokyo from Steam
 7. **[Disable Steam Overlay](https://tools.techidaily.com/drivereasy/download/)**
 8. **[Disable third-party antivirus software](https://tools.techidaily.com/drivereasy/download/)**
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Fix 1: Verify the game files
 
  Game file corruption are usually the culprit for the game crashing issues. If you’re not sure if any game files are missing or corrupted on your PC, you can follow the instructions below to verify integrity of game files:
@@ -48,13 +55,6 @@ A screenshot of Ghostwire: Tokyo from Steam
  Depending on the size of the game files, it may take some time to verify all your game files.
 
  After the the verifying process is complete, run Ghostwire: Tokyo to check if it crashes again. If this issue persists, try the next fix, below.
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Fix 2: Update graphics driver
 
@@ -81,6 +81,13 @@ There’re mainly two ways you can update your graphics drivers:
 
 Or
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Option 2: Automatically (Recommended)
 
  This is the quickest and easiest option. It’s all done with just a couple of mouse clicks – easy even if you’re a computer newbie.
@@ -98,15 +105,15 @@ Or
 ![Driver Easy Scan Now](https://images.drivereasy.com/wp-content/uploads/2021/03/Driver-Easy-Scan-Now.jpg)
 3. Click**Update All** to automatically download and install the correct version of_all_ the drivers that are missing or out of date on your system.  
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Update graphics drivers with Driver Easy](https://images.drivereasy.com/wp-content/uploads/2020/09/de-update-all-rtx-3080.jpg)  
  (This requires **[the Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click Update All. If you don’t want to pay for the Pro version, you can still download and install all the drivers you need with the free version; you just have to download them one at a time, and manually install them, the normal Windows way.)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **The Pro version of Driver Easy** comes with _full technical support_ . If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
 
@@ -115,13 +122,6 @@ Or
  Run Ghostwire: Tokyo and see if the crashing issue persists. Normally, after you updated the graphics driver, the game crashing issue will disappear.
 
  If the latest graphics driver fails to stop the crash, just read on to try the next fix, below.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Fix 3: Repair corrupted system files
 
@@ -140,16 +140,23 @@ Or
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/fortect-1.jpg)
 3. Fortect will scan your computer thoroughly. This may take a few minutes.  
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/fortect-2.jpg)
 4. Once done, you’ll see a detailed report of all the issues on your PC. To fix them automatically, click**START REPAIR** . This requires you to purchase the full version. But don’t worry. If Fortect doesn’t solve the issue, you can request a refund within 60 days.  
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/fortect-3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Fortect comes with 24/7 Technical Support. If you need any assistance, you can use one of the following:  
@@ -175,9 +182,23 @@ Or
 ![download latest DirectX](https://images.drivereasy.com/wp-content/uploads/2021/03/download-latest-DirectX.jpg)
 3. Once downloaded, double-click the downloaded**.exe** file to install it on your computer.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 4. Restart your computer and launch the game.
 
  See if Ghostwire: Tokyo crashes again after you installed the latest DirectX file. If this fix didn’t work for you, try the next fix, below.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Fix 6: Stop overclocking
 
@@ -189,13 +210,6 @@ Or
 
  See this issue persists after you stopped overclocking. If this fix didn’t help, try the next fix, below.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Fix 7: Disable Steam Overlay
 
  Overlays are convenient, but sometimes they would interfere with the game and even block the game files, leading to the game crashing issues.
@@ -206,25 +220,11 @@ Or
 ![Steam game properties](https://images.drivereasy.com/wp-content/uploads/2021/04/Steam-game-F1-2020-properties.jpg)
 2. Uncheck **Enable Steam Overlay while in-game** .  
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![disable steam overlay](https://images.drivereasy.com/wp-content/uploads/2021/05/disable-steam-overlay.jpg)
 
  If you’re using other apps with overlay features (e.g. Xbox Game Bar, Discord, Nvidia GeForce Experience, Twitch, etc.), ensure you’ve disabled the in-game overlay in those apps feature.
 
  Launch Ghostwire: Tokyo and see if the it crashes again. If this fix doesn’t work, try the next fix, below.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Fix 8: Disable third-party antivirus software
 
@@ -257,20 +257,14 @@ Or
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-instas-tunes-ownership-and-legalities/"><u>[New] 2024 Approved Insta's Tunes Ownership & Legalities</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-how-to-link-up-in-the-world-of-instagram-for-2024/"><u>[New] How-To Link Up in the World of Instagram for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-avoiding-instagrams-false-facade-for-a-solid-stature-for-2024/"><u>[Updated] Avoiding Instagram's False Facade for a Solid Stature for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-chasing-likes-and-loads-jake-pauls-youtube-ambition-for-2024/"><u>[Updated] Chasing Likes and Loads Jake Paul's YouTube Ambition for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-unveiling-igtv-your-ultimate-tutorial/"><u>[Updated] In 2024, Unveiling IGTV Your Ultimate Tutorial</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-instagram-tracking-essentials-choosing-the-best-data-visualization-apps/"><u>[Updated] Instagram Tracking Essentials Choosing the Best Data Visualization Apps</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-the-complete-playbook-for-instagram-revenue-generation/"><u>[Updated] The Complete Playbook for Instagram Revenue Generation</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/bestow-photographic-frames-with-outer-radial-smearing/"><u>Bestow Photographic Frames with Outer Radial Smearing</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/can-i-bypass-a-forgotten-phone-password-of-samsung-galaxy-s23plus-by-drfone-android/"><u>Can I Bypass a Forgotten Phone Password Of Samsung Galaxy S23+?</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/discovering-dts-virtual-x-the-complete-breakdown-and-overview/"><u>Discovering DTS Virtual: X - The Complete Breakdown and Overview</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/identifying-your-macbook-pro-or-air-a-comprehensive-breakdown/"><u>Identifying Your MacBook Pro or Air: A Comprehensive Breakdown</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-ten-simple-steps-to-acquire-igtv-media/"><u>In 2024, Ten Simple Steps to Acquire IGTV Media</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/leveraging-ai-for-serenity-in-chaos/"><u>Leveraging AI for Serenity in Chaos</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/unlock-the-power-of-voice-chat-fix-speaker-and-microphone-issues-on-your-sea-of-thieves-game/"><u>Unlock the Power of Voice Chat: Fix Speaker and Microphone Issues on Your Sea of Thieves Game</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-capabilities-of-netgears-ex3700-ac750-wi-fi-booster-in-depth-review/"><u>Unveiling the Capabilities of Netgear's EX3700 AC750 Wi-Fi Booster – In Depth Review</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-elevating-your-desktop-mastering-screenshot-and-recording/"><u>[New] 2024 Approved Elevating Your Desktop Mastering Screenshot and Recording</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-is-your-social-media-strategy-up-to-date-with-facebook-changes/"><u>[New] 2024 Approved Is Your Social Media Strategy Up-to-Date with Facebook Changes?</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-the-art-of-repeated-imagery-in-instagram-videos/"><u>[New] 2024 Approved The Art of Repeated Imagery in Instagram Videos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-choose-wisely-best-border-tools-for-stylizing-instagram-photos/"><u>[New] In 2024, Choose Wisely Best Border Tools for Stylizing Instagram Photos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-the-ultimate-instagram-captioning-hack-for-reels-and-stories/"><u>[New] In 2024, The Ultimate Instagram Captioning Hack for Reels and Stories</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-achieve-massive-momentum-hit-1k-ig-gains-monthly/"><u>[Updated] In 2024, Achieve Massive Momentum Hit 1K IG Gains Monthly</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/discover-7-outstanding-chrome-plugins-to-elevate-your-chatgpt-experience-online/"><u>Discover 7 Outstanding Chrome Plugins to Elevate Your ChatGPT Experience Online!</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-fixing-shorts-the-thumbnail-not-showing-dilemma/"><u>In 2024, Fixing Shorts The Thumbnail Not Showing Dilemma</u></a></li>
+<li><a href="https://program-issues.techidaily.com/quickly-resolve-bluestacks-software-issues-5-simple-fixes/"><u>Quickly Resolve BlueStacks Software Issues: 5 Simple Fixes</u></a></li>
 </ul></div>
 

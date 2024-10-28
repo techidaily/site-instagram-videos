@@ -1,7 +1,7 @@
 ---
 title: "Troubleshooting Tips for Call of Duty: Black Ops Cold War - Overcoming Error 27711"
-date: 2024-10-16T17:51:47.255Z
-updated: 2024-10-22T18:05:15.593Z
+date: 2024-10-23T17:02:10.545Z
+updated: 2024-10-27T16:59:32.635Z
 tags:
   - win11
   - win10
@@ -27,10 +27,10 @@ In the past couple days, many Cold War gamers are reporting a**UI error 27711** 
 4. **[Install all Windows updates](https://tools.techidaily.com/drivereasy/download/)**
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Fix 1: Restart your PC
@@ -47,14 +47,14 @@ In the past couple days, many Cold War gamers are reporting a**UI error 27711** 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/bocw-verify.jpg)
 2. Click **Options**  and select **Scan and Repair** . Then wait until the checking is completed.  
 
-![](https://images.drivereasy.com/wp-content/uploads/2020/11/bocw-verify-2.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![](https://images.drivereasy.com/wp-content/uploads/2020/11/bocw-verify-2.jpg)
 
 Now you can launch the game and see if it loads this time.
 
@@ -108,10 +108,10 @@ Here’s how you can check for updates manually:
 2. Scroll down and select**Update & Security** .  
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/windows-10-start-menu-open-settings-update.jpg)
@@ -122,10 +122,10 @@ Here’s how you can check for updates manually:
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/windows-10-start-menu-open-settings-update-3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  To make sure you’ve installed _all_  the system updates, **repeat these steps** until it prompts “You’re up to date” when you click **Check for updates** again.
@@ -151,14 +151,24 @@ Here’s how you can check for updates manually:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-unleash-creativity-with-must-have-camera-extras/"><u>[New] Unleash Creativity with Must-Have Camera Extras</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-elevating-your-visuals-mastering-instagram-edits-in-fcpx/"><u>[Updated] Elevating Your Visuals Mastering Instagram Edits in FCPX</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-tips-for-uninterrupted-obs-video-playback/"><u>[Updated] Tips for Uninterrupted OBS Video Playback</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/fresh-content-massive-traction-secrets-to-a-thriving-insta-account/"><u>Fresh Content, Massive Traction Secrets to a Thriving Insta Account</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/how-to-download-igtv-videos-on-windows-pcmac-5-ways-for-2024/"><u>How to Download IGTV Videos on Windows PC/Mac? [5 Ways] for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-unfollower-detection-on-instagram/"><u>In 2024, Unfollower Detection on Instagram</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/snag-soundwaves-from-fb-topics-for-2024/"><u>Snag Soundwaves From Fb Topics for 2024</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/the-ultimate-guide-to-the-ambient-weather-ws-1002-wifi-observer-top-notch-quality-with-a-hefty-price/"><u>The Ultimate Guide to the Ambient Weather WS-1002 WiFi Observer: Top Notch Quality with a Hefty Price</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/uncover-recent-instagram-unfollow-patterns-for-2024/"><u>Uncover Recent Instagram Unfollow Patterns for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-how-to-add-border-to-instagram-photos-with-best-apps/"><u>[New] 2024 Approved How to Add Border to Instagram Photos with Best Apps</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-maximizing-visibility-how-to-upload-videos-to-instagram-desktop/"><u>[New] 2024 Approved Maximizing Visibility How to Upload Videos to Instagram Desktop</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-recommendations-to-overcome-live-breakdowns-fb/"><u>[New] 2024 Approved Recommendations to Overcome Live Breakdowns (FB)</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-easy-instagram-posting-for-gif-lovers-4-essential-tips-for-2024/"><u>[New] Easy Instagram Posting for GIF Lovers 4 Essential Tips for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-how-to-block-someone-on-instagram/"><u>[New] How to Block Someone on Instagram?</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-samsung-ubd-k8500-refreshed-2023-overview/"><u>[New] Samsung UBD-K8500 Refreshed - 2023 Overview</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-maximizing-impact-the-best-instagram-hashtag-list/"><u>[Updated] 2024 Approved Maximizing Impact The Best Instagram Hashtag List</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-elevate-photography-crafting-exceptional-time-lapses-with-black-hero5/"><u>[Updated] Elevate Photography Crafting Exceptional Time-Lapses with Black Hero5</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-eye-catching-youtube-most-followed-channels-for-2024/"><u>[Updated] Eye-Catching YouTube Most Followed Channels for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-guiding-principles-for-swapping-gender-on-instagram-facebook-and-snapchat-pics/"><u>[Updated] Guiding Principles for Swapping Gender on Instagram, Facebook & Snapchat Pics</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-everyone-should-have-one-video-collage-app-in-android-phone/"><u>[Updated] In 2024, Everyone Should Have One Video Collage App in Android Phone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-step-by-step-guide-adding-subs-to-igtv-for-2024/"><u>[Updated] Step-by-Step Guide Adding Subs to IGTV for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ge-revenue-what-every-view-contributes-to-creators-for-2024/"><u>Average Revenue What Every View Contributes to Creators for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/decoding-error-code-0x80n070570-expert-guide-on-troubleshooting-and-fix/"><u>Decoding Error Code 0X80n070570: Expert Guide on Troubleshooting and Fix</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/instagrams-latest-trends-in-video-loop-production/"><u>Instagram's Latest Trends in Video Loop Production</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ng-the-desktopmobile-youtube-speed-control/"><u>Nailing the Desktop/Mobile YouTube Speed Control</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/secret-vlc-tactics-for-optimal-viewing-experience-for-2024/"><u>Secret VLC Tactics for Optimal Viewing Experience for 2024</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/sideways-monitor-conversion-complete/"><u>Sideways Monitor Conversion Complete</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/snapit-share-it-in-order-on-ig-for-2024/"><u>SnapIt, Share It in Order on IG for 2024</u></a></li>
 </ul></div>
 

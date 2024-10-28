@@ -1,7 +1,7 @@
 ---
 title: Affordable Lifestyle, High-Quality Video
-date: 2024-10-17T16:18:13.698Z
-updated: 2024-10-22T17:46:44.305Z
+date: 2024-10-21T11:23:03.052Z
+updated: 2024-10-27T17:56:30.936Z
 categories:
   - BestProducts
 description: This Article Describes Affordable Lifestyle, High-Quality Video
@@ -37,13 +37,6 @@ Lifewire / Jeffrey Daniel Chadwick
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Kensun AC/DC Portable Air Pump Tire Inflator
 
 ![Kensun Portable Tire Inflator](https://www.lifewire.com/thmb/MEKNaqKs5klEYPtoc5EGv7lAyJU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/KensunPortableTireInflator_HeroSquare-c74ce1562bed43b897087fa89d11df23.jpg)
@@ -70,6 +63,13 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design and Features: Maximum portability, but not maximum flexibility**
 
  The form factor of the Kensun Portable Tire Inflator is a case study in maximum portability. It weighs a mere 5 pounds, and the sturdy handle makes it easy to pick up and move around. Moreover, at 11.8 inches long, 4.3 inches wide and 6.7 inches tall, it’s quite compact. And it’s hard plastic casing means it can withstand some punishment and still deliver top performance.
@@ -93,10 +93,10 @@ Lifewire / Jeffrey Daniel Chadwick
  Lifewire / Jeffrey Daniel Chadwick
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
-  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup Process: T-minus one minute**
@@ -104,6 +104,13 @@ Lifewire / Jeffrey Daniel Chadwick
  Once you’ve read the user manual, you’ll know how to use the Kensun portable tire inflator. Nevertheless, you’ll want to do some test runs before you take it on the road. During our testing phase, we timed how long it takes from getting out of the car to the pump inflating one of our tires. It took about one minute, which is good time if you’re on the side of the highway with an unexpected flat.
 
  Lifewire / Jeffrey Daniel Chadwick
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: Reliable, accurate, quick and loud**
 
@@ -125,22 +132,16 @@ Lifewire / Jeffrey Daniel Chadwick
 
  One of the most convenient things about this portable air pump is its auto-shutdown feature. This allows you to select the precise tire pressure you want before you start pumping. Once the tire is inflated to the desired pressure, it shuts down. This means that you don’t have to babysit the pump while it's going, and all but guarantees that you won’t over-inflate your tires.
 
-<!-- affiliate ads begin -->
-<span id="1975503">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: A decent buy considering its versatility**
 
  The Kensun Portable Tire Inflator has an MSRP of $80 on Amazon, which is a good price for what you get. It’s not nearly as affordable as some budget models we’ve seen, such as the Audew Portable Air Compressor Pump, which will only run you $40, but it gives you the convenience of not having to be tethered to your car to inflate something.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Kensun Portable Tire Inflator vs. Jaco Digital Tire Inflator**
 
@@ -155,13 +156,6 @@ Lifewire / Jeffrey Daniel Chadwick
  **A portable tire inflator that can work well in a car or at home.**
 
  The Kensun Portable Tire Inflator is a great choice to keep in your truck, garage, or wherever you keep your “just-in-case” supplies. It’s a device that is as necessary for drivers as jumper cables and an emergency flashlight. You can count on it to be reliable when you need it, and fill your tires quickly and accurately. Plus, the added benefit of being able to plug it into your wall can’t be overstated. It has its foibles, but in the grand scheme of things, they’re minor inconveniences.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -188,15 +182,19 @@ Lifewire / Jeffrey Daniel Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-navigating-new-media-the-marketers-top-10-ig-editing-platforms/"><u>[Updated] 2024 Approved Navigating New Media The Marketer's Top 10 IG Editing Platforms</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-elevate-your-aspects-a-beginner-cookbook-for-asmr-filmmaking-for-2024/"><u>[Updated] Elevate Your Aspects A Beginner' Cookbook for ASMR Filmmaking for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-a-curated-list-of-happiness-crying-combo-on-instagram-pages/"><u>2024 Approved A Curated List of Happiness-Crying Combo on Instagram Pages</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-boosting-your-competitive-edge-with-custom-vocalization-techniques-in-free-fire-gaming-free-solution-included/"><u>2024 Approved Boosting Your Competitive Edge with Custom Vocalization Techniques in Free Fire Gaming (Free Solution Included)</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/discovering-androids-and-ioss-best-rated-wedding-clock-apps-for-2024/"><u>Discovering Android's and iOS's Best-Rated Wedding Clock Apps for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/how-to-handle-illegal-game-entry-error-messages-successfully/"><u>How to Handle 'Illegal Game Entry' Error Messages Successfully</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/instagram-etiquette-ceasing-connections/"><u>Instagram Etiquette Ceasing Connections</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/streamline-tasks-with-7-chatgpt-tips-for-optimal-output/"><u>Streamline Tasks with 7 ChatGPT Tips for Optimal Output</u></a></li>
-<li><a href="https://extra-information.techidaily.com/unlocking-full-potential-in-depth-review-of-lgs-monitor-tech/"><u>Unlocking Full Potential In-Depth Review of LG's Monitor Tech</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/vocal-variations-for-stories-and-reels-an-instagram-expertise-for-2024/"><u>Vocal Variations for Stories and Reels – An Instagram Expertise for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-boosting-bank-balance-effective-tactics-for-mobile-video-money-making/"><u>[New] 2024 Approved Boosting Bank Balance Effective Tactics for Mobile Video Money-Making</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-champions-list-of-superior-gk-trivia-platforms-2024/"><u>[New] Champion's List of Superior GK Trivia Platforms, 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-discover-these-eight-handy-apps-to-upload-reels-on-instagram-for-2024/"><u>[New] Discover These Eight Handy Apps to Upload Reels on Instagram for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-from-novice-to-pro-a-complete-exploration-of-zd-software-recording-features/"><u>[Updated] 2024 Approved From Novice to Pro A Complete Exploration of ZD Software Recording Features</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-guidelines-for-legally-reposting-on-insta/"><u>[Updated] Guidelines for Legally Reposting on Insta</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-boost-your-videos-best-editing-apps-for-android-pc-users/"><u>[Updated] In 2024, Boost Your Videos Best Editing Apps for Android, PC Users</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/amplify-your-brands-voice-with-these-pivotal-promotion-tactics-for-2024/"><u>Amplify Your Brand's Voice with These Pivotal Promotion Tactics for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/easy-guide-to-obtaining-and-installing-intel-serial-controller-drivers/"><u>Easy Guide to Obtaining & Installing Intel Serial Controller Drivers</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/easy-steps-on-how-to-create-a-new-apple-id-account-on-iphone-8-plus-by-drfone-ios/"><u>Easy Steps on How To Create a New Apple ID Account On iPhone 8 Plus</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-instagram-storytelling-mastery-top-video-marketing-tactics-explored/"><u>In 2024, Instagram Storytelling Mastery Top Video Marketing Tactics Explored</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/mastering-the-art-of-measuring-igtv-video-quality/"><u>Mastering the Art of Measuring IGTV Video Quality</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-2024-approved-unleashing-creativity-in-mobile-sound-selection-how-to-design-ringtones/"><u>New 2024 Approved Unleashing Creativity in Mobile Sound Selection How to Design Ringtones</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/solving-the-arduino-uno-connection-problem-in-windows-systems/"><u>Solving the Arduino Uno Connection Problem in Windows Systems</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-ultimate-guide-to-podcast-post-production-in-garageband-for-2024/"><u>The Ultimate Guide to Podcast Post-Production in GarageBand for 2024</u></a></li>
 </ul></div>
 

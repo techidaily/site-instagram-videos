@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, The Ultimate How-To  Subtitling Your IGTV Videos\""
-date: 2024-10-18T16:52:53.185Z
-updated: 2024-10-22T16:25:28.532Z
+date: 2024-10-24T05:08:12.193Z
+updated: 2024-10-28T06:32:59.698Z
 tags:
   - ai video
   - ai instagram
@@ -64,10 +64,10 @@ Adding subtitles to a video can be a painstakingly long process if you’re work
 Once you’re done adding the subtitles you should click on the **Photo Camera icon** to take a snapshot of the video, you can use as a **cover photo for your IGTV video**. Export the video and proceed to upload it to IGTV from your web browser or from your phone.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Add Text to IGTV Videos with the Quik App For iOS and Android Devices
@@ -75,10 +75,16 @@ Once you’re done adding the subtitles you should click on the **Photo Camera i
 In case you like editing IGTV videos from your phone, you can try adding subtitles to your IGTV videos with the Quik app. After you’ve completed all other video editing tasks, you should tap on the **Text icon** and type in the text you’d like to add to the video. Hit the **OK button** after you’ve added the text and that’s it you’ve successfully created the subtitles for your IGTV video. How long the process of creating hardcoded subtitles is going to last depends on the duration of the video and the amount of narration or dialogue in the video.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1630055">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Tips for Adding Subtitles to IGTV Videos
@@ -92,10 +98,10 @@ Even though adding subtitles to videos can require a lot of precision and attent
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948891/19272" target="_top" id="1948891">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948891" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948891/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -113,22 +119,14 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-avoid-unnecessary-interactions-block-strategies/"><u>[New] 2024 Approved Avoid Unnecessary Interactions Block Strategies</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-the-hidden-powerhouses-in-your-instagram-toolkit/"><u>[New] In 2024, The Hidden Powerhouses in Your Instagram Toolkit</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-instastorysaver-free-storage-beyond-counts/"><u>[New] InstaStorySaver Free Storage Beyond Counts</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-prime-applications-transforming-vtuber-voices-on-the-fly-for-2024/"><u>[New] Prime Applications Transforming VTuber Voices on the Fly for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-the-unseen-facts-instagram-reels-demystified-ten-points/"><u>[New] The Unseen Facts Instagram Reels Demystified (Ten Points)</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-color-consistency-comparing-srgb-and-rgb-formats/"><u>[Updated] Color Consistency Comparing Srgb and Rgb Formats</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-discovering-clarity-and-performance-in-4k-a-closer-look-at-benq-bl2711u/"><u>[Updated] In 2024, Discovering Clarity and Performance in 4K - A Closer Look at BenQ BL2711U</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-innovative-strategies-for-engaging-your-audience-with-puzzles-on-instagram/"><u>[Updated] Innovative Strategies for Engaging Your Audience with Puzzles on Instagram</u></a></li>
-<li><a href="https://fox-http.techidaily.com/customizing-your-call-alerts-a-step-by-step-guide-on-iphone-for-2024/"><u>Customizing Your Call Alerts A Step-by-Step Guide on iPhone for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-oppo-reno-10-proplus-5g-android-system-webview-crash-2024-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Oppo Reno 10 Pro+ 5G Android System Webview Crash 2024 Issue | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/hilarity-and-sobriety-a-list-of-top-10-memetic-spots-on-insta-for-2024/"><u>Hilarity & Sobriety A List of Top 10 Memetic Spots on Insta for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-videos-from-90-gt-by-fonelab-android-recover-video/"><u>How to retrieve erased videos from 90 GT</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-6-ways-to-change-spotify-location-on-your-realme-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 6 Ways to Change Spotify Location On Your Realme 12 5G | Dr.fone</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/live-streaming-mastery-the-ultimate-guide-to-using-manycam-and-virtual-camcorders/"><u>Live Streaming Mastery: The Ultimate Guide to Using ManyCam and Virtual Camcorders</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-motorola-razr-40-ultra-device-by-drfone-android/"><u>Mastering Android Device Manager The Ultimate Guide to Unlocking Your Motorola Razr 40 Ultra Device</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/maximize-engagement-on-instagram-using-these-top-25-tags-for-2024/"><u>Maximize Engagement on Instagram Using These Top 25 Tags for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/streamline-and-slim-vids-instagram-tips-using-macos-for-2024/"><u>Streamline and Slim Vids Instagram Tips Using macOS for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-synergizing-social-networks-share-your-igtv-content-for-2024/"><u>[New] Synergizing Social Networks Share Your IGTV Content for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-adding-frames-to-instagram-videos-3-procedures/"><u>[Updated] In 2024, Adding Frames to Instagram Videos - 3 Procedures</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-elevating-brand-presence-a-guide-to-influencer-marketing-on-instagram/"><u>[Updated] In 2024, Elevating Brand Presence A Guide to Influencer Marketing on Instagram</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/crafting-cinematic-images-on-iphone-8-advanced-techniques/"><u>Crafting Cinematic Images on iPhone 8 Advanced Techniques</u></a></li>
+<li><a href="https://win-forum.techidaily.com/eliminate-pesky-directories-effortlessly-revo-uninstallers-power-on-windows-10-and-11/"><u>Eliminate Pesky Directories Effortlessly: Revo Uninstaller's Power on Windows 10 and 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-tweet-and-snap-campaign-as-pillars-of-jbs-plan/"><u>FB, Tweet, and Snap Campaign as Pillars of JB's Plan</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-leading-oculus-rift-gaming-titles-of-the-year/"><u>In 2024, The Leading Oculus Rift Gaming Titles of the Year</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-tips-for-the-persistent-error-0xc19001e1-in-windows-navigating-through-fixes/"><u>Troubleshooting Tips for the Persistent 'Error 0xC19001E1' In Windows Navigating Through Fixes</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/uncomplicated-methods-sharing-igtv-in-stories-for-2024/"><u>Uncomplicated Methods Sharing IGTV in Stories for 2024</u></a></li>
 </ul></div>
 

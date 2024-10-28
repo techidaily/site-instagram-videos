@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Instagram Filters in a Nutshell  Get Them Right This Year\""
-date: 2024-10-18T18:41:21.649Z
-updated: 2024-10-22T18:34:31.782Z
+date: 2024-10-24T06:03:10.071Z
+updated: 2024-10-28T09:40:19.820Z
 tags:
   - ai video
   - ai instagram
@@ -41,6 +41,13 @@ The Instagram filter is a valuable tool that enables you to alter your picture w
 
 This feature, although user-friendly, might be confusing for some. That is why we will show you how to enhance your posts and stories in a few simple steps.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Add Filters to a Photo and Video on Instagram Story?
 
 With the easy layout provided by Instagram, it is incredibly easy to edit your pictures. Specifically, talking about adding filters to a photo or video on the Instagram story is probably the easiest thing to do on Instagram, and it does not even take much time. Adding filters to your photo or video can take a maximum of five minutes to do so.
@@ -62,10 +69,16 @@ Now that you have selected a photo, an editing screen will be displayed on your 
 ![Use Ins filters](https://images.wondershare.com/filmora/article-images/instagram-story-filters-effects-option.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424533">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 3: Add the Picture/Video to Story**
@@ -73,13 +86,6 @@ Now that you have selected a photo, an editing screen will be displayed on your 
 Tap on **Done** once you have chosen a filter. And then, add the picture/video to your Instagram story by clicking on the icon labeled **Your** **Story**.
 
 ![add  filters to Ins Story](https://images.wondershare.com/filmora/article-images/add-filters-to-instagram-story.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: How to Apply Filters to Instagram Posts and Carousel Posts?b
 
@@ -102,10 +108,10 @@ Next, tap on the **Next** icon present at the top right corner to apply filters 
 ![add  filters to Ins carousel post](https://images.wondershare.com/filmora/article-images/apply-filters-instagram-carousel-post-add-post.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 3: Share your Post**
@@ -144,6 +150,19 @@ The initial step is to select or capture a photo/video. Go to the filters screen
 
 ![ins  filters manage](https://images.wondershare.com/filmora/article-images/instagram-filter-manage.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983584">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2: Rearrange or Hide Filters**
 
 For rearranging your filters, hold and drag the three lines on the left side of the specified filter to wherever you want it to be. As for hiding a specific filter, tap on the circle present at the right side of the filter. When the tick sign disappears and the color of the title of the filter fades, it means that the filter has been hidden.
@@ -151,19 +170,6 @@ For rearranging your filters, hold and drag the three lines on the left side of 
 **Note:** Another way to rearrange or hide filters is to do it from the filters screen. Long press on the specified filter and drag it to the position you want it to be. And drop the filter on the **Drag to hide** option to hide the selected filter. You can always turn off this feature from the manage menu.
 
 ![arrange ins  filters](https://images.wondershare.com/filmora/article-images/arrange-hide-instagram-filters.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1531882">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 3: Tap Done**
 
@@ -194,16 +200,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-intellectual-property-rules-for-instagram-beats/"><u>[New] In 2024, Intellectual Property Rules for Instagram Beats</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-inverted-intrigue-mastering-the-art-of-turning-photos-for-instagram-glory-for-2024/"><u>[New] Inverted Intrigue Mastering the Art of Turning Photos for Instagram Glory for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-the-insta-editors-playbook-video-cropping-for-maximum-visibility/"><u>[New] The Insta Editors' Playbook Video Cropping for Maximum Visibility</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-instagram-how-to-watch-videos-quickly-and-smoothly/"><u>[Updated] 2024 Approved Instagram How to Watch Videos Quickly & Smoothly</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-customize-your-youtube-view-adjust-speed-settings/"><u>[Updated] Customize Your YouTube View Adjust Speed Settings</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-maximizing-instagram-video-exposure/"><u>[Updated] In 2024, Maximizing Instagram Video Exposure</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-monitoring-lost-instagram-connections/"><u>[Updated] Monitoring Lost Instagram Connections</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-gopro-review-showdown-max-360-vs-hero-11-edition/"><u>2024 Approved GoPro Review Showdown Max 360 VS Hero 11 Edition</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/guide-ultime-comment-ameliorer-la-performance-de-votre-pc-pour-les-jeu-videos-sous-windows-11/"><u>Guide Ultime : Comment Améliorer La Performance De Votre PC Pour Les Jeu Vidéos Sous Windows 11</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-locked-for-security-reasons-from-iphone-13-pro-find-the-best-solution-here-by-drfone-ios/"><u>In 2024, Apple ID Locked for Security Reasons From iPhone 13 Pro? Find the Best Solution Here</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-dose-life360-notify-me-when-someone-checks-my-location-on-nokia-c22-drfone-by-drfone-virtual-android/"><u>In 2024, Dose Life360 Notify Me When Someone Checks My Location On Nokia C22? | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-eco-conscious-screen-tech-guide/"><u>[New] 2024 Approved Eco-Conscious Screen Tech Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-unveiling-the-beginning-an-in-depth-guide-to-tracking-originality-on-insta-for-2024/"><u>[New] Unveiling The Beginning An In-Depth Guide to Tracking Originality on Insta for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-from-beginner-to-expert-navigating-instagrams-virtual-conversations/"><u>[Updated] 2024 Approved From Beginner to Expert Navigating Instagram’s Virtual Conversations</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-mastering-instagram-profit-the-ultimate-strategy-blueprint/"><u>[Updated] In 2024, Mastering Instagram Profit The Ultimate Strategy Blueprint</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-voice-logging-devices-scrutiny/"><u>[Updated] Voice Logging Devices Scrutiny</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/explore-largest-collection-of-free-vector-graphics-portals-for-2024/"><u>Explore Largest Collection of Free Vector Graphics Portals for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-unfortunately-settings-has-stopped-on-honor-v-purse-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Unfortunately Settings Has Stopped on Honor V Purse Quickly | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-ultimate-tonal-transformation-for-android-users/"><u>In 2024, The Ultimate Tonal Transformation for Android Users</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/meta-pauses-production-of-current-and-future-quest-virtual-reality-devices-sources-confirm/"><u>Meta Pauses Production of Current & Future 'Quest' Virtual Reality Devices, Sources Confirm</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/safari-users-handbook-to-eliminate-tracking-parameters-and-secure-personal-information-on-macos-cybersafe-solutions/"><u>Safari User's Handbook to Eliminate Tracking Parameters & Secure Personal Information on MacOS | CyberSafe Solutions</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/soundtrack-synthesis-selecting-audio-for-instagram-visions-for-2024/"><u>Soundtrack Synthesis Selecting Audio for Instagram Visions for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/the-screen-recorder-showdown-experts-take-on-popular-tools-for-2024/"><u>The Screen Recorder Showdown Experts' Take on Popular Tools for 2024</u></a></li>
+<li><a href="https://win-great.techidaily.com/verlorene-herunterladen-steam-dateien-wiederfinden-restaurierungstechniken-erklart/"><u>Verlorene Herunterladen Steam-Dateien Wiederfinden - Restaurierungstechniken Erklärt</u></a></li>
 </ul></div>
 

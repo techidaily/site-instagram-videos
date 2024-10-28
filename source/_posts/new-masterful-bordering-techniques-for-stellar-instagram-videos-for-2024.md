@@ -1,7 +1,7 @@
 ---
 title: "[New] Masterful Bordering Techniques for Stellar Instagram Videos for 2024"
-date: 2024-10-16T16:11:01.854Z
-updated: 2024-10-22T16:32:47.890Z
+date: 2024-10-24T01:23:06.569Z
+updated: 2024-10-27T21:48:12.454Z
 tags:
   - ai video
   - ai instagram
@@ -74,13 +74,6 @@ Moreover, adding borders to your favorite Instagram videos is pretty much a stra
 
 ![ filmora border effects](https://images.wondershare.com/filmora/article-images/filmora-border-effects.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 6**: If you _don't_ see the **Utility** section in the **Effects** tab, head over to the **Search** bar located at the top right corner of the interface and type "**_Border"_** to find the desired effect directly.
 
 **Step 7:** After locating the **Border** effect, tap and hold the effect to drag and drop onto the timeline, as shown in the picture below. You will now see your video with the **Border** effect applied to it.
@@ -90,6 +83,13 @@ Moreover, adding borders to your favorite Instagram videos is pretty much a stra
 **Step 8:** If you're not fond of the _white borders_ applied by default on your video, double-click on the video timeline and head over to the **Video** tab present on the top left corner of the interface, and tap on the **Video Effects**.
 
 ![adjust borders effects](https://images.wondershare.com/filmora/article-images/filmora-adjust-border-effects.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 9:** The **Video Effect** option opens various options for further customizing your video with the Border effect. You now have the **Color** option to choose the one of your liking (the _red color_ is applied in this picture below).
 
@@ -111,6 +111,13 @@ For macOS 10.12 or later
 
 _Learn more about [how to edit Instagram videos with Filmora](https://tools.techidaily.com/wondershare/filmora/download/)_.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: How to Add Border to Video for Instagram Online?
 
 In this part of the guide, we will look at three methods and guide you on how to add border to video for Instagram online using Kapwing, Canva
@@ -131,13 +138,6 @@ It's a free online application for editing photos, movies, and GIFs. It does not
 
 ![kapwing export video](https://images.wondershare.com/filmora/article-images/export-video-with-borders-kapwing.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
-  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Note: if you want to remove the watermark after exporting, you may need to sign in a new account or sign up.
 
 ### 2\. Canva
@@ -147,19 +147,6 @@ Canva is a must-have software for anybody who modifies both pictures and videos.
 **Step 1:** Try downloading and _launching_ the **Canva app**, or use the web browser to access it. Then go to **Social media** and pick your preferred film aspect ratio. Here I will choose Instagram Post.
 
 ![create instagram story video on canva](https://images.wondershare.com/filmora/article-images/create-instagram-story-canva.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 2:** Then upload the video to **Canva** to modify it and apply a border. To do so, go to the left pane and choose **Upload media** from the **Uploads** menu. Now navigate to the video's location and post it.
 
@@ -172,10 +159,10 @@ Canva is a must-have software for anybody who modifies both pictures and videos.
 ![change background color in canva](https://images.wondershare.com/filmora/article-images/change-background-color-border-canva.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Conclusion**
@@ -202,6 +189,13 @@ If you're unsure what video size is ideal for you to upload on your Instagram ac
 | IGTV Videos              | 9:16                     | 1080 x 1920      |
 | Instagram Reels          | 9:16                     | 1080 x 1920      |
 | Instagram Live Videos    | 9:16                     | 1080 x 1920      |
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2: How to Add Border to Video for Instagram with Desktop Software?
 
@@ -233,13 +227,6 @@ Moreover, adding borders to your favorite Instagram videos is pretty much a stra
 
 ![ filmora border effects](https://images.wondershare.com/filmora/article-images/filmora-border-effects.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 6**: If you _don't_ see the **Utility** section in the **Effects** tab, head over to the **Search** bar located at the top right corner of the interface and type "**_Border"_** to find the desired effect directly.
 
 **Step 7:** After locating the **Border** effect, tap and hold the effect to drag and drop onto the timeline, as shown in the picture below. You will now see your video with the **Border** effect applied to it.
@@ -270,16 +257,16 @@ For macOS 10.12 or later
 
 _Learn more about [how to edit Instagram videos with Filmora](https://tools.techidaily.com/wondershare/filmora/download/)_.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3: How to Add Border to Video for Instagram Online?
 
 In this part of the guide, we will look at three methods and guide you on how to add border to video for Instagram online using Kapwing, Canva
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. Kapwing
 
@@ -383,16 +370,10 @@ Moreover, adding borders to your favorite Instagram videos is pretty much a stra
 ![adjust borders effects](https://images.wondershare.com/filmora/article-images/filmora-adjust-border-effects.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1374819">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 9:** The **Video Effect** option opens various options for further customizing your video with the Border effect. You now have the **Color** option to choose the one of your liking (the _red color_ is applied in this picture below).
@@ -467,6 +448,13 @@ That is why we decided to compile everything about those new users who cannot fi
 
 04 [Best Apps to Add Borders to Video on Instagram](#part4)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 1: Instagram Video Size Checklist You Should Know
 
 If you're unsure what video size is ideal for you to upload on your Instagram account, follow the table below to understand the best Instagram video sizes better.
@@ -479,6 +467,13 @@ If you're unsure what video size is ideal for you to upload on your Instagram ac
 | IGTV Videos              | 9:16                     | 1080 x 1920      |
 | Instagram Reels          | 9:16                     | 1080 x 1920      |
 | Instagram Live Videos    | 9:16                     | 1080 x 1920      |
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2: How to Add Border to Video for Instagram with Desktop Software?
 
@@ -501,13 +496,6 @@ Moreover, adding borders to your favorite Instagram videos is pretty much a stra
 **Step 2:** Next, drag and drop the video onto the **Timeline** for a better preview, as shown below.
 
 ![add instagram to filmora timeline](https://images.wondershare.com/filmora/article-images/add-instagram-video-timeline.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 3:** If the imported media file doesn't fit the aspect ratio on the timeline, right-click the clip and select the **Crop to Fit** option from the display to fit the video onto the timeline.
 
@@ -614,24 +602,24 @@ That is why we decided to compile everything about those new users who cannot fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-quick-guide-sharing-igtv-in-the-world-of-insta-stories/"><u>[New] 2024 Approved Quick Guide Sharing IGTV in the World of Insta Stories</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-grid-artistry-at-its-peak-the-definitive-10-for-insta-posts-for-2024/"><u>[New] Grid Artistry at Its Peak The Definitive 10 for Insta Posts for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-taking-a-step-back-inverting-image-queries-in-instagram/"><u>[New] In 2024, Taking a Step Back Inverting Image Queries in Instagram</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-navigating-igtv-essential-knowledge-and-usage-for-2024/"><u>[New] Navigating IGTV Essential Knowledge & Usage for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-pro-tips-for-capturing-stunning-igtv-content-on-mobile-and-dslr/"><u>[New] Pro Tips for Capturing Stunning IGTV Content on Mobile & DSLR</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-the-art-of-keeping-tiktok-content-safe-on-devices-for-2024/"><u>[New] The Art of Keeping TikTok Content Safe on Devices for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-uncovering-forgotten-facebook-episodes-cross-device-instructions/"><u>[Updated] 2024 Approved Uncovering Forgotten Facebook Episodes Cross-Device Instructions</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-curated-igtv-channels-that-matter-today/"><u>[Updated] Curated IGTV Channels That Matter Today</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-fresh-content-massive-traction-secrets-to-a-thriving-insta-account/"><u>[Updated] Fresh Content, Massive Traction Secrets to a Thriving Insta Account</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-streamlining-your-creative-process-with-effective-instagram-video-editing-tips-for-2024/"><u>[Updated] Streamlining Your Creative Process with Effective Instagram Video Editing Tips for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-streamline-youtube-sounds-to-mp3-using-mac/"><u>2024 Approved Streamline YouTube Sounds to MP3 Using Mac</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/demystifying-instagrams-videography-cap-constraint/"><u>Demystifying Instagram’s Videography Cap Constraint</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/essential-guide-to-action-screening-saving-for-2024/"><u>Essential Guide to Action Screening Saving for 2024</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-change-lock-screen-wallpaper-on-poco-x6-pro-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Poco X6 Pro</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-fix-unresponsive-touch-screen-on-infinix-smart-7-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Touch Screen on Infinix Smart 7 | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-remove-screen-lock-pin-on-oneplus-like-a-pro-5-easy-ways-by-drfone-android/"><u>In 2024, How To Remove Screen Lock PIN On OnePlus Like A Pro 5 Easy Ways</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/my-videos-arent-playing-on-realme-gt-neo-5-what-can-i-do-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>My Videos Arent Playing on Realme GT Neo 5 – What Can I Do? | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-zte-blade-a73-5g-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace ZTE Blade A73 5G Location | Dr.fone</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/ultimate-insights-assessing-lgs-widescreen-monitor-capabilities/"><u>Ultimate Insights Assessing LG's Widescreen Monitor Capabilities</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-constructing-characters-settings-and-stories/"><u>[New] Constructing Characters, Settings & Stories</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-directors-guide-mastering-character-driven-narratives/"><u>[New] Directors' Guide Mastering Character-Driven Narratives</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-staying-pure-hearted-amidst-the-ruse-of-ratings-and-likes/"><u>[New] In 2024, Staying Pure-Hearted Amidst the Ruse of Ratings and Likes</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-mastering-recording-techniques-with-adobe-presenter/"><u>[New] Mastering Recording Techniques with Adobe Presenter</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-mastering-the-art-of-influential-hashtags-on-ig/"><u>[New] Mastering the Art of Influential Hashtags on IG</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-the-ultimate-path-to-igtv-popularity-top-strategies-unveiled/"><u>[New] The Ultimate Path to IGTV Popularity Top Strategies Unveiled</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-discreetly-discovering-stories-with-these-apps-for-2024/"><u>[Updated] Discreetly Discovering Stories with These Apps for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-unlocking-hidden-potential-with-instagrams-inquiry-emoji/"><u>[Updated] Unlocking Hidden Potential with Instagram’s Inquiry Emoji</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-laugh-and-cry-on-instagram-best-meme-accounts-of-the-year/"><u>2024 Approved Laugh and Cry on Instagram Best Meme Accounts of the Year</u></a></li>
+<li><a href="https://driver-error.techidaily.com/bluetooth-cant-turn-off-on-windows-11-solved/"><u>Bluetooth Can't Turn Off on Windows 11 [Solved]</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/breakthrough-beginnings-in-panzoids-for-2024/"><u>Breakthrough Beginnings in Panzoids for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/comprehensive-guide-addressing-and-repairing-errors-in-hp-officejet-pro-6978-printer-drivers/"><u>Comprehensive Guide: Addressing and Repairing Errors in HP OfficeJet Pro 6978 Printer Drivers</u></a></li>
+<li><a href="https://win11.techidaily.com/guide-to-resolve-zerodxgerror-device-hunk-in-win11/"><u>Guide to Resolve ZeroDXGError: Device HUNK in Win11</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-best-practices-for-measuring-igtv-video-effectiveness/"><u>In 2024, Best Practices for Measuring IGTV Video Effectiveness</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/seamless-integration-of-multimedia-pip-video-tips-for-sierra-users/"><u>Seamless Integration of Multimedia PIP Video Tips for Sierra Users</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/the-art-of-cross-platform-content-sharing/"><u>The Art of Cross-Platform Content Sharing</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1722968582740-the-rise-of-alternative-ideologies-such-as-islamist-theocracy-and-nationalism-suggest-that-liberal-democracy-is-not-universally-accepted-or-desirable/"><u>The Rise of Alternative Ideologies Such as Islamist Theocracy and Nationalism Suggest that Liberal Democracy Is Not Universally Accepted or Desirable.</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-ranked-fitness-wearables-a-comprehensive-guide/"><u>Top-Ranked Fitness Wearables : A Comprehensive Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/youtube-integration-in-instagram-narratives/"><u>YouTube Integration in Instagram Narratives</u></a></li>
 </ul></div>
 

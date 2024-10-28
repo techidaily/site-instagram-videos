@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Step-by-Step Guide  Adding Subs to IGTV\""
-date: 2024-10-17T17:05:35.410Z
-updated: 2024-10-22T17:43:49.503Z
+date: 2024-10-25T09:49:41.405Z
+updated: 2024-10-28T04:09:24.058Z
 tags:
   - ai video
   - ai instagram
@@ -64,10 +64,16 @@ Adding subtitles to a video can be a painstakingly long process if you’re work
 Once you’re done adding the subtitles you should click on the **Photo Camera icon** to take a snapshot of the video, you can use as a **cover photo for your IGTV video**. Export the video and proceed to upload it to IGTV from your web browser or from your phone.
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Add Text to IGTV Videos with the Quik App For iOS and Android Devices
@@ -75,10 +81,10 @@ Once you’re done adding the subtitles you should click on the **Photo Camera i
 In case you like editing IGTV videos from your phone, you can try adding subtitles to your IGTV videos with the Quik app. After you’ve completed all other video editing tasks, you should tap on the **Text icon** and type in the text you’d like to add to the video. Hit the **OK button** after you’ve added the text and that’s it you’ve successfully created the subtitles for your IGTV video. How long the process of creating hardcoded subtitles is going to last depends on the duration of the video and the amount of narration or dialogue in the video.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Tips for Adding Subtitles to IGTV Videos
@@ -92,10 +98,10 @@ Even though adding subtitles to videos can require a lot of precision and attent
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -113,24 +119,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-elevate-your-video-game-on-instagram-with-right-dimensions/"><u>[New] 2024 Approved Elevate Your Video Game on Instagram with Right Dimensions</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-step-by-step-process-for-aesthetic-and-engaging-instagram-video-content/"><u>[New] 2024 Approved Step-by-Step Process for Aesthetic and Engaging Instagram Video Content</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-finding-the-best-mp4-recorder-on-market-for-2024/"><u>[New] Finding the Best MP4 Recorder on Market for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-peering-into-popularity-instagram-analytics-for-you/"><u>[New] In 2024, Peering Into Popularity Instagram Analytics for You</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-instagram-video-limits-explained-in-detail/"><u>[New] Instagram Video Limits Explained in Detail</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-step-by-step-to-excellence-the-ultimate-powerdirectors-user-manual/"><u>[Updated] 2024 Approved Step-by-Step to Excellence The Ultimate PowerDirector's User Manual</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-tips-and-tricks-for-joining-friends-live-on-tiktok/"><u>[Updated] 2024 Approved Tips & Tricks for Joining Friends' LIVE on TikTok</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-integrating-language-support-in-igtv-posts-for-2024/"><u>[Updated] Integrating Language Support in IGTV Posts for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-rapid-instagram-video-viewing-techniques-for-2024/"><u>[Updated] Rapid Instagram Video Viewing Techniques for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-what-lies-beneath-instagram-story-perceptions/"><u>2024 Approved What Lies Beneath Instagram Story Perceptions</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/3-facts-you-need-to-know-about-screen-mirroring-xiaomi-redmi-note-12-pro-5g-drfone-by-drfone-android/"><u>3 Facts You Need to Know about Screen Mirroring Xiaomi Redmi Note 12 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-itel-p55-5g-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Itel P55 5G | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/how-to-factory-reset-realme-c67-4g-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Realme C67 4G without Losing Data | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/how-to-use-the-instagram-question-sticker/"><u>How to Use the Instagram Question Sticker?</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-mac-tricks-for-dynamic-instagram-video-size-adjustment/"><u>In 2024, Mac Tricks for Dynamic Instagram Video Size Adjustment</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-step-by-step-setting-up-snapchat-on-mac/"><u>In 2024, Step-by-Step Setting Up Snapchat on Mac</u></a></li>
-<li><a href="https://fake-location.techidaily.com/prevent-cross-site-tracking-on-infinix-smart-8-pro-and-browser-drfone-by-drfone-virtual-android/"><u>Prevent Cross-Site Tracking on Infinix Smart 8 Pro and Browser | Dr.fone</u></a></li>
-<li><a href="https://windows11.techidaily.com/quick-fixes-at-hand-assigning-shortcuts-for-win-11-problem-tools/"><u>Quick Fixes at Hand: Assigning Shortcuts for Win 11 Problem Tools</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/unlock-your-samsung-galaxy-a25-5gs-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>Unlock Your Samsung Galaxy A25 5Gs Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-ownership-deciphering-in-instasongs/"><u>[New] Ownership Deciphering in InstaSongs</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-visuals-that-stand-out-top-10-ig-grid-making-innovations-for-2024/"><u>[New] Visuals that Stand Out Top 10 IG Grid Making Innovations for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-how-to-enrich-social-media-content-with-auto-generated-speech/"><u>[Updated] 2024 Approved How to Enrich Social Media Content with Auto-Generated Speech</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-mp4-file-capture-comparative-study-and-reviews/"><u>[Updated] 2024 Approved MP4 File Capture Comparative Study & Reviews</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-harness-the-power-of-instagram-best-free-video-converter-apps-for-windowsmacos-for-2024/"><u>[Updated] Harness the Power of Instagram Best Free Video Converter Apps for Windows/macOS for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-best-gear-for-shooting-top-10-high-res-shoulder-rigs/"><u>2024 Approved Best Gear for Shooting Top 10 High-Res Shoulder Rigs</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-the-ultimate-guide-to-best-liked-ae-templates/"><u>2024 Approved The Ultimate Guide to Best-Liked AE Templates</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/boost-your-creativity-on-instagram-with-free-filters-for-2024/"><u>Boost Your Creativity on Instagram with Free Filters for 2024</u></a></li>
+<li><a href="https://win-forum.techidaily.com/efficiently-disconnect-bluetooth-peripherals-in-microsofts-latest-operating-systems/"><u>Efficiently Disconnect Bluetooth Peripherals in Microsoft's Latest Operating Systems</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-videos-from-nubia-red-magic-9-proplus-by-fonelab-android-recover-video/"><u>How to Rescue Lost Videos from Nubia Red Magic 9 Pro+</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-ways-to-track-lava-blaze-curve-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Track Lava Blaze Curve 5G without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-pitch-perfect-promos-mastering-the-art-of-music-in-social-media/"><u>In 2024, Pitch-Perfect Promos Mastering the Art of Music in Social Media</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-nokia-150-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Nokia 150 (2023)? | Dr.fone</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/must-have-10-tiktok-video-editor-apps-for-windows-pc/"><u>Must-Have 10 TikTok Video Editor Apps for Windows PC</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/social-media-savvy-instagrams-best-tips-for-gif-uploads-and-posting/"><u>Social Media Savvy Instagram's Best Tips for GIF Uploads and Posting</u></a></li>
+<li><a href="https://driver-download.techidaily.com/step-by-step-tutorial-updating-your-windows-pc-with-amd-radeon-rx-590-graphics-drivers/"><u>Step-by-Step Tutorial: Updating Your Windows PC with AMD Radeon RX 590 Graphics Drivers</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/tailoring-horizontal-video-footage-for-maximum-impact-on-igtv/"><u>Tailoring Horizontal Video Footage for Maximum Impact on IGTV</u></a></li>
+<li><a href="https://article-helps.techidaily.com/unlock-the-power-of-slow-mo-with-these-android-hacks/"><u>Unlock the Power of Slow Mo with These Android Hacks</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/why-choose-claude-ai-for-next-level-tech-solutions-insights-and-benefits/"><u>Why Choose Claude AI for Next-Level Tech Solutions: Insights and Benefits</u></a></li>
 </ul></div>
 

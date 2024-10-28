@@ -1,7 +1,7 @@
 ---
 title: "Resolved: Why Is Everspace 2 Experiencing Crashes on Windows Systems?"
-date: 2024-10-19T16:55:24.362Z
-updated: 2024-10-22T16:23:38.514Z
+date: 2024-10-22T10:28:58.958Z
+updated: 2024-10-28T08:30:23.578Z
 tags:
   - win11
   - win10
@@ -51,6 +51,13 @@ _Remnant: From the Ashes_ constantly crashes your PC? Don’t worry. After readi
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Fix 3: Run your game as an administrator
 
  Some players experience the_Remnant_ crash when running_Remnant_ under a standard user account. In this case, the quickest fix is granting your game launcher with admin credentials. Follow the instructions below to see how:
@@ -70,13 +77,6 @@ _Remnant: From the Ashes_ constantly crashes your PC? Don’t worry. After readi
  You can hopefully run the game without errors now. If this didn’t work for you, try the fix below.
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 4:**Update your graphics driver**
 
@@ -99,13 +99,6 @@ _Remnant: From the Ashes_ constantly crashes your PC? Don’t worry. After readi
  Or click **Update All** to automatically download and install the correct version of _all_  the drivers that are missing or out of date on your system (this requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  which comes with full support and a 30-day money back guarantee. You’ll be prompted to upgrade when you click Update All.)
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/image-201.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  You can do it for free if you like, but it’s partly manual.
 
@@ -135,13 +128,6 @@ If your problem persists, then move on to the next fix below.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/image-321.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **3)**  Right-click**Remnant: From the Ashes** and select **Properties.**
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/09/image-84.png)
@@ -162,13 +148,6 @@ If your problem persists, then move on to the next fix below.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/image-585.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **2)** Paste**%LOCALAPPDATA%\\Remnant\\Saved\\Config\\WindowsNoEditor** on the address bar, then press the**Enter key** on your keyboard.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/image-586.png)
@@ -186,13 +165,6 @@ If your problem persists, then move on to the next fix below.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/image-609.png)
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
-  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **5)** On your keyboard, press the**Ctrl key** and**S** at the same time to save the changes. Then, close the Window.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/10/image-176.png)
@@ -203,13 +175,6 @@ If the game is still unplayable, read on and try the fix below.
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Fix 8: Run your game in compatibility mode
 
  This fix only applies to Windows 10 and 8\. If you’re on Window 7, check[**Fix 9**](https://tools.techidaily.com/drivereasy/download/) , below.
@@ -219,6 +184,13 @@ If the game is still unplayable, read on and try the fix below.
 **1)** Right-click the**Remnant icon** , then select **Properties** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/09/image-214.png)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **2)**  Click the **Compatibility**  tab. Then check the box next to **Run this program in compatibility mode for** .
 
@@ -253,6 +225,13 @@ If the game is still unplayable, read on and try the fix below.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/09/image-246.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **4)** Click**DELETE** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/09/image-247.png)
@@ -273,39 +252,60 @@ If the game is still unplayable, read on and try the fix below.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/05/image-886.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **3)** On your keyboard, press the **Windows logo** key and type **control** . Then, click**Control Panel** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/05/image-887.png)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **4)** Under **View by** , select **Category** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/05/image-888.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **5)** Select **Uninstall a program** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/05/image-889.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **6)**  Right-click **Steam** , and then click **Uninstall** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/05/image-890.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **7)**  Follow the on-screen instructions to uninstall Steam and wait for the process to be complete.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/05/image-891.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  **8)[](https://store.steampowered.com/about/) [Download](https://store.steampowered.com/about/) [](https://store.steampowered.com/about/)**  and install Steam.
 
@@ -342,14 +342,22 @@ If the game is still unplayable, read on and try the fix below.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://program-issues.techidaily.com/1722995446331-fixed-assassins-creed-odyssey-crashing-on-pc-easily/"><u>[Fixed] Assassin’s Creed Odyssey Crashing on PC. Easily</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ake-your-youtube-clips-to-the-next-level-ultimate-editing-tips-for-2024/"><u>[New] Take Your YouTube Clips to the Next Level Ultimate Editing Tips for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-building-brands-on-instagram-a-playbook-for-sponsorship-success/"><u>[Updated] 2024 Approved Building Brands on Instagram A Playbook for Sponsorship Success</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-instagram-story-hacks-your-path-to-prominence/"><u>2024 Approved Instagram Story Hacks Your Path to Prominence</u></a></li>
-<li><a href="https://win11.techidaily.com/exclusive-guide-windows-11s-hidden-themes-unlocked-with-registry/"><u>Exclusive Guide: Windows 11'S Hidden Themes Unlocked with Registry</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-guide-to-saving-instagram-videos-with-maximum-convenience/"><u>In 2024, Guide to Saving Instagram Videos with Maximum Convenience</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-harmonizing-sounds-first-lessons-on-fades-with-audition/"><u>In 2024, Harmonizing Sounds First Lessons on Fades with Audition</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/instagrams-notes-for-sharing-tunes-responsibly-for-2024/"><u>Instagram’s Notes for Sharing Tunes Responsibly for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/mov-to-mp4-conversion-for-free-easy-file-transformation-on-all-platforms-including-mac-and-win10/"><u>MOV to MP4 Conversion for FREE: Easy File Transformation on All Platforms Including Mac and Win10</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-amplify-your-brands-voice-with-these-pivotal-promotion-tactics/"><u>[New] 2024 Approved Amplify Your Brand's Voice with These Pivotal Promotion Tactics</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-how-to-free-find-instagram-influencers-in-your-niche/"><u>[New] 2024 Approved How to Free Find Instagram Influencers in Your Niche</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-harness-the-power-of-editing-for-fashion-hauls-for-2024/"><u>[New] Harness the Power of Editing for Fashion Hauls for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-how-to-connect-instagram-to-facebook/"><u>[New] How to Connect Instagram to Facebook</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-leading-your-audience-into-a-world-of-instagram-live-for-2024/"><u>[New] Leading Your Audience Into a World of Instagram Live for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-prime-selection-instagrams-top-8-ae-designs-for-2024/"><u>[New] Prime Selection Instagram's Top 8 AE Designs for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-transform-your-ig-story-with-melodic-elements-without/"><u>[New] Transform Your IG Story with Melodic Elements (Without)</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-mastering-your-craft-a-guide-to-samsungs-photography-tools/"><u>[Updated] Mastering Your Craft A Guide to Samsung's Photography Tools</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-truth-behind-instas-video-selfie-authenticity-check/"><u>[Updated] The Truth Behind Insta's Video Selfie Authenticity Check</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-your-ultimate-method-for-mobile-igtv-downloads-for-2024/"><u>[Updated] Your Ultimate Method for Mobile IGTV Downloads for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Asus ROG Phone 8 | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/apple-iphone-12-pro-asking-for-passcode-after-ios-1714-update-what-to-do-drfone-by-drfone-ios/"><u>Apple iPhone 12 Pro Asking for Passcode after iOS 17/14 Update, What to Do? | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/enhance-driving-experience-the-most-effective-5-free-tools-for-pcs/"><u>Enhance Driving Experience: The Most Effective 5 Free Tools for PCs</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-giving-a-fresh-twist-to-pre-filtered-memories-using-instagram-tools/"><u>In 2024, Giving a Fresh Twist to Pre-Filtered Memories Using Instagram Tools</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-tracking-apps-to-track-infinix-smart-8-pro-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Tracking Apps to Track Infinix Smart 8 Pro without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/step-by-step-tutorial-on-bulk-selecting-emails-in-gmail-for-superior-productivity/"><u>Step-by-Step Tutorial on Bulk Selecting Emails in Gmail for Superior Productivity</u></a></li>
+<li><a href="https://some-tips.techidaily.com/the-ultimate-guide-to-liberating-tracks-with-pazeras-tools-for-2024/"><u>The Ultimate Guide to Liberating Tracks with Pazera's Tools for 2024</u></a></li>
 </ul></div>
 

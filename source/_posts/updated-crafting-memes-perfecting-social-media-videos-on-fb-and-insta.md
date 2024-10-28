@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Crafting Memes  Perfecting Social Media Videos on FB & Insta\""
-date: 2024-10-18T17:03:58.083Z
-updated: 2024-10-22T18:00:58.563Z
+date: 2024-10-22T20:32:48.417Z
+updated: 2024-10-27T18:38:05.052Z
 tags:
   - ai video
   - ai instagram
@@ -37,10 +37,10 @@ thumbnail: https://thmb.techidaily.com/a6de986a3fdb94c7142abb7e1738397c8994a30f4
  Before knowing how to make a video meme for Instagram/Facebook, how about understanding their specs on both the platforms and get the best out of it? It is of utmost importance to know the social media specs before venturing into video marketing in these platforms.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Facebook
@@ -65,6 +65,13 @@ thumbnail: https://thmb.techidaily.com/a6de986a3fdb94c7142abb7e1738397c8994a30f4
 * Maximum word count is 2,200 characters but 90 characters is recommended for links.
 * Link description is 30 characters max with 25 characters long headline.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
+  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Instagram
 
  When it comes to Instagram, it has [71% of brands with it that reach to their audience](https://sproutsocial.com/insights/instagram-stats/). Due to the high visibility rate over the internet, brand-created Instagram videos are worth investing. It has three different video formats, such as landscape, vertical, and square. Mobile being an indispensable device nowadays, accessing social networking platforms has grown tremendously. This in turn made Instagram videos a big hit, though, organic reach is comparatively less.
@@ -73,13 +80,6 @@ thumbnail: https://thmb.techidaily.com/a6de986a3fdb94c7142abb7e1738397c8994a30f4
 * Likewise, the aspect ratios for landscape, vertical, and square is 1.91:1, 1:1, and 4:5 respectively.
 * The video formats, maximum file size and maximum frames are same as Facebook videos. Though, the video size is only 60 seconds.
 * Maximum caption and recommended are 2,200 and 125 characters respectively.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to make a video meme for Facebook and Instagram step by step
 
@@ -94,10 +94,10 @@ thumbnail: https://thmb.techidaily.com/a6de986a3fdb94c7142abb7e1738397c8994a30f4
 ![import meme](https://images.wondershare.com/filmora/article-images/drag-memes-filmora-meme-maker.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 2**: Go to the meme editor page. Click the tools from left and customize the meme. The preview window shows the changes. Try playing with fonts and texts with funny content.
@@ -111,10 +111,10 @@ thumbnail: https://thmb.techidaily.com/a6de986a3fdb94c7142abb7e1738397c8994a30f4
 ![export meme](https://images.wondershare.com/filmora/article-images/export-memes-filmora-meme-maker.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Bottom Line
@@ -138,21 +138,22 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-essential-pc-editing-skills-for-compelling-youtube-videos/"><u>[New] 2024 Approved Essential PC Editing Skills for Compelling YouTube Videos</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-outstanding-movies-overlooked-by-critics/"><u>[New] 2024 Approved Outstanding Movies Overlooked by Critics</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-detailed-insights-into-instagrams-video-time-policy-for-2024/"><u>[New] Detailed Insights Into Instagram’s Video Time Policy for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-harnessing-instagram-video-power-strategizing-for-impact-for-2024/"><u>[New] Harnessing Instagram Video Power Strategizing for Impact for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ape-looper-mastery-app/"><u>[New] Tape Looper Mastery App</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-streamline-your-instagram-feeds-with-macs-video-resizing/"><u>[Updated] Streamline Your Instagram Feeds with Mac's Video Resizing</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-a-brief-guide-to-kickstarting-conversations-on-instagram/"><u>2024 Approved A Brief Guide to Kickstarting Conversations on Instagram</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-skyrocketing-subscribers-5-proven-strategies-for-igtv-success/"><u>2024 Approved Skyrocketing Subscribers 5 Proven Strategies for IGTV Success</u></a></li>
-<li><a href="https://change-location.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-samsung-galaxy-m54-5g-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Samsung Galaxy M54 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/crafting-soundscape-journeys-with-seamless-audacity-mixes-for-2024/"><u>Crafting Soundscape Journeys with Seamless Audacity Mixes for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/drive-engagement-with-instagram-top-10-video-marketing-ideas-unveiled-for-2024/"><u>Drive Engagement with Instagram Top 10 Video Marketing Ideas Unveiled for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-7-ways-to-unlock-a-locked-honor-play-40c-phone-by-drfone-android/"><u>In 2024, 7 Ways to Unlock a Locked Honor Play 40C Phone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-make-your-content-stand-out-with-instagrams-procedural-slow-mo-journey/"><u>In 2024, Make Your Content Stand Out with Instagram’s Procedural Slow Mo Journey</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-step-into-the-future-mastering-instagram-filters-for-enhanced-imagery/"><u>In 2024, Step Into the Future Mastering Instagram Filters for Enhanced Imagery</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/sb210-soundbot-evaluation-excellent-audio-performance-in-the-snow-season/"><u>SB210 Soundbot Evaluation: Excellent Audio Performance in the Snow Season</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/unlock-the-secret-of-social-media-impact-for-2024/"><u>Unlock the Secret of Social Media Impact for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-10-instagram-hashtag-that-you-should-be-using-today-for-2024/"><u>[New] 10 Instagram Hashtag That You Should Be Using Today for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-analyzing-instagrams-per-video-timeframe-for-2024/"><u>[New] Analyzing Instagram's Per-Video Timeframe for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-snicker-sphere-top-grade-no-charge-memes/"><u>[New] Snicker Sphere Top-Grade, No-Charge Memes</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-evaluating-inshots-capabilities-against-market-leaders/"><u>[Updated] Evaluating InShot's Capabilities Against Market Leaders</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-mastering-instagram-narratives-through-captioning-for-2024/"><u>[Updated] Mastering Instagram Narratives Through Captioning for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-navigating-youtube-sharing-on-insta-stories/"><u>2024 Approved Navigating YouTube Sharing on Insta Stories</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-strategic-hashtag-application-for-greater-instagram-traction/"><u>2024 Approved Strategic Hashtag Application for Greater Instagram Traction</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/honor-data-retrieval-tool-restore-lost-data-from-honor-100-pro-by-fonelab-android-recover-data/"><u>Honor Data Retrieval tool – restore lost data from Honor 100 Pro</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-infinix-hot-40i-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change Infinix Hot 40i Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-update-or-downgrade-apple-iphone-xs-max-without-losing-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Update or Downgrade Apple iPhone XS Max Without Losing Data? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-vivo-x100-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Read This Guide to Find a Reliable Alternative to Fake GPS On Vivo X100 Pro | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/instagram-photo-perfection-applying-stylish-borders-for-2024/"><u>Instagram Photo Perfection Applying Stylish Borders for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/instagram-repurpose-images-and-videos/"><u>Instagram Repurpose Images & Videos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/optimal-techniques-for-verbal-note-taking-expertise-for-2024/"><u>Optimal Techniques for Verbal Note-Taking Expertise for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/stop-windows-from-prompting-for-updates/"><u>Stop Windows From Prompting for Updates</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/the-path-to-voice-interaction-in-windows-11/"><u>The Path to Voice Interaction in Windows 11</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/unleash-flawless-footage-overcome-instagram-video-hurdles-for-2024/"><u>Unleash Flawless Footage Overcome Instagram Video Hurdles for 2024</u></a></li>
 </ul></div>
 
