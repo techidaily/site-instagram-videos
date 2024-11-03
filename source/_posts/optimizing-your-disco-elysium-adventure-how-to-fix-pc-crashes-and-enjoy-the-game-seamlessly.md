@@ -1,7 +1,7 @@
 ---
 title: "Optimizing Your Disco Elysium Adventure: How to Fix PC Crashes & Enjoy the Game Seamlessly"
-date: 2024-10-26T00:19:52.448Z
-updated: 2024-10-27T21:08:09.800Z
+date: 2024-11-01T18:41:45.955Z
+updated: 2024-11-03T05:56:13.046Z
 tags:
   - win11
   - win10
@@ -33,13 +33,6 @@ A screenshot of Ghostwire: Tokyo from Steam
 6. **[Stop overclocking](https://tools.techidaily.com/drivereasy/download/)**
 7. **[Disable Steam Overlay](https://tools.techidaily.com/drivereasy/download/)**
 8. **[Disable third-party antivirus software](https://tools.techidaily.com/drivereasy/download/)**
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Fix 1: Verify the game files
 
@@ -81,13 +74,6 @@ There’re mainly two ways you can update your graphics drivers:
 
 Or
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Option 2: Automatically (Recommended)
 
  This is the quickest and easiest option. It’s all done with just a couple of mouse clicks – easy even if you’re a computer newbie.
@@ -106,14 +92,21 @@ Or
 3. Click**Update All** to automatically download and install the correct version of_all_ the drivers that are missing or out of date on your system.  
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Update graphics drivers with Driver Easy](https://images.drivereasy.com/wp-content/uploads/2020/09/de-update-all-rtx-3080.jpg)  
  (This requires **[the Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click Update All. If you don’t want to pay for the Pro version, you can still download and install all the drivers you need with the free version; you just have to download them one at a time, and manually install them, the normal Windows way.)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **The Pro version of Driver Easy** comes with _full technical support_ . If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
 
@@ -141,10 +134,10 @@ Or
 3. Fortect will scan your computer thoroughly. This may take a few minutes.  
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/fortect-2.jpg)
@@ -152,16 +145,16 @@ Or
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/fortect-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
-  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Fortect comes with 24/7 Technical Support. If you need any assistance, you can use one of the following:  
 **Email:** <support@fortect.com>  
 **Submit a ticket:** _[https://www.fortect.com/company/contacts/](https://www.reimageplus.com/submit-ticket/)_
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
+  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Fix 4: Install the latest game patch
 
@@ -183,10 +176,10 @@ Or
 3. Once downloaded, double-click the downloaded**.exe** file to install it on your computer.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 4. Restart your computer and launch the game.
@@ -194,10 +187,10 @@ Or
  See if Ghostwire: Tokyo crashes again after you installed the latest DirectX file. If this fix didn’t work for you, try the next fix, below.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Fix 6: Stop overclocking
@@ -221,6 +214,13 @@ Or
 2. Uncheck **Enable Steam Overlay while in-game** .  
 
 ![disable steam overlay](https://images.drivereasy.com/wp-content/uploads/2021/05/disable-steam-overlay.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  If you’re using other apps with overlay features (e.g. Xbox Game Bar, Discord, Nvidia GeForce Experience, Twitch, etc.), ensure you’ve disabled the in-game overlay in those apps feature.
 
@@ -257,14 +257,24 @@ Or
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-elevating-your-desktop-mastering-screenshot-and-recording/"><u>[New] 2024 Approved Elevating Your Desktop Mastering Screenshot and Recording</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-is-your-social-media-strategy-up-to-date-with-facebook-changes/"><u>[New] 2024 Approved Is Your Social Media Strategy Up-to-Date with Facebook Changes?</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-the-art-of-repeated-imagery-in-instagram-videos/"><u>[New] 2024 Approved The Art of Repeated Imagery in Instagram Videos</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-choose-wisely-best-border-tools-for-stylizing-instagram-photos/"><u>[New] In 2024, Choose Wisely Best Border Tools for Stylizing Instagram Photos</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-the-ultimate-instagram-captioning-hack-for-reels-and-stories/"><u>[New] In 2024, The Ultimate Instagram Captioning Hack for Reels and Stories</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-achieve-massive-momentum-hit-1k-ig-gains-monthly/"><u>[Updated] In 2024, Achieve Massive Momentum Hit 1K IG Gains Monthly</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/discover-7-outstanding-chrome-plugins-to-elevate-your-chatgpt-experience-online/"><u>Discover 7 Outstanding Chrome Plugins to Elevate Your ChatGPT Experience Online!</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-fixing-shorts-the-thumbnail-not-showing-dilemma/"><u>In 2024, Fixing Shorts The Thumbnail Not Showing Dilemma</u></a></li>
-<li><a href="https://program-issues.techidaily.com/quickly-resolve-bluestacks-software-issues-5-simple-fixes/"><u>Quickly Resolve BlueStacks Software Issues: 5 Simple Fixes</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-odyssey-of-gaming-the-ultimate-list-of-freeware-mmorpgs/"><u>[New] 2024 Approved Odyssey of Gaming The Ultimate List of Freeware MMORPGs</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-strategies-for-leveraging-azure-voice-to-text-technology/"><u>[New] In 2024, Strategies for Leveraging Azure Voice-to-Text Technology</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-mirthful-milestones-an-examination-of-goofy-odyssey/"><u>[Updated] 'Mirthful Milestones' An Examination of 'Goofy Odyssey'</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-must-watch-10-unique-igtv-content-formats-for-brands/"><u>[Updated] 2024 Approved Must-Watch 10 Unique IGTV Content Formats for Brands</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-how-to-seamlessly-capture-igtv-5-windows-and-mac-downloading-tips/"><u>[Updated] How to Seamlessly Capture IGTV 5 Windows & Mac Downloading Tips</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-easy-steps-to-starting-an-instagram-live/"><u>[Updated] In 2024, Easy Steps to Starting an Instagram Live</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-flip-page-film-narrative-guide/"><u>[Updated] In 2024, Flip Page Film Narrative Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-the-roadmap-to-identifying-niche-luminaries-on-instagram/"><u>[Updated] In 2024, The Roadmap to Identifying Niche Luminaries on Instagram</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-instagrams-ultimate-guide-to-the-best-grid-software-of-the-year/"><u>2024 Approved Instagram's Ultimate Guide to the Best Grid Software of the Year</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-selfie-verification-examining-its-impact-on-social-platforms/"><u>2024 Approved Selfie Verification Examining Its Impact on Social Platforms</u></a></li>
+<li><a href="https://fox-http.techidaily.com/crafting-precise-shadows-with-adobe-curves-for-2024/"><u>Crafting Precise Shadows with Adobe Curves for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-boost-your-creativity-on-instagram-with-free-filters/"><u>In 2024, Boost Your Creativity on Instagram with Free Filters</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-canvas-audio-guide-adding-tweaking-and-refining-sounds/"><u>In 2024, Canva's Audio Guide Adding, Tweaking, & Refining Sounds</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-apple-iphone-12-pro-activation-lock-by-drfone-ios/"><u>In 2024, How to Remove Apple iPhone 12 Pro Activation Lock</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-maximize-your-impact-top-10-insta-tools-for-post-management/"><u>In 2024, Maximize Your Impact Top 10 Insta Tools for Post Management</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-the-ultimate-guide-to-androids-premium-music-video-watching-apps/"><u>In 2024, The Ultimate Guide to Android's Premium Music Video Watching Apps</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/navigate-fullscreen-glitches-with-ease-on-windows/"><u>Navigate Fullscreen Glitches with Ease on Windows</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/taking-over-ig-monthly-strategies-to-hit-the-1k-follower-goal/"><u>Taking Over IG Monthly Strategies to Hit the 1K Follower Goal</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/video-editing-for-virality-a-comprehensive-guide-to-instagram-success/"><u>Video Editing for Virality A Comprehensive Guide to Instagram Success</u></a></li>
 </ul></div>
 

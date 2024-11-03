@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Turning Off Instagram's IGTV in a Nutshell"
-date: 2024-10-19T16:19:58.555Z
-updated: 2024-10-22T17:05:24.384Z
+date: 2024-11-01T19:39:26.568Z
+updated: 2024-11-02T21:17:32.159Z
 tags:
   - ai video
   - ai instagram
@@ -34,10 +34,10 @@ thumbnail: https://thmb.techidaily.com/fb708f6b02bb2770894398e8943ab9eb4326fec35
  Select the **Push Notifications option**, and then scroll all the way down to the **IGTV Video Updates section** of the Push Notifications menu. Tap on the **Off** option, and you’re done, you’ll no longer receive notifications from IGTV. If at any point you change your mind and you decide that you want to receive notifications from IGTV you can return to the Push Notifications menu and select the **From People I Follow** or **From Everyone** option in the IGTV Video Update section of the Push Notifications menu.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Hide IGTV Videos?
@@ -55,10 +55,10 @@ thumbnail: https://thmb.techidaily.com/fb708f6b02bb2770894398e8943ab9eb4326fec35
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -76,20 +76,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-top-10-best-apps-for-editing-igtv-vertical-videos/"><u>[New] 2024 Approved Top 10 Best Apps for Editing IGTV Vertical Videos</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-instagram-story-and-reels-transform-your-vocal-brand-with-these-tricks/"><u>[Updated] 2024 Approved Instagram Story & Reels Transform Your Vocal Brand with These Tricks</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-quicken-video-playback-on-instagram-apps/"><u>[Updated] 2024 Approved Quicken Video Playback on Instagram Apps</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-explore-the-best-free-tools-to-shorten-youtube-videos-for-2024/"><u>[Updated] Explore the Best Free Tools to Shorten YouTube Videos for 2024</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/updated-in-2024-transitioning-smoothly-from-your-discord-networks/"><u>[Updated] In 2024, Transitioning Smoothly From Your Discord Networks</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-learning-luminaries-leading-ed-tutorials-online/"><u>[Updated] Learning Luminaries Leading Ed Tutorials Online</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-inside-outlooks-of-instagram-stories-consumers/"><u>2024 Approved Inside Outlooks of Instagram Stories Consumers</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-unlock-apple-id-from-your-apple-iphone-6s-plus-without-security-questions-by-drfone-ios/"><u>How to Unlock Apple ID From your Apple iPhone 6s Plus without Security Questions?</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-samsung-galaxy-m14-4g-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed Guide on Faking Your Location in Mozilla Firefox On Samsung Galaxy M14 4G | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-oppo-f25-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Oppo F25 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-legal-framework-of-instagram-tunes/"><u>In 2024, Legal Framework of Instagram Tunes</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/mirror-of-society-top-100-inspiring-instagramcaptions/"><u>Mirror of Society Top 100 Inspiring #InstagramCaptions</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/navigating-through-troubled-waters-instagram-videos-guide/"><u>Navigating Through Troubled Waters Instagram Videos Guide</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/ultimate-combat-arcade-nintendo-switch-edition-max-156/"><u>Ultimate Combat Arcade Nintendo Switch Edition (Max 156)</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-2024-approved-free-avi-video-rotation-made-easy-top-16-picks-for-windows-mac-android-and-iphone/"><u>Updated 2024 Approved Free AVI Video Rotation Made Easy Top 16 Picks for Windows, MAC, Android, and iPhone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-elevate-your-igtv-presence-secrets-to-skyrocketing-subscribers/"><u>[New] 2024 Approved Elevate Your IGTV Presence Secrets to Skyrocketing Subscribers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-symphony-in-silence-mastering-audio-with-precision-for-2024/"><u>[New] A Symphony in Silence Mastering Audio with Precision for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-quick-start-engaging-with-friends-on-insta-chat/"><u>[New] In 2024, Quick Start Engaging with Friends on Insta Chat</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-structuring-stimulating-podcast-trailers-for-2024/"><u>[New] Structuring Stimulating Podcast Trailers for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-twist-and-turn-tales-transforming-visual-content-on-instagram-platforms-for-2024/"><u>[New] Twist and Turn Tales Transforming Visual Content on Instagram Platforms for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-harness-the-power-of-instagram-best-free-video-converter-apps-for-windowsmacos/"><u>[Updated] In 2024, Harness the Power of Instagram Best Free Video Converter Apps for Windows/macOS</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-instagram-engagement-game-changers-the-top-25-hashtags-you-need/"><u>[Updated] In 2024, Instagram Engagement Game-Changers The Top 25 Hashtags You Need</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-time-honored-tech-selfies-with-iphone-x-for-2024/"><u>[Updated] Time-Honored Tech Selfies with iPhone X for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-advanced-color-grading-strategies-using-luts-for-professional-videos-in-obs/"><u>2024 Approved Advanced Color Grading Strategies Using LUTs for Professional Videos in OBS</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-step-by-step-guide-to-perfectly-timed-video-loops-on-ig/"><u>2024 Approved Step-by-Step Guide to Perfectly Timed Video Loops on IG</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/a-step-by-step-approach-to-lut-application-in-ae-for-2024/"><u>A Step-by-Step Approach to LUT Application in AE for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-photos-files-on-infinix-note-30i-by-fonelab-android-recover-photos/"><u>Complete guide for recovering photos files on Infinix Note 30i.</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-instagrams-video-selfie-truthfulness-a-critical-look/"><u>In 2024, Instagram's Video Selfie Truthfulness – A Critical Look</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-navigating-through-iphones-persistent-photo-blur/"><u>In 2024, Navigating Through iPhone's Persistent Photo Blur</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/making-every-photo-on-iphone-blurry-with-4-tricks-up-your-sleeve-for-2024/"><u>Making Every Photo on iPhone Blurry with 4 Tricks Up Your Sleeve for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/navigate-through-microsoft-store-sign-in-blocks/"><u>Navigate Through Microsoft Store Sign-In Blocks</u></a></li>
 </ul></div>
 

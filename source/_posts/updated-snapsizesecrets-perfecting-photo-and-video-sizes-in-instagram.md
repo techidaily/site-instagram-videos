@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] SnapSizeSecrets  Perfecting Photo and Video Sizes in Instagram\""
-date: 2024-10-24T20:54:50.777Z
-updated: 2024-10-28T00:48:10.908Z
+date: 2024-10-29T00:26:45.969Z
+updated: 2024-11-02T23:12:09.318Z
 tags:
   - ai video
   - ai instagram
@@ -46,10 +46,10 @@ Duration of Videos on Instagram
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Best Image Sizes for Instagram Posts
@@ -61,10 +61,10 @@ A couple of years ago, Instagram has finally allowed its users to upload images 
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
@@ -92,10 +92,10 @@ The profile pictures on Instagram are tiny, and the optimum size for them is 160
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -113,22 +113,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-captivating-yt-cover-art-for-maximum-traffic/"><u>[New] 2024 Approved Captivating YT Cover Art for Maximum Traffic</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-speedy-conversion-of-insta-videos-to-audio-files-mp3/"><u>[New] 2024 Approved Speedy Conversion of Insta Videos to Audio Files (Mp3)</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-unlock-full-potential-advanced-tips-for-zooming-images-in-snapchat-for-2024/"><u>[New] Unlock Full Potential Advanced Tips for Zooming Images in Snapchat for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-elevate-your-instagram-game-with-unique-highlight-images/"><u>[Updated] 2024 Approved Elevate Your Instagram Game with Unique Highlight Images</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-boost-engagement-the-art-of-adding-borders-on-insta-for-2024/"><u>[Updated] Boost Engagement The Art of Adding Borders on Insta for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-quick-and-cool-xbox-snapshots-a-gamers-bible-for-2024/"><u>[Updated] Quick & Cool Xbox Snapshots A Gamers' Bible for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-seamless-network-broadcast-adopting-the-vlc-way/"><u>[Updated] Seamless Network Broadcast Adopting the VLC Way</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-the-invisible-readers-pathway-how-to-engage-with-instagram-stories-unseen/"><u>[Updated] The Invisible Reader's Pathway How to Engage with Instagram Stories Unseen</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-how-to-enrich-social-media-content-with-auto-generated-speech/"><u>2024 Approved How to Enrich Social Media Content with Auto-Generated Speech</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/building-a-vivid-world-with-animated-clips-in-movie-maker-for-2024/"><u>Building a Vivid World with Animated Clips in Movie Maker for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-enhancing-insta-videos-3-simple-border-techniques/"><u>In 2024, Enhancing Insta Videos 3 Simple Border Techniques</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-the-smart-choice-instagram-video-dimensions-and-formats/"><u>In 2024, The Smart Choice Instagram Video Dimensions and Formats</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-cyberpunk-2077-a-game-marred-by-imperfections-yet-remarkable/"><u>In-Depth Analysis of Cyberpunk 2077: A Game Marred by Imperfections Yet Remarkable</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-how-to-make-a-meme-step-by-step/"><u>New 2024 Approved How to Make a Meme (Step by Step)</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/top-5-recommended-vpns-for-unblocking-and-securing-your-youtube-streams/"><u>Top 5 Recommended VPNs for Unblocking and Securing Your YouTube Streams</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/unlocking-personalized-vocal-elements-on-instagram-for-2024/"><u>Unlocking Personalized Vocal Elements on Instagram for 2024</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/unlocking-seamless-connectivity-a-step-by-step-for-combining-various-mesh-network-systems/"><u>Unlocking Seamless Connectivity: A Step-by-Step for Combining Various Mesh Network Systems</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-dominate-social-media-sales-5-strategic-moves-for-instagram-experts/"><u>[New] 2024 Approved Dominate Social Media Sales 5 Strategic Moves for Instagram Experts</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-urban-to-agrarian-journey-stardew-titles-traced/"><u>[New] 2024 Approved Urban to Agrarian Journey Stardew Titles Traced</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-elevate-followers-with-effective-igtv-hashtag-techniques-for-2024/"><u>[New] Elevate Followers with Effective IGTV Hashtag Techniques for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-best-tools-for-crafting-memorable-instagram-reels-top-6/"><u>[New] In 2024, Best Tools for Crafting Memorable Instagram Reels (Top 6)</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/avigating-the-process-of-verifying-your-youtube-id/"><u>[New] Navigating the Process of Verifying Your YouTube ID</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-obscure-watching-methods-5-unique-stories-apps-for-2024/"><u>[New] Obscure Watching Methods 5 Unique Stories Apps for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-ranking-the-top-10-secret-stories-observers-for-2024/"><u>[New] Ranking the Top 10 Secret Stories Observers for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-instagrams-edge-transforming-your-videography-with-precision-cropping/"><u>[Updated] 2024 Approved Instagram's Edge Transforming Your Videography with Precision Cropping</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-top-10-tools-to-perfect-your-igtv-edits/"><u>[Updated] 2024 Approved Top 10 Tools to Perfect Your IGTV Edits</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-a-professionals-guide-to-precision-with-morphvox-technology/"><u>[Updated] A Professional's Guide to Precision with MorphVOX Technology</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-mastering-video-file-processing-movs-in-windows-11-edition/"><u>[Updated] In 2024, Mastering Video File Processing MOVs in Windows 11 Edition</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-unlocking-the-secrets-of-spectacular-insta-films/"><u>[Updated] In 2024, Unlocking the Secrets of Spectacular Insta Films</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-installing-tiktok-your-path-to-joyful-macbook-experience-for-2024/"><u>[Updated] Installing TikTok Your Path to Joyful MacBook Experience for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-monetizing-on-youtube-can-you-earn-monthly/"><u>2024 Approved Monetizing on YouTube Can You Earn Monthly?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/crossword-becomes-crosswords/"><u>Crossword Becomes Crosswords</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-motorola-edge-40-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Motorola Edge 40? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-after-switching-from-oneplus-nord-3-5g-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data After Switching From OnePlus Nord 3 5G to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-mastering-minimization-32-top-rated-apps-to-tidy-up-videos-on-android/"><u>In 2024, Mastering Minimization 32 Top-Rated Apps to Tidy Up Videos on Android</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/perfecting-auto-captioned-content-in-instagram-reels-for-2024/"><u>Perfecting Auto-Captioned Content in Instagram Reels for 2024</u></a></li>
 </ul></div>
 

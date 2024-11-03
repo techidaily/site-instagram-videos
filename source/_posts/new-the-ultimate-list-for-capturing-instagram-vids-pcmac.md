@@ -1,7 +1,7 @@
 ---
 title: "[New] The Ultimate List for Capturing Instagram Vids (PC/Mac)"
-date: 2024-10-22T17:09:11.085Z
-updated: 2024-10-28T03:33:18.418Z
+date: 2024-10-31T02:34:58.304Z
+updated: 2024-11-03T04:29:50.941Z
 tags:
   - ai video
   - ai instagram
@@ -37,6 +37,13 @@ There are a few [different solutions to help you download Instagram videos on PC
 * [Method 2: Online solutions](#part2)
 * [Method 3: Add-ons](#part3)
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
+  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Method 1: Source code
 
 Did you know that there's a way to inspect the source code of the Instagram video page? 'What the heck is source code?', we hear you cry. Well, it doesn't really matter what it is, and you don't need to understand it at all, because all you're looking for here is a little link that will let you download the video directly to your computer. Here's how you do it:
@@ -44,10 +51,10 @@ Did you know that there's a way to inspect the source code of the Instagram vide
 ![Source code](https://images.wondershare.com/filmora/article-images/2023/04/how-to-download-instagram-videos-on-pc-and-mac-01.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Open the video you'd like to download on Instagram
@@ -62,6 +69,13 @@ This might sound all a bit cumbersome, but once you've had a couple of goes you'
 
 Please check this video to know more details:
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Method 2: Online solutions
 
 If you'd prefer a more elegant way to download Instagram videos on PC or Mac, there are numerous online solutions that can work for you. We've picked DreDown to share with you; it's totally free, founded on excellent anti-capitalist principles, and functions with all major social platforms as well as Instagram. Here's how it works:
@@ -70,25 +84,25 @@ If you'd prefer a more elegant way to download Instagram videos on PC or Mac, th
 
 ![download instagram video using dredown](https://images.wondershare.com/dredown-image.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * In another tab, open Instagram and navigate to the video (or photo) you'd like to download
 * Highlight the URL in your browser bar that shows when you're viewing the video, and copy it using either right-click / ⌘+click and 'copy', or the keyboard shortcut Ctrl+C / ⌘+C
 * Go back to the DreDown webpage and paste the URL into the search bar, using either right-click / ⌘+click and 'paste' or the keyboard shortcut Ctrl+P / ⌘+P
 * Hit the DreDown button and your video will instantly download to your machine
 
 We've tried DreDown with Instagram, YouTube, Vimeo, and Vine, and it works smoothly and quickly without any issues on all of them. On the website, it states it also works with Facebook, Keek, Twitter, Twitch, Vevo, and many more too, so if you're wondering how to download Instagram videos or any other type of video, this is the website to trust.
-
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="864" height="1296" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Method 3: Add-ons
 
@@ -101,29 +115,9 @@ The one last method we wanted to share with you is to use a browser extension to
 
 ![Add-ons](https://images.wondershare.com/filmora/article-images/2023/04/how-to-download-instagram-videos-on-pc-and-mac-03.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 It really is that easy.
 
 Once you've downloaded your selected video to your computer, you can choose to transfer them to your iPhone or iPad either using iTunes or without. Find out how here. (internal link to our article “How to download Instagram video/photo on iPhone”)
-
-<!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### The last word
 
@@ -169,24 +163,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-self-verification-on-instagram-does-it-serve-us/"><u>[New] 2024 Approved Self-Verification on Instagram Does It Serve Us?</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-unlocking-higher-engagement-a-guide-to-youtube-success/"><u>[New] 2024 Approved Unlocking Higher Engagement A Guide to YouTube Success</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-how-to-shoot-igtv-videos-with-smartphonedlsr-cameras/"><u>[New] How to Shoot IGTV Videos With Smartphone/DLSR Cameras?</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-legal-tips-and-tricks-for-custom-watermarking-in-instagram/"><u>[New] Legal Tips and Tricks for Custom Watermarking in Instagram</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-resolving-common-instagram-video-glitches/"><u>[New] Resolving Common Instagram Video Glitches</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-sharpen-your-viewing-experience-mastering-camera-focus-online-for-2024/"><u>[New] Sharpen Your Viewing Experience Mastering Camera Focus Online for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-the-ultimate-test-for-every-sports-fan-polaroids-xs-100i-review/"><u>[New] The Ultimate Test for Every Sports Fan - Polaroid's XS 100I Review</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-how-to-re-watch-lost-youtube-scenes-online-simple-steps/"><u>[Updated] 2024 Approved How to Re-Watch Lost YouTube Scenes Online Simple Steps</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-navigating-through-instagram-video-hiccups/"><u>[Updated] 2024 Approved Navigating Through Instagram Video Hiccups</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-decoding-the-revised-youtube-earnings-criteria/"><u>[Updated] In 2024, Decoding the Revised YouTube Earnings Criteria</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-video-selfie-verification-on-instagram-helpful-or-hype-for-2024/"><u>[Updated] Video Selfie Verification on Instagram - Helpful or Hype for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-elevate-ig-stories-with-seamless-audio-integration/"><u>2024 Approved Elevate IG Stories With Seamless Audio Integration</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-perfect-your-content-with-vimeo-on-instagram/"><u>2024 Approved Perfect Your Content with Vimeo on Instagram</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-can-you-transfer-files-from-itel-s23plus-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How Can You Transfer Files From Itel S23+ To iPhone 15/14/13? | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-instagram-videography-guide-size-matters/"><u>In 2024, Instagram Videography Guide - Size Matters</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-poco-x5-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Best Spy Watches For your Poco X5 | Dr.fone</u></a></li>
-<li><a href="https://discover-community.techidaily.com/optimal-duration-for-instagram-content-understanding-the-maximum-length-of-ig-videos/"><u>Optimal Duration for Instagram Content: Understanding the Maximum Length of IG Videos</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/smartly-sell-your-ideas-persuasive-proposals-and-ai-collaboration/"><u>Smartly Sell Your Ideas: Persuasive Proposals & AI Collaboration</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/vibing-with-visuals-merging-music-and-imagery-on-ig/"><u>Vibing with Visuals Merging Music and Imagery on IG</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-discovering-why-filmora-captivates-your-heart/"><u>[New] In 2024, Discovering Why Filmora Captivates Your Heart</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-mastering-the-art-of-filter-selection-on-instagram/"><u>[New] Mastering the Art of Filter Selection on Instagram</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-urban-to-agrarian-journey-stardew-titles-traced-for-2024/"><u>[New] Urban to Agrarian Journey Stardew Titles Traced for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-maximizing-impact-strategies-for-going-viral-on-instagram/"><u>[Updated] 2024 Approved Maximizing Impact Strategies for Going Viral on Instagram</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-non-youtube-video-editing-discover-the-top-5-newcomers/"><u>[Updated] 2024 Approved Non-YouTube Video Editing Discover the Top 5 Newcomers</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-virtual-venues-validation/"><u>[Updated] In 2024, VIRTUAL VENUES VALIDATION</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-birds-bamboo-boogie/"><u>2024 Approved Birds Bamboo Boogie</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-diving-into-instagrams-restriction-for-video-content/"><u>2024 Approved Diving Into Instagram's Restriction for Video Content</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-the-video-vroom-guide-rotating-images-to-gain-insta-momentum/"><u>In 2024, The Video Vroom Guide Rotating Images to Gain Insta Momentum</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/top-ranking-laptop-picks-for-2e24-comprehensive-tests-and-reviews-by-tech-gurus/"><u>Top-Ranking Laptop Picks for 2E24: Comprehensive Tests & Reviews by Tech Gurus</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/trouble-with-your-game-heres-how-to-fix-setup-problems-on-origin/"><u>Trouble With Your Game? Here's How to Fix Setup Problems on Origin</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-compressor-for-fcpx-best-practices-for-exporting-and-delivering-videos/"><u>Updated In 2024, Compressor for FCPX Best Practices for Exporting and Delivering Videos</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Silence Broken: Effective Solutions for PC Sound Failures in the World of Valheim"
-date: 2024-10-26T21:14:24.638Z
-updated: 2024-10-27T23:57:04.706Z
+date: 2024-10-27T21:07:06.243Z
+updated: 2024-11-02T20:33:13.168Z
 tags:
   - win11
   - win10
@@ -28,6 +28,13 @@ thumbnail: https://thmb.techidaily.com/d3b9fa260885ec727c421c1f7392781651fabce3d
 5. **[Install the latest game patch](https://tools.techidaily.com/drivereasy/download/)**
 6. **[Reinstall Origin and Apex Legends](https://tools.techidaily.com/drivereasy/download/)**
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Fix 1: Allow Origin to access your microphone
 
  The voice chat not working in Apex Legends error may happen if you have not allowed Origin to access your microphone.
@@ -38,34 +45,20 @@ thumbnail: https://thmb.techidaily.com/d3b9fa260885ec727c421c1f7392781651fabce3d
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/10/image-245.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  2) In**Allow apps to access your microphone** , and turn on**the switch** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/10/image-246.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  3) Scroll down to**Allow desktop apps to access your microphone** , turn on**the switch** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/10/image-248.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  By doing so, you have allowed Origin the access to the microphone on your computer.
 
@@ -88,10 +81,10 @@ thumbnail: https://thmb.techidaily.com/d3b9fa260885ec727c421c1f7392781651fabce3d
 ![](https://images.drivereasy.com/wp-content/uploads/2019/06/image-35.png)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
+  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  3) Click **Update All** to automatically download and install the correct version of_ALL_ the drivers that are missing or out of date on your system (this requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)** [](https://tools.techidaily.com/drivereasy/download/) – you’ll be prompted to upgrade when you click **Update All** ). Or if you just want to update the audio driver, simply click the **Update** button next to it.
@@ -117,10 +110,16 @@ Here’s how to do it:
 ![](https://images.drivereasy.com/wp-content/uploads/2019/10/image-239.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424533">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  4) In **Sound** settings, scroll down to the**Input** section, and in**Choose your input device** , make sure the microphone you are actively using is selected. Then,**test your microphone** by speaking into your mic to see if it ‘hears’ anything. If yes, it means you have configured the microphone properly.
@@ -143,6 +142,13 @@ Here is how to configure in-game settings:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/10/image-260.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  2) Click**More** \>**VOICE** , then make sure**the microphone you’re using is selected** and**Microphone volum** e is set to**an audio volume** . After that, in**Activation mode** , choose**Push-to-talk** .
 
 ![This image has an empty alt attribute; its file name is image-261-1024x700.png](https://images.drivereasy.com/wp-content/uploads/2019/10/image-261-1024x700.png)
@@ -151,18 +157,18 @@ Here is how to configure in-game settings:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/10/image-262-1024x576.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  4) Again, play Apex Legends to see if the voice chat not working issue is resolved.
 
  Still no joy? Please try**Fix 5** , below.
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 5: Install the latest game patch
 
@@ -218,22 +224,16 @@ Here are the steps:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-a-straightforward-path-to-turn-off-igtv/"><u>[New] 2024 Approved A Straightforward Path to Turn Off IGTV</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-navigating-through-your-instagram-post-eye-balls/"><u>[New] 2024 Approved Navigating Through Your Instagram Post Eye-Balls</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-techniques-for-text-overlays-in-video-platforms-vimeo/"><u>[New] 2024 Approved Techniques for Text Overlays in Video Platforms (Vimeo)</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-mastering-instagram-stories-step-by-step-recording-guide-for-2024/"><u>[New] Mastering Instagram Stories Step-by-Step Recording Guide for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-ideal-echo-reapers-in-colleges-for-2024/"><u>[Updated] Ideal Echo Reapers in Colleges for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-sculpting-your-online-presence-with-top-niche-creators/"><u>[Updated] In 2024, Sculpting Your Online Presence with Top Niche Creators</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-walking-through-time-a-guide-to-inverted-videos-on-instagram/"><u>[Updated] In 2024, Walking Through Time A Guide to Inverted Videos on Instagram</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-mastering-the-craft-of-igtv-video-production-with-phones-and-dslrs/"><u>[Updated] Mastering the Craft of IGTV Video Production with Phones and DSLRs</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-vlog-heroes-the-best-video-capturers-unveiled/"><u>[Updated] VLog Heroes The Best Video Capturers Unveiled</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-pedagogical-picks-the-most-effective-video-recording-tools-for-instructors/"><u>2024 Approved Pedagogical Picks The Most Effective Video Recording Tools for Instructors</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/how-to-successfully-update-your-iphones-region-settings/"><u>How to Successfully Update Your iPhone's Region Settings</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-vivo-v27e-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Vivo V27e to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-mastering-instagram-launch-your-live-session/"><u>In 2024, Mastering Instagram Launch Your Live Session</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-turn-the-tape-counterclockwise-instagrams-reverse-play-technique/"><u>In 2024, Turn the Tape Counterclockwise Instagram's Reverse Play Technique</u></a></li>
-<li><a href="https://app-tips.techidaily.com/must-know-review-inside-look-at-the-revolutionary-eva-previously-ex-journey-chatbot/"><u>Must-Know Review: Inside Look at the Revolutionary EVA (Previously Ex Journey) Chatbot</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/top-strategies-fix-hitman-3-crashes-and-boost-performance-in-your-gaming-rig/"><u>Top Strategies: Fix Hitman 3 Crashes and Boost Performance in Your Gaming Rig</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/top-performing-2-in-1-convertible-laptops-beyond-hp-and-lenovo-uncovered/"><u>Top-Performing 2-in-1 Convertible Laptops Beyond HP and Lenovo: Uncovered</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-insta-stories-enhancing-background-blur-technique/"><u>[New] 2024 Approved Insta Stories Enhancing Background Blur Technique</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-the-ultimate-handbook-for-saving-insta-content/"><u>[New] 2024 Approved The Ultimate Handbook for Saving Insta Content</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-step-by-step-designing-aplus-cover-photos-for-your-insta-highlights/"><u>[New] In 2024, Step-by-Step Designing A+ Cover Photos for Your Insta Highlights</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-decoding-the-instagram-story-viewer-experience/"><u>[Updated] 2024 Approved Decoding the Instagram Story Viewer Experience</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-10-best-video-calling-software-on-phone-and-pc/"><u>[Updated] In 2024, 10 Best Video Calling Software on Phone and PC</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1725286218608-iphone/"><u>最新のiPhoneビデオ圧縮ソフトウェアおすすめ！容量を抑えて楽に保存する方法</u></a></li>
+<li><a href="https://fox-that.techidaily.com/how-to-repair-broken-volume-buttons-on-your-iphone-with-these-7-methods/"><u>How to Repair Broken Volume Buttons on Your iPhone with These 7 Methods</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-revolutionize-virtual-reality-with-our-expertise/"><u>In 2024, Revolutionize Virtual Reality with Our Expertise</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-top-10-best-apps-for-editing-igtv-vertical-videos/"><u>In 2024, Top 10 Best Apps for Editing IGTV Vertical Videos</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/meme-tastic-creativity-tips-on-standing-out-in-virtual-worlds-for-2024/"><u>Meme-Tastic Creativity Tips on Standing Out in Virtual Worlds for 2024</u></a></li>
+<li><a href="https://solve-lab.techidaily.com/reclaim-your-deleted-files-a-guide-to-reviving-missing-documents-in-windows-server-2-techniques/"><u>Reclaim Your Deleted Files: A Guide to Reviving Missing Documents in Windows Server ([2 Techniques])</u></a></li>
 </ul></div>
 

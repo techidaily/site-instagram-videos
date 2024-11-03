@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Ultimate Guide to Engagement  Mastering Instagram Stories\""
-date: 2024-10-23T23:43:53.311Z
-updated: 2024-10-27T17:37:27.055Z
+date: 2024-10-28T23:44:07.291Z
+updated: 2024-11-03T06:10:30.661Z
 tags:
   - ai video
   - ai instagram
@@ -94,6 +94,13 @@ So, you have tried all the options with Instagram camera? Let's go through 'Hand
 
 After you have captured the video using any of the above lenses, you can share them as your Insta Story. We are sure that you have enjoyed reading about these cool camera lenses. It's time to go out and check how to use them for Instagram Stories. So, get ready with your smartphone and start capturing. Click! Click! Click!
 
+<!-- affiliate ads begin -->
+<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Tips and Tricks
 
 Now that you have an idea about all the filters and lenses of Instagram, we thought of introducing you to some cool add-ons for your captivating Instagram Stories.
@@ -102,15 +109,22 @@ Now that you have an idea about all the filters and lenses of Instagram, we thou
 
 Image resource: Ryan Bilello
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Use Stickers
 
 ![](https://images.wondershare.com/filmora/article-images/instagram-stickers.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Using 'Stickers' with your video or images you can spice up your Insta Stories. To use these stickers, first open Instagram, and then capture a video/picture or select one from your gallery. Now, tap on the smiley icon at the top right corner of the picture or video. You will see lot of options under it. Select any of them and then pin it to your picture/video to share. You can resize the 'Stickers' by pinching (to zoom in and out) them.
@@ -125,16 +139,16 @@ You can add 'Polls', 'Location', and 'Hashtags' to your Insta Stories by tapping
 
 To turn your own face into a sticker, you can tap the camera icon under the 'Stickers' section and take a selfie. Then tap on the selfie to pin it as a sticker on your picture or video, and then share as your Instagram Story.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Use your pen
 
 ![](https://images.wondershare.com/filmora/article-images/instagram-pen.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Now that you have used funny stickers to make your picture (for Insta Story) attractive, how about adding a cute personal note as well? Well, you can do that by tapping on the pen icon right next to 'Stickers'. Select the desired pen type (highlighter, airbrush, eraser, etc.) from the top and then color from the bottom of the screen. You can adjust the pen size using the slider found at the left side. After writing or doodling on the image, tap on the tick mark at the top right corner and you are good to go.
 
@@ -151,20 +165,13 @@ You can also add text to make your Instagram Stories more attractive. Tap on the
 ![](https://images.wondershare.com/filmora/article-images/instagram-pen.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Adorn your creative hat and weave some magic into the Insta Stories now. For adding color overlays to your Insta Story image or video you need to use the 'Pen' tool here and choose a color. Now, click anywhere on the screen and hold for a moment until the entire screen is covered with that color. After that tap on the 'Eraser' tool and uncover specific portions of the picture or video to create interesting Instagram Stories.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Add link
 
@@ -173,13 +180,6 @@ Adding links to your Instagram Stories is one of the trendiest things now. Gone 
 First add a video or picture and then click on the paperclip icon from the top right corner of the screen. Enter your URL after tapping the paperclip icon, and then share it as your Instagram Story to lure your audience. The 'Swipe Up' message will be displayed at the bottom of the story. You can drive your audience towards it by being little creative and drawing an arrow pointing to this text.
 
 **You May Also Like:** [How to Post a Link to Instagram Stories and Posts](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Add music
 
@@ -206,24 +206,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-2024-approved-perfect-screen-capture-on-mac-the-top-5-recommended-approaches/"><u>[New] 2024 Approved Perfect Screen Capture on Mac The Top 5 Recommended Approaches</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-the-ultimate-method-for-recorded-instagram-stories/"><u>[New] The Ultimate Method for Recorded Instagram Stories</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-how-to-secretly-browse-instagram-stories-on-desktop-and-mobile-devices-for-free/"><u>[Updated] 2024 Approved How to Secretly Browse Instagram Stories on Desktop and Mobile Devices (For Free)</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-why-fake-likes-will-ruin-your-instagram-account/"><u>[Updated] 2024 Approved Why Fake Likes Will Ruin Your Instagram Account</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-become-an-instagram-reel-guru-with-these-proven-strategies-for-2024/"><u>[Updated] Become an Instagram Reel Guru with These Proven Strategies for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-instasaver-the-leading-videophoto-downloaders-round-up/"><u>[Updated] InstaSaver The Leading Video/Photo Downloaders Round-Up</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-top-tips-for-effective-story-emoji-integration-on-instagram/"><u>2024 Approved Top Tips for Effective Story Emoji Integration on Instagram</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/frame-it-right-mastering-instagram-video-edges/"><u>Frame It Right Mastering Instagram Video Edges</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-building-impressive-instagram-story-bookmarks/"><u>In 2024, Building Impressive Instagram Story Bookmarks</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-discover-the-power-of-4k-with-asus-mg28uq-monitor-review/"><u>In 2024, Discover the Power of 4K with ASUS MG28UQ Monitor Review</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-change-lock-screen-wallpaper-on-realme-12plus-5g-by-drfone-android/"><u>In 2024, How to Change Lock Screen Wallpaper on Realme 12+ 5G</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-the-slippery-slope-of-simulated-support-instagram-style/"><u>In 2024, The Slippery Slope of Simulated Support, Instagram Style</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/mobile-3d-animation-made-easy-top-apps-for-android-and-iphone-for-2024/"><u>Mobile 3D Animation Made Easy Top Apps for Android & iPhone for 2024</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-mp4-file-editor-for-pc-quickly-trim-cut-and-merge-videos-for-2024/"><u>New MP4 File Editor for PC Quickly Trim, Cut, and Merge Videos for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/securely-save-your-windows-8-screenshots/"><u>Securely Save Your Windows 8 Screenshots</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/step-by-step-guide-resolving-the-nwstoreexe-program-crashes/"><u>Step-by-Step Guide: Resolving the nw_store.exe Program Crashes</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/syma-x8-heli-copter-evaluation-budget-friendly-aerial-fun-from-the-comfort-of-your-couch/"><u>Syma X8 Heli Copter Evaluation: Budget-Friendly Aerial Fun From the Comfort of Your Couch</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/the-secret-sauce-to-viral-instagram-movie-magic-for-2024/"><u>The Secret Sauce to Viral Instagram Movie Magic for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/viral-visibility-vault-our-compreeher-guide-of-15-proven-methods-to-amass-attention-on-instagram-for-2024/"><u>Viral Visibility Vault Our Compreeher Guide of 15 Proven Methods to Amass Attention on Instagram for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-navigating-instagrams-financial-opportunities-a-comprehensive-guide-for-2024/"><u>[Updated] Navigating Instagram's Financial Opportunities A Comprehensive Guide for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-secrets-of-capturing-high-quality-xbox-games-on-screen/"><u>[Updated] Secrets of Capturing High-Quality Xbox Games on Screen</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-unveiling-the-trick-how-to-store-instagram-content-on-pc-and-macos/"><u>2024 Approved Unveiling the Trick How to Store Instagram Content on PC and macOS</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/breakdown-and-insights-on-the-spectacular-dell-xps-13-2-in-1-laptop-a-tech-marvel/"><u>Breakdown and Insights on the Spectacular Dell XPS 13 2-In-1 Laptop: A Tech Marvel</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/elevate-your-story-game-with-multiple-image-strategies/"><u>Elevate Your Story Game with Multiple Image Strategies</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/guide-to-making-your-windows-11-touchpad-cursor-stay-on-screen/"><u>Guide to Making Your Windows 11 Touchpad Cursor Stay on Screen</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-blueprint-for-success-writing-captivating-documentaries/"><u>In 2024, Blueprint for Success Writing Captivating Documentaries</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Google Pixel 8 Pro? | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/instagram-economics-a-detailed-blueprint-for-profit-for-2024/"><u>Instagram Economics A Detailed Blueprint for Profit for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/masterful-marketing-top-strategies-to-thrive-in-fb-video-space-for-2024/"><u>Masterful Marketing Top Strategies to Thrive in FB Video Space for 2024</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-best-6-video-dubbing-software-for-pc/"><u>New Best 6 Video Dubbing Software for PC</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/the-updated-method-to-bypass-xiaomi-redmi-12-frp-by-drfone-android/"><u>The Updated Method to Bypass Xiaomi Redmi 12 FRP</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/unveiling-the-true-environmental-impact-of-e-vehicles-a-comprehensive-review/"><u>Unveiling the True Environmental Impact of E-Vehicles: A Comprehensive Review</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/visual-victory-apple-and-android-highlight-covers-for-2024/"><u>Visual Victory Apple & Android Highlight Covers for 2024</u></a></li>
 </ul></div>
 

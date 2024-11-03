@@ -1,7 +1,7 @@
 ---
 title: "Troubleshooting Tips for Call of Duty: Black Ops Cold War - Overcoming Error 27711"
-date: 2024-10-23T17:02:10.545Z
-updated: 2024-10-27T16:59:32.635Z
+date: 2024-10-28T02:12:18.889Z
+updated: 2024-11-02T19:20:04.658Z
 tags:
   - win11
   - win10
@@ -26,13 +26,6 @@ In the past couple days, many Cold War gamers are reporting a**UI error 27711** 
 3. **[Update your graphics driver](https://tools.techidaily.com/drivereasy/download/)**
 4. **[Install all Windows updates](https://tools.techidaily.com/drivereasy/download/)**
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Fix 1: Restart your PC
 
  Some gamers on[Reddit](https://www.reddit.com/r/blackopscoldwar/comments/kia139/get%5Fui%5Ferror%5F27711%5Fand%5Falso%5Fsomething%5Felse/) reported that the game went back to normal after a system restart. So before you try anything more complicated,**exit your game and do a normal reboot** . You’d be surprised how often this trick works.
@@ -47,18 +40,18 @@ In the past couple days, many Cold War gamers are reporting a**UI error 27711** 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/bocw-verify.jpg)
 2. Click **Options**  and select **Scan and Repair** . Then wait until the checking is completed.  
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/bocw-verify-2.jpg)
 
 Now you can launch the game and see if it loads this time.
 
  If this method doesn’t give you luck, simply take a look at the next one below.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Fix 3: Update your graphics driver
 
@@ -108,25 +101,33 @@ Here’s how you can check for updates manually:
 2. Scroll down and select**Update & Security** .  
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/windows-10-start-menu-open-settings-update.jpg)
 3. Click**Windows Update** .  
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/windows-10-start-menu-open-settings-update-2.jpg)
 4. Click**Check for updates** . Then wait for the process to complete. After that, restart your PC.  
-![](https://images.drivereasy.com/wp-content/uploads/2020/12/windows-10-start-menu-open-settings-update-3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![](https://images.drivereasy.com/wp-content/uploads/2020/12/windows-10-start-menu-open-settings-update-3.jpg)
 
  To make sure you’ve installed _all_  the system updates, **repeat these steps** until it prompts “You’re up to date” when you click **Check for updates** again.
 
@@ -151,24 +152,21 @@ Here’s how you can check for updates manually:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-how-to-add-border-to-instagram-photos-with-best-apps/"><u>[New] 2024 Approved How to Add Border to Instagram Photos with Best Apps</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-maximizing-visibility-how-to-upload-videos-to-instagram-desktop/"><u>[New] 2024 Approved Maximizing Visibility How to Upload Videos to Instagram Desktop</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-recommendations-to-overcome-live-breakdowns-fb/"><u>[New] 2024 Approved Recommendations to Overcome Live Breakdowns (FB)</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-easy-instagram-posting-for-gif-lovers-4-essential-tips-for-2024/"><u>[New] Easy Instagram Posting for GIF Lovers 4 Essential Tips for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-how-to-block-someone-on-instagram/"><u>[New] How to Block Someone on Instagram?</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-samsung-ubd-k8500-refreshed-2023-overview/"><u>[New] Samsung UBD-K8500 Refreshed - 2023 Overview</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-maximizing-impact-the-best-instagram-hashtag-list/"><u>[Updated] 2024 Approved Maximizing Impact The Best Instagram Hashtag List</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-elevate-photography-crafting-exceptional-time-lapses-with-black-hero5/"><u>[Updated] Elevate Photography Crafting Exceptional Time-Lapses with Black Hero5</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-eye-catching-youtube-most-followed-channels-for-2024/"><u>[Updated] Eye-Catching YouTube Most Followed Channels for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-guiding-principles-for-swapping-gender-on-instagram-facebook-and-snapchat-pics/"><u>[Updated] Guiding Principles for Swapping Gender on Instagram, Facebook & Snapchat Pics</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-everyone-should-have-one-video-collage-app-in-android-phone/"><u>[Updated] In 2024, Everyone Should Have One Video Collage App in Android Phone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-step-by-step-guide-adding-subs-to-igtv-for-2024/"><u>[Updated] Step-by-Step Guide Adding Subs to IGTV for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ge-revenue-what-every-view-contributes-to-creators-for-2024/"><u>Average Revenue What Every View Contributes to Creators for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/decoding-error-code-0x80n070570-expert-guide-on-troubleshooting-and-fix/"><u>Decoding Error Code 0X80n070570: Expert Guide on Troubleshooting and Fix</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/instagrams-latest-trends-in-video-loop-production/"><u>Instagram's Latest Trends in Video Loop Production</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ng-the-desktopmobile-youtube-speed-control/"><u>Nailing the Desktop/Mobile YouTube Speed Control</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/secret-vlc-tactics-for-optimal-viewing-experience-for-2024/"><u>Secret VLC Tactics for Optimal Viewing Experience for 2024</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/sideways-monitor-conversion-complete/"><u>Sideways Monitor Conversion Complete</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/snapit-share-it-in-order-on-ig-for-2024/"><u>SnapIt, Share It in Order on IG for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-chuckle-and-sob-with-these-top-10-instagram-meme-collectives-for-2024/"><u>[New] Chuckle & Sob with These Top 10 Instagram Meme Collectives for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-jubilant-join-and-disconnect-protocols-for-2024/"><u>[New] Jubilant Join & Disconnect Protocols for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-the-ultimate-technique-for-capturing-time-on-iphone/"><u>[Updated] 2024 Approved The Ultimate Technique for Capturing Time on iPhone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-from-camera-roll-to-igtv-video-upload-101-for-2024/"><u>[Updated] From Camera Roll to IGTV Video Upload 101 for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-hit-the-right-notes-music-mastery-on-instagram-for-2024/"><u>[Updated] Hit the Right Notes Music Mastery on Instagram for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-integrating-timestamps-in-youtube-content/"><u>2024 Approved Integrating Timestamps in YouTube Content</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-the-ultimate-cheat-sheet-pro-instagram-photo-enhancements/"><u>2024 Approved The Ultimate Cheat Sheet Pro Instagram Photo Enhancements</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-understanding-instagram-video-count-constraints/"><u>2024 Approved Understanding Instagram Video Count Constraints</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/banishing-bogus-buddies-from-instagram-social-structure-for-2024/"><u>Banishing Bogus Buddies From Instagram Social Structure for 2024</u></a></li>
+<li><a href="https://solve-help.techidaily.com/get-your-free-dvd-decompression-tool-compatible-with-windows-11-at-zero-price/"><u>Get Your FREE DVD Decompression Tool Compatible with Windows 11 at Zero Price!</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-resolve-black-screen-issues-with-your-asus-webcam-on-windows-10/"><u>How to Resolve Black Screen Issues with Your ASUS Webcam on Windows 10</u></a></li>
+<li><a href="https://review-topics.techidaily.com/remove-frp-lock-on-gt-5-240w-by-drfone-android-unlock-remove-google-frp/"><u>Remove FRP Lock on GT 5 (240W)</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/the-most-trending-templates-transforming-social-video-for-2024/"><u>The Most Trending Templates Transforming Social Video for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/transform-images-into-webp-format-instantly-and-free-with-movavis-online-tool/"><u>Transform Images Into WebP Format Instantly and Free with Movavi's Online Tool</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/ultimate-how-to-constructing-an-easy-and-affordable-projector-screen/"><u>Ultimate How-To: Constructing an Easy and Affordable Projector Screen</u></a></li>
+<li><a href="https://fake-location.techidaily.com/wondering-the-best-alternative-to-hola-on-oppo-find-x6-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>Wondering the Best Alternative to Hola On Oppo Find X6? Here Is the Answer | Dr.fone</u></a></li>
 </ul></div>
 

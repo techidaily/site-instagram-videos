@@ -1,7 +1,7 @@
 ---
 title: "Silence Unwanted Post Suggestions on Insta for 2024"
-date: 2024-10-16T18:37:42.232Z
-updated: 2024-10-22T16:02:20.747Z
+date: 2024-10-31T18:55:58.208Z
+updated: 2024-11-02T18:12:02.329Z
 tags:
   - ai video
   - ai instagram
@@ -72,28 +72,34 @@ Here's what you need to do:
 ![click on not interested on suggested posts](https://images.wondershare.com/filmora/article-images/instagram-suggestion-posts-options.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 6:** That post and user will be removed, and instead of that, you will see a message by Instagram asking for feedback. You can click on the option: I don't want to see posts from this account, and Instagram won't show you that user's posts.
 
 ![choose your feedback option](https://images.wondershare.com/filmora/article-images/instagram-suggestion-posts-feedback.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Now, you can apply the same steps for the rest of the posts as well. But do keep in mind that suggested posts will still appear. And you will have to apply this setting for each one so that you are shown fewer posts of unknown people.
 
 ## Part 3: How to Delete Suggested Users from Instagram?
 
 If you don't want to see suggested users on your Instagram feed, there is a way to remove unknown users actually. You can do it by using your web browser or Instagram mobile app. Whichever is comfortable to use. However, please note that these steps have to be followed for each suggested user. Now, please use that and then follow these steps.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### For Instagram app users
 
@@ -108,10 +114,10 @@ If you don't want to see suggested users on your Instagram feed, there is a way 
 **Step 4:** To delete multiple suggested users, just click on the see all option, and the list of suggested users will appear; now click on the X for each user you want to delete. However, you need to delete everyone one by one individually.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### For web browsers
@@ -131,16 +137,16 @@ Just like Instagram show you suggested users and posts, your account gets recomm
 ![ uncheck the similar account suggestions box](https://images.wondershare.com/filmora/article-images/uncheck-similar-account-suggestions.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+<span id="1976998">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 5: How Does Instagram Suggestions Work?
@@ -176,17 +182,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-reimagining-posts-a-new-perspective-on-ig/"><u>[New] 2024 Approved Reimagining Posts A New Perspective on IG</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-accelerating-streamed-instagram-content-mobile-hacks-for-2024/"><u>[New] Accelerating Streamed Instagram Content Mobile Hacks for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-broadcasting-higher-integrating-dji-drones-for-facebook-live-for-2024/"><u>[New] Broadcasting Higher - Integrating DJI Drones for Facebook Live for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-create-identity-a-quick-walkthrough-of-customizing-your-youtube-url/"><u>[New] In 2024, Create Identity A Quick Walkthrough of Customizing Your YouTube Url</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-the-secrets-of-squaring-up-making-square-format-videos-with-imovie-for-instagram/"><u>[New] In 2024, The Secrets of Squaring Up Making Square-Format Videos with iMovie for Instagram</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-skyrocketing-status-15-clever-methods-for-rapid-social-media-stardom-on-instagram/"><u>[Updated] In 2024, Skyrocketing Status 15 Clever Methods for Rapid Social Media Stardom on Instagram</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-exploring-the-best-5-book-promo-videos-for-authors/"><u>2024 Approved Exploring the Best 5 Book Promo Videos for Authors</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/build-better-websites-faster-with-chatgpt-discover-4-essential-techniques/"><u>Build Better Websites Faster with ChatGPT – Discover 4 Essential Techniques</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ting-video-revenue-youtubes-path/"><u>Elevating Video Revenue YouTube's Path</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-leave-a-life360-group-on-oppo-reno-11f-5g-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How To Leave a Life360 Group On Oppo Reno 11F 5G Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://article-helps.techidaily.com/m1-innovation-elevating-smoothness-in-every-editors-toolkit-for-2024/"><u>M1 Innovation Elevating Smoothness in Every Editor's Toolkit for 2024</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/sim-unlock-vivo-y100i-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>Sim Unlock Vivo Y100i Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-leading-tools-to-monitor-hashtags-on-fb-twitter-and-instagram/"><u>[New] 2024 Approved Leading Tools to Monitor Hashtags on FB, Twitter & Instagram</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-premium-designers-stellar-instagram-hlv-page-builders/"><u>[New] 2024 Approved Premium Designers Stellar Instagram HLV Page Builders</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-showcase-splendor-best-cover-apps-for-iphones-and-android/"><u>[New] 2024 Approved Showcase Splendor Best Cover Apps for iPhones & Android</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-enhancing-imagery-a-step-by-step-guide-to-crop-videos-on-instagram/"><u>[New] Enhancing Imagery A Step-by-Step Guide to Crop Videos on Instagram</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-instagram-stories-harmonizing-photos-for-maximum-impact/"><u>[Updated] Instagram Stories Harmonizing Photos for Maximum Impact</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580138450-103-crucial-croatian-expressions-your-translator-on-the-go/"><u>103 Crucial Croatian Expressions: Your Translator On-the-Go</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-2023s-best-cam-recorders-a-curated-selection-of-18/"><u>2024 Approved 2023'S Best Cam Recorders A Curated Selection of 18</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-how-to-turn-off-suggested-posts-on-instagram/"><u>2024 Approved How to Turn Off Suggested Posts on Instagram?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-price-tracker-for-cloud-space-services-a-detailed-review/"><u>2024 Approved Price Tracker for Cloud Space Services A Detailed Review</u></a></li>
+<li><a href="https://win-blog.techidaily.com/decoding-and-resolving-the-centipede-issue-a-destiny-2-players-handbook/"><u>Decoding and Resolving the Centipede Issue: A Destiny 2 Player’s Handbook</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-vivo-y100i-android-system-webview-crash-2024-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Vivo Y100i Android System Webview Crash 2024 Issue | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/from-portrait-to-landscape-the-ultimate-guide-to-instagram-video-spins-for-2024/"><u>From Portrait to Landscape The Ultimate Guide to Instagram Video Spins for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-3-easy-methods-to-unlock-icloud-locked-iphone-13-miniipadipod-by-drfone-ios/"><u>In 2024, 3 Easy Methods to Unlock iCloud Locked iPhone 13 mini/iPad/iPod</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-insta-chat-101-an-introduction-to-online-video-talks/"><u>In 2024, Insta Chat 101 An Introduction to Online Video Talks</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/next-generation-of-intel-desktops-could-exceed-heat-specs-raises-concerns-for-arrow-lake-series/"><u>Next Generation of Intel Desktops Could Exceed Heat Specs, Raises Concerns for Arrow Lake Series</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/overcoming-virtual-reality-nausea/"><u>Overcoming Virtual Reality Nausea</u></a></li>
+<li><a href="https://driver-error.techidaily.com/resolving-driver-conflicts-in-windows-quickly/"><u>Resolving Driver Conflicts in Windows Quickly</u></a></li>
 </ul></div>
 

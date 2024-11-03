@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Constructing Unique Instagram Story Panels\""
-date: 2024-10-26T08:48:29.113Z
-updated: 2024-10-27T23:58:35.300Z
+date: 2024-11-01T04:49:29.282Z
+updated: 2024-11-03T01:34:11.691Z
 tags:
   - ai video
   - ai instagram
@@ -63,6 +63,13 @@ Canva provides fully customizable templates for highlight cover, you can drag on
 
 ![Canva highlight cover template](https://images.wondershare.com/filmora/article-images/canva-instagram-highlight-cover-templates.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 If you choose to create Instagram highlight covers from scratch without a template, you can follow the steps below.
 
 On the design page, click on **Add Page** and then on the upper left side, you will see Background color, click on it and select the color you want to add. Alternatively, you can add your brand's hex code color. For the photos, you can either select a stock image from the Canva, connect your Instagram, or upload your own.
@@ -78,10 +85,10 @@ Once you have a background color or photo, you can add an icon, emoji, or text. 
 ![ add text to  highlight cover ](https://images.wondershare.com/filmora/article-images/add-text-highlight-cover-canva.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 You can make as many highlights covers as you want. Just click on the +Add page to replicate the background and then add a new icon or text for each new page created.
@@ -90,20 +97,20 @@ You can make as many highlights covers as you want. Just click on the +Add page 
 
 ![ download  highlight cover ](https://images.wondershare.com/filmora/article-images/download-canva-instagram-highlight-cover.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Once you are done making the Instagram highlight covers and are satisfied with the work, click on the Download button. Choose the file type like PNG or JPG, save your download settings, and hit the Download tab. Your highlight covers download as a zip file. Unzip them and transfer them to your phone via your preferred method.
+
+<!-- affiliate ads begin -->
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: How to Upload a Highlight Cover on Instagram
 
@@ -118,13 +125,6 @@ As we said before, you should transfer the created highlight cover photos from d
 If you have existing highlight covers, you can easily edit and change them. Go to your Instagram profile, go to the Highlights section and press and hold the highlight cover that you want to change, tap **More** and then tap on **Edit Highlight**, and then on **Edit Cover**. Find the photo you want to use as a new cover for the highlight, and click on it and tap on Done.
 
 Besides changing highlight cover, here you can edit the highlight and add old stories or delete the images you do not want.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Bonus: Tips for making better Instagram Highlight cover
 
@@ -151,16 +151,16 @@ Creating Instagram Highlight Covers is a quick and easy way to maintain your bra
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983551">
+<span id="1983545">
 					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -178,22 +178,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-achieving-ideal-mac-resized-instagram-video-content-for-2024/"><u>[New] Achieving Ideal Mac-Resized Instagram Video Content for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-boost-visual-impact-selecting-excellent-edges-for-instagram-shots/"><u>[New] In 2024, Boost Visual Impact Selecting Excellent Edges for Instagram Shots</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-instagram-harmony-music-edition/"><u>[New] Instagram Harmony Music Edition</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-unleash-creative-potential-a-detailed-breakdown-of-photoshops-background-eraser-feature/"><u>[Updated] 2024 Approved Unleash Creative Potential A Detailed Breakdown of Photoshop's Background Eraser Feature</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-from-silence-to-symphony-enhancing-stories-with-ig-music-for-2024/"><u>[Updated] From Silence to Symphony Enhancing Stories with IG Music for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-giggles-and-graphics-iphone-edition/"><u>[Updated] Giggles & Graphics IPhone Edition</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-mastering-the-lens-focus-techniques-for-storify-success-for-2024/"><u>[Updated] Mastering the Lens Focus Techniques for Storify Success for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-uncover-the-secret-to-extra-instagram-filters-for-zero-cost/"><u>[Updated] Uncover the Secret to Extra Instagram Filters for Zero Cost</u></a></li>
-<li><a href="https://facebook.techidaily.com/critical-steps-for-protecting-your-social-media-login/"><u>Critical Steps for Protecting Your Social Media Login</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/elevating-your-igtv-presence-with-stunning-covers-for-2024/"><u>Elevating Your IGTV Presence with Stunning Covers for 2024</u></a></li>
-<li><a href="https://driver-install.techidaily.com/enhance-system-stability-with-latest-driver-updates-for-hp-omen-15/"><u>Enhance System Stability with Latest Driver Updates for HP Omen 15</u></a></li>
-<li><a href="https://ai-voice-clone.techidaily.com/in-2024-best-7-talking-photo-ai-you-must-try-online-and-download/"><u>In 2024, Best 7 Talking Photo AI You Must Try (Online & Download)</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Nubia Red Magic 9 Pro? | Dr.fone</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/recmaster-screen-recorder-review-2023-for-2024/"><u>Recmaster Screen Recorder Review 2023 for 2024</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/restoring-radiance-to-rugged-reality-views/"><u>Restoring Radiance to Rugged Reality Views</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/the-essential-ipv-guide-for-high-quality-instagram-mp4s/"><u>The Essential IPV Guide for High-Quality Instagram MP4s</u></a></li>
-<li><a href="https://common-error.techidaily.com/windows-1110-keyboard-repair-solving-letter-key-issues-effectively/"><u>Windows 11/10 Keyboard Repair: Solving Letter Key Issues Effectively</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-veiled-vocal-vaults-top-6-under-the-radar-mobile-apps/"><u>[New] 2024 Approved Veiled Vocal Vaults Top 6 Under-the-Radar Mobile Apps</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-a-tutorial-for-adding-vintage-touches-instagram-filters-on-existing-media-for-2024/"><u>[New] A Tutorial for Adding Vintage Touches Instagram Filters on Existing Media for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-clearer-connections-a-comprehensive-guide-to-crop-and-share-on-instagram/"><u>[New] Clearer Connections A Comprehensive Guide to Crop and Share on Instagram</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-enhance-your-footage-reducing-size-for-instagram-on-a-mac-for-2024/"><u>[New] Enhance Your Footage Reducing Size for Instagram on a Mac for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-from-tiktok-to-instagram-stardom-replicating-popular-reel-techniques/"><u>[Updated] 2024 Approved From TikTok to Instagram Stardom Replicating Popular Reel Techniques</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-unveiling-the-art-of-written-visual-narratives-a-guide-on-docuscripts/"><u>2024 Approved Unveiling the Art of Written Visual Narratives A Guide on Docuscripts</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/5-ways-to-reset-nokia-c12-without-volume-buttons-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Reset Nokia C12 Without Volume Buttons | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ve-professional-quality-on-yt-with-simple-blurring-for-2024/"><u>Achieve Professional Quality on YT with Simple Blurring for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/boost-your-social-media-presence-through-instagram-video-edits-for-2024/"><u>Boost Your Social Media Presence Through Instagram Video Edits for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/el-mejor-compressor-mp4-en-2023-tecnicas-avanzadas-de-codificacion-de-videos/"><u>El Mejor Compressor MP4 en 2023 - Técnicas Avanzadas De Codificación De Vídeos</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-the-ultimate-guide-to-online-animation-software-top-10-picks-for-2024/"><u>New The Ultimate Guide to Online Animation Software Top 10 Picks for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/why-quality-cropping-functions-are-essential-for-future-ready-streaming-services/"><u>Why Quality Cropping Functions Are Essential for Future-Ready Streaming Services</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-motorola-moto-g84-5g-drfone-by-drfone-virtual-android/"><u>Will iSpoofer update On Motorola Moto G84 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/younow-review-and-alternative/"><u>Younow Review and Alternative</u></a></li>
 </ul></div>
 

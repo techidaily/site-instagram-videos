@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Crafting Memes  Perfecting Social Media Videos on FB & Insta\""
-date: 2024-10-22T20:32:48.417Z
-updated: 2024-10-27T18:38:05.052Z
+date: 2024-10-27T19:38:24.576Z
+updated: 2024-11-02T23:23:44.465Z
 tags:
   - ai video
   - ai instagram
@@ -37,10 +37,10 @@ thumbnail: https://thmb.techidaily.com/a6de986a3fdb94c7142abb7e1738397c8994a30f4
  Before knowing how to make a video meme for Instagram/Facebook, how about understanding their specs on both the platforms and get the best out of it? It is of utmost importance to know the social media specs before venturing into video marketing in these platforms.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Facebook
@@ -65,13 +65,6 @@ thumbnail: https://thmb.techidaily.com/a6de986a3fdb94c7142abb7e1738397c8994a30f4
 * Maximum word count is 2,200 characters but 90 characters is recommended for links.
 * Link description is 30 characters max with 25 characters long headline.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
-  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Instagram
 
  When it comes to Instagram, it has [71% of brands with it that reach to their audience](https://sproutsocial.com/insights/instagram-stats/). Due to the high visibility rate over the internet, brand-created Instagram videos are worth investing. It has three different video formats, such as landscape, vertical, and square. Mobile being an indispensable device nowadays, accessing social networking platforms has grown tremendously. This in turn made Instagram videos a big hit, though, organic reach is comparatively less.
@@ -80,6 +73,13 @@ thumbnail: https://thmb.techidaily.com/a6de986a3fdb94c7142abb7e1738397c8994a30f4
 * Likewise, the aspect ratios for landscape, vertical, and square is 1.91:1, 1:1, and 4:5 respectively.
 * The video formats, maximum file size and maximum frames are same as Facebook videos. Though, the video size is only 60 seconds.
 * Maximum caption and recommended are 2,200 and 125 characters respectively.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to make a video meme for Facebook and Instagram step by step
 
@@ -93,28 +93,28 @@ thumbnail: https://thmb.techidaily.com/a6de986a3fdb94c7142abb7e1738397c8994a30f4
 
 ![import meme](https://images.wondershare.com/filmora/article-images/drag-memes-filmora-meme-maker.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 2**: Go to the meme editor page. Click the tools from left and customize the meme. The preview window shows the changes. Try playing with fonts and texts with funny content.
 
 **Tips**: Crafting quips can make your meme more popular on Facebook and Instagram.
 
 ![edit meme](https://images.wondershare.com/filmora/article-images/edit-memes-filmroa-meme-maker.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3**: Finally, click ‘CREATE’ and let the changes take effect. Press the ‘DOWNLOAD’ button once you are happy with the changes. You can share now on your Facebook and Instagram accounts.
 
 ![export meme](https://images.wondershare.com/filmora/article-images/export-memes-filmora-meme-maker.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Bottom Line
@@ -138,22 +138,15 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-10-instagram-hashtag-that-you-should-be-using-today-for-2024/"><u>[New] 10 Instagram Hashtag That You Should Be Using Today for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-analyzing-instagrams-per-video-timeframe-for-2024/"><u>[New] Analyzing Instagram's Per-Video Timeframe for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-snicker-sphere-top-grade-no-charge-memes/"><u>[New] Snicker Sphere Top-Grade, No-Charge Memes</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-evaluating-inshots-capabilities-against-market-leaders/"><u>[Updated] Evaluating InShot's Capabilities Against Market Leaders</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-mastering-instagram-narratives-through-captioning-for-2024/"><u>[Updated] Mastering Instagram Narratives Through Captioning for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-navigating-youtube-sharing-on-insta-stories/"><u>2024 Approved Navigating YouTube Sharing on Insta Stories</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-strategic-hashtag-application-for-greater-instagram-traction/"><u>2024 Approved Strategic Hashtag Application for Greater Instagram Traction</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/honor-data-retrieval-tool-restore-lost-data-from-honor-100-pro-by-fonelab-android-recover-data/"><u>Honor Data Retrieval tool – restore lost data from Honor 100 Pro</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-infinix-hot-40i-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change Infinix Hot 40i Location on Skout | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/how-to-update-or-downgrade-apple-iphone-xs-max-without-losing-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Update or Downgrade Apple iPhone XS Max Without Losing Data? | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-vivo-x100-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Read This Guide to Find a Reliable Alternative to Fake GPS On Vivo X100 Pro | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/instagram-photo-perfection-applying-stylish-borders-for-2024/"><u>Instagram Photo Perfection Applying Stylish Borders for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/instagram-repurpose-images-and-videos/"><u>Instagram Repurpose Images & Videos</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/optimal-techniques-for-verbal-note-taking-expertise-for-2024/"><u>Optimal Techniques for Verbal Note-Taking Expertise for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/stop-windows-from-prompting-for-updates/"><u>Stop Windows From Prompting for Updates</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/the-path-to-voice-interaction-in-windows-11/"><u>The Path to Voice Interaction in Windows 11</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/unleash-flawless-footage-overcome-instagram-video-hurdles-for-2024/"><u>Unleash Flawless Footage Overcome Instagram Video Hurdles for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-becoming-an-economic-force-a-guide-to-earning-on-youtube/"><u>[New] 2024 Approved Becoming an Economic Force A Guide to Earning on YouTube</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-clear-your-vision-overcoming-instagram-footage-issues/"><u>[New] 2024 Approved Clear Your Vision Overcoming Instagram Footage Issues</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-how-to-make-youtube-animated-subscribe-button-easily-in-filmora/"><u>[New] 2024 Approved How to Make YouTube Animated Subscribe Button Easily in Filmora</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-the-science-behind-the-best-sized-videos-for-your-instagram-story/"><u>[New] The Science Behind the Best-Sized Videos for Your Instagram Story</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-the-trap-of-tricksy-traffic-instagrams-hidden-hazard/"><u>[New] The Trap of Tricksy Traffic Instagram's Hidden Hazard</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-tailoring-drop-dates-to-maximize-listener-interest/"><u>[Updated] Tailoring Drop Dates to Maximize Listener Interest</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/instagram-dimensions-for-impressive-videography/"><u>Instagram Dimensions for Impressive Videography</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/top-ios-emulators-reviving-classic-psp-game-experiences-2023-guide/"><u>Top iOS Emulators Reviving Classic PSP Game Experiences - 2023 Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/web-development-hacks-embedding-youtubes-playlists-effortlessly/"><u>Web Development Hacks Embedding YouTube's Playlists Effortlessly</u></a></li>
+<li><a href="https://fox-sys.techidaily.com/worry-less-cloning-of-a-gpt-drive-to-an-mbr-solid-state-disk-a-comprehensive-tutorial/"><u>Worry-Less Cloning of a GPT Drive to an MBR Solid State Disk - A Comprehensive Tutorial</u></a></li>
 </ul></div>
 

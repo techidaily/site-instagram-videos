@@ -1,7 +1,7 @@
 ---
 title: Step-by-Step Guide to Improve Frame Rates & Eliminate Lagging Issues for Enthralling Play in Fall Guys
-date: 2024-10-24T03:42:10.022Z
-updated: 2024-10-27T23:54:30.304Z
+date: 2024-11-01T02:31:54.866Z
+updated: 2024-11-02T22:16:10.528Z
 tags:
   - win11
   - win10
@@ -34,13 +34,6 @@ thumbnail: https://thmb.techidaily.com/00e6416ee52e959bd4b417b088ce280ff84f1d381
 7. **[Set the Power Plan of your PC for high performance](https://tools.techidaily.com/drivereasy/download/)**
 8. [**Adjust your Windows system for the best performance**](https://tools.techidaily.com/drivereasy/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Fix 1: Update your graphics driver
 
  Updating drivers should always be your go-to option when you’re experiencing in-game fps drops. Whether you choose to update the device drivers manually, using Windows Update, or you use a trusted third party product, it’s essential that you have the latest correct device drivers for your operating system at all times.
@@ -62,13 +55,34 @@ thumbnail: https://thmb.techidaily.com/00e6416ee52e959bd4b417b088ce280ff84f1d381
 ![Driver Easy scan now](https://images.drivereasy.com/wp-content/uploads/2020/11/Driver-Easy-scan-now.jpg)
 3. Click **Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system.  
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click Update All. If you don’t want to pay for the Pro version, you can still download and install all the drivers you need with the free version; you just have to download them one at a time, and [manually install them, the normal Windows way](https://tools.techidaily.com/drivereasy/download/) .)  
 ![Update graphics drivers with Driver Easy](https://images.drivereasy.com/wp-content/uploads/2020/09/de-update-all-rtx-3080.jpg)
 4. Once the driver is updated, reboot your PC for the changes to take effect.
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **The Pro version of Driver Easy** comes with _full technical support_ . If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
 
  See if the latest graphics driver fix the Resident Evil Village fps drops. If this fix doesn’t work for you, try the next fix, below.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Fix 2: Optimize GPU Settings
 
@@ -111,17 +125,17 @@ Simply follow the steps below to modify Windows 10 OS graphics settings:
 ![Windows 10 graphics settings](https://images.drivereasy.com/wp-content/uploads/2021/05/Windows-10-graphics-settings.jpg)
 3. Then go to **the drive where you save Resident Evil Village game files** \> **Program Files (x86)** or **Program Files** \> **Steam** \> **steamapps** \> **common** \> **Resident Evil Village** game folder, double-click **the .exe file** of Resident Evil Village to add the game.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 4. Once added, click the**Options** button under re8.exe, then select **High performance** and click **Save** .  
 ![Windows 10 graphics settings high performance](https://images.drivereasy.com/wp-content/uploads/2021/05/Windows-10-graphics-settings-high-performance.jpg)
 
  Restart the game to see if it runs smoothly. If not, you may need to move on and modify the in-game graphics settings.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Step 3: Modify in-game graphics settings
 
@@ -131,20 +145,13 @@ Simply follow the steps below to modify Windows 10 OS graphics settings:
 2. Tweak the settings one by one until you find the graphics profile that suits your hardware and ganrantees a good gaming experience.  
 ![Resident Evil Village in-game graphics settings](https://images.drivereasy.com/wp-content/uploads/2021/05/Resident-Evil-Village-in-game-graphics-settings.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068432/7443" target="_top" id="2068432">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068432" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068432/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Restart the game to check if the Resident Evil Village fps drops again. If this issue persists, try the next fix, below.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Fix 3: Install the latest game patch
@@ -156,10 +163,10 @@ Simply follow the steps below to modify Windows 10 OS graphics settings:
  Run Resident Evil Village again to see whether the FPS is back to normal. If it didn’t work, or there was no new game patch available, move on to next fix, below.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
+  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Fix 4: Disable the Steam Overlay
@@ -170,14 +177,14 @@ Simply follow the steps below to modify Windows 10 OS graphics settings:
 ![Resident Evil Village steam properties](https://images.drivereasy.com/wp-content/uploads/2021/05/Resident-Evil-Village-steam-properties.jpg)
 2. In the**GENERAL** section, Uncheck **Enable Steam Overlay while in-game** .  
 
-![Disable the Steam Overlay for Resident Evil Village](https://images.drivereasy.com/wp-content/uploads/2021/05/Disable-the-Steam-Overlay-for-Resident-Evil-Village.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![Disable the Steam Overlay for Resident Evil Village](https://images.drivereasy.com/wp-content/uploads/2021/05/Disable-the-Steam-Overlay-for-Resident-Evil-Village.jpg)
 
  Launch Resident Evil Village to see if the game runs smoothly. If the issue persists, try the next fix, below.
 
@@ -192,6 +199,19 @@ To set Resident Evil Village to High priority:
 3. Navigate to the **Detail** tab. **Right-click** the **main process of Resident Evil Village** and select **High** .  
 ![Resident Evil Village high priority](https://images.drivereasy.com/wp-content/uploads/2021/05/Resident-Evil-Village-high-priority.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Restart the game to see if the in-game FPS improves. If the FPS is still the same, try the next fix, below.
 
 ## Fix 6: Close resource-hogging apps
@@ -203,13 +223,6 @@ To set Resident Evil Village to High priority:
 ![End task](https://images.drivereasy.com/wp-content/uploads/2019/07/Task-Manager.jpg)
 
  Run Resident Evil Village to see if you can play the game smoothly. if not, try the next fix, below.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Fix 7: Set the Power Plan of your PC for high performance
 
@@ -239,13 +252,6 @@ Launch Resident Evil Village to check if the in-game fps improves.
 
 ![Adjust Windows for best performance](https://images.drivereasy.com/wp-content/uploads/2021/05/Adjust-Windows-for-best-performance.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Launch Resident Evil Village to see if you get a better in-game fps.
 
 ---
@@ -274,20 +280,24 @@ Launch Resident Evil Village to see if you get a better in-game fps.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-enhanced-visual-splendor-adding-filters-to-media-pc-and-mobile-for-2024/"><u>[New] Enhanced Visual Splendor Adding Filters to Media (PC & Mobile) for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-glow-up-guide-for-the-social-savvy-top-three-highlighters-on-instagram-for-2024/"><u>[New] Glow-Up Guide for the Social Savvy Top Three Highlighters on Instagram for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-olympic-snowboard-x-sprint-highlights-22/"><u>[New] In 2024, Olympic Snowboard X Sprint Highlights '22</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-the-ultimate-list-of-instagram-downloaders/"><u>[New] The Ultimate List of Instagram Downloaders</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-untangling-aerial-vehicles-a-guide-to-drones-operation/"><u>[New] Untangling Aerial Vehicles A Guide to Drones' Operation</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-the-art-of-blending-music-into-your-ig-visuals-for-2024/"><u>[Updated] The Art of Blending Music Into Your IG Visuals for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-step-by-step-to-reel-success-on-instagram/"><u>2024 Approved Step-by-Step to Reel Success on Instagram</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/enhancing-video-performance-on-the-social-platform/"><u>Enhancing Video Performance on the Social Platform</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/how-to-make-the-most-of-live-photo-upgrades-on-ios-16-devices/"><u>How to Make the Most of Live Photo Upgrades on iOS 16 Devices</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-samsung-galaxy-a15-5g-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Samsung Galaxy A15 5G | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-beats-and-bites-mastering-music-in-instagram-stories/"><u>In 2024, Beats & Bites Mastering Music in Instagram Stories</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-nokia-g42-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Nokia G42 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/reveal-the-rare-5-effortless-ways-to-enhance-views-for-2024/"><u>Reveal the Rare 5 Effortless Ways to Enhance Views for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/review-of-the-versatile-omnicharge-omni-20-a-comprehensive-guide-to-its-multi-charger-capabilities-and-qi-wireless-features/"><u>Review of the Versatile Omnicharge Omni 20: A Comprehensive Guide to Its Multi-Charger Capabilities & QI Wireless Features</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/ultimate-fix-guide-mastering-photo-8-on-windows-a-comprehensive-overview/"><u>Ultimate Fix Guide: Mastering Photo 8 on Windows - A Comprehensive Overview</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-20-youtube-channels-for-all-time-favorite-bands-for-2024/"><u>[New] 20 YouTube Channels for All-Time Favorite Bands for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-from-mobile-to-hard-drive-best-online-and-os-x-exporters-for-instagram-videos/"><u>[New] 2024 Approved From Mobile to Hard Drive Best Online and OS X Exporters for Instagram Videos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-instagram-blocking-made-simple/"><u>[New] Instagram Blocking Made Simple</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-understanding-and-executing-photo-gender-modification-online/"><u>[New] Understanding and Executing Photo Gender Modification Online</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/our-path-to-youtube-studio-the-editors-command-center/"><u>[New] Your Path to YouTube Studio The Editor's Command Center</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-edge-it-right-a-list-of-top-borders-in-social-media-photography-for-2024/"><u>[Updated] Edge It Right A List of Top Borders in Social Media Photography for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-amp-up-your-ig-videos-crafting-winning-marketing-tactics/"><u>[Updated] In 2024, Amp Up Your IG Videos Crafting Winning Marketing Tactics</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-seamless-text-overlay-the-key-to-interactive-instagram-media-for-2024/"><u>[Updated] Seamless Text Overlay The Key to Interactive Instagram Media for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-srt-manipulation-a-mac-users-ultimate-guidebook-for-2024/"><u>[Updated] SRT Manipulation A Mac User's Ultimate Guidebook for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-ultimate-10-steps-to-optimize-your-insta-storytelling-for-2024/"><u>[Updated] The Ultimate 10 Steps to Optimize Your Insta Storytelling for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-ultimate-guide-to-10-igtv-video-wins-for-marketers-for-2024/"><u>[Updated] The Ultimate Guide to 10 IGTV Video Wins for Marketers for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-unbrick-a-dead-infinix-smart-8-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Unbrick a Dead Infinix Smart 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-best-writing-ever-seen-across-film-genres/"><u>In 2024, Best Writing Ever Seen Across Film Genres</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Lava Blaze Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-contacts-from-oppo-reno-10-proplus-5g-by-fonelab-android-recover-contacts/"><u>Possible solutions to restore deleted contacts from Oppo Reno 10 Pro+ 5G.</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/say-hello-to-the-next-generation-of-cpu-cooling-the-nh-l12sx77-by-noctua-for-enhanced-sff-ram-clearance-and-improved-vrm-thermal-control/"><u>Say Hello to the Next Generation of CPU Cooling - The NH-L12Sx77 by Noctua for Enhanced SFF Ram Clearance & Improved VRM Thermal Control</u></a></li>
+<li><a href="https://win11.techidaily.com/seamlessly-convert-your-multimedia-into-htc-formats-using-the-advanced-htc-video-converter-tool/"><u>Seamlessly Convert Your Multimedia Into HTC Formats Using the Advanced HTC Video Converter Tool</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/soviet-echoes-comparing-ukrainian-and-russian/"><u>Soviet Echoes: Comparing Ukrainian and Russian</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/unleash-creativity-a-comprehensive-guide-to-instagram-video-upload-via-desktop-for-2024/"><u>Unleash Creativity A Comprehensive Guide to Instagram Video Upload via Desktop for 2024</u></a></li>
 </ul></div>
 
