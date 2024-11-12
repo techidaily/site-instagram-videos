@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Go From Camera to Cellphone  VT Adjustments in FCPX\""
-date: 2024-10-29T16:04:17.802Z
-updated: 2024-11-02T16:50:54.263Z
+date: 2024-11-09T06:15:49.985Z
+updated: 2024-11-11T21:39:24.483Z
 tags:
   - ai video
   - ai instagram
@@ -51,10 +51,10 @@ Before entering the nitty-gritty on how to edit vertical videos with FCPX, you s
 | **Audio codecs supported**       | 128 kbps, Vorbis                                         |
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to Edit and Export Vertical Videos for Instagram in Final Cut Pro X?
@@ -96,10 +96,10 @@ Too many steps? Then try a **beginner-friendly editing tool**, Filmora!
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: Tips on Editing Vertical Videos for Instagram
@@ -119,10 +119,10 @@ Is the video already shot horizontally on your camera or smartphone? No worries,
 Vertical video is a great option to showcase wide and tall subjects where you can place close-ups and show off details to get up close and personal. It could be a product or fabric. You can showcase enticing minor elements that attract an audience in such landscape shots.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -132,10 +132,16 @@ Hence, I am sure you found new tactics to create vertical videos for Instagram. 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884017/19272" target="_top" id="1884017">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884017" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884017/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975503">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -153,17 +159,17 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://technical-tips.techidaily.com/spider-man-no-way-home-how-to-legally-view-and-stream-it/"><u>'Spider-Man: No Way Home': How to Legally View and Stream It?</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/erfecting-the-skill-for-selective-youtube-downloads-for-2024/"><u>[New] Perfecting the Skill for Selective YouTube Downloads for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-the-ultimate-guide-to-selecting-8-best-instagram-scheduler-tools/"><u>[New] The Ultimate Guide to Selecting 8 Best Instagram Scheduler Tools</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-advanced-techniques-in-zooming-achieving-perfect-audio-quality-for-your-podcast/"><u>[Updated] 2024 Approved Advanced Techniques in Zooming Achieving Perfect Audio Quality for Your Podcast</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-dominating-instagrams-social-scene-5-proven-tips-and-success-stories/"><u>[Updated] 2024 Approved Dominating Instagram's Social Scene 5 Proven Tips & Success Stories</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-unlocking-the-power-to-preserve-instagrams-live-features/"><u>[Updated] 2024 Approved Unlocking the Power to Preserve Instagram's Live Features</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-the-5-prime-apps-for-clandestine-story-viewers/"><u>[Updated] The 5 Prime Apps for Clandestine Story Viewers</u></a></li>
-<li><a href="https://win-remarkable.techidaily.com/gmailgoogle-bookmark/"><u>如何在不同版本的Gmail下恢复Google Bookmark？——精彩实用指南</u></a></li>
-<li><a href="https://win11.techidaily.com/essential-windows-photo-ordering-software-roundup/"><u>Essential Windows Photo Ordering Software Roundup</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-iphone-image-conversion-wizardry-turning-jpgpng-into-pdf/"><u>In 2024, IPhone Image Conversion Wizardry Turning JPG/PNG Into PDF</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/making-a-mark-on-instagram-strategies-for-securing-brand-funding-and-partnerships/"><u>Making a Mark on Instagram Strategies for Securing Brand Funding and Partnerships</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210209405-9781071581094-passe-backstage-para-o-outro-lado/"><u>Passe Backstage Para O Outro Lado | Free Book</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-a-guide-to-free-you-from-youtubes-extra-bar-width/"><u>[New] 2024 Approved A Guide to Free You From YouTube's Extra Bar Width</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-mastering-instagram-videos-direct-and-alternative-saves/"><u>[New] 2024 Approved Mastering Instagram Videos Direct & Alternative Saves</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-crafting-your-sound-story-utilizing-auditions-fade-in/"><u>[Updated] Crafting Your Sound Story Utilizing Audition's Fade In</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-unveiling-virtual-frontiers-anticipated-top-5-ps-vr-experiences/"><u>[Updated] Unveiling Virtual Frontiers Anticipated Top 5 PS VR Experiences</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/2024-approved-best-tips-on-how-to-design-travel-slideshow/"><u>2024 Approved Best Tips on How to Design Travel Slideshow</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/best-instagram-highlight-cover-makers-online-you-should-know-for-2024/"><u>Best Instagram Highlight Cover Makers Online You Should Know for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/descubre-el-corazon-humano-en-espanol-un-viaje-intrigante-desde-el-niveles-superiores-al-subterraneo/"><u>Descubre El Corazón Humano en Español: Un Viaje Intrigante Desde El Niveles Superiores Al Subterráneo</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/essential-iphone-skills-photo-resizing-guide/"><u>Essential iPhone Skills Photo Resizing Guide</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-nokia-g42-5g-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Nokia G42 5G Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-instagram-enhancement-the-top-tactics-for-better-storytelling/"><u>In 2024, Instagram Enhancement The Top Tactics for Better Storytelling</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-spins-that-stun-the-ultimate-manual-for-flipping-photos-on-instagram-platforms/"><u>In 2024, Spins That Stun The Ultimate Manual for Flipping Photos on Instagram Platforms</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-samsung-galaxy-a24-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On Samsung Galaxy A24? | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Silence Broken: Effective Solutions for PC Sound Failures in the World of Valheim"
-date: 2024-10-27T21:07:06.243Z
-updated: 2024-11-02T20:33:13.168Z
+date: 2024-11-06T03:49:50.895Z
+updated: 2024-11-12T07:05:02.413Z
 tags:
   - win11
   - win10
@@ -28,13 +28,6 @@ thumbnail: https://thmb.techidaily.com/d3b9fa260885ec727c421c1f7392781651fabce3d
 5. **[Install the latest game patch](https://tools.techidaily.com/drivereasy/download/)**
 6. **[Reinstall Origin and Apex Legends](https://tools.techidaily.com/drivereasy/download/)**
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Fix 1: Allow Origin to access your microphone
 
  The voice chat not working in Apex Legends error may happen if you have not allowed Origin to access your microphone.
@@ -50,15 +43,22 @@ thumbnail: https://thmb.techidaily.com/d3b9fa260885ec727c421c1f7392781651fabce3d
 ![](https://images.drivereasy.com/wp-content/uploads/2019/10/image-246.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  3) Scroll down to**Allow desktop apps to access your microphone** , turn on**the switch** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/10/image-248.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  By doing so, you have allowed Origin the access to the microphone on your computer.
 
@@ -81,10 +81,10 @@ thumbnail: https://thmb.techidaily.com/d3b9fa260885ec727c421c1f7392781651fabce3d
 ![](https://images.drivereasy.com/wp-content/uploads/2019/06/image-35.png)
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
-  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  3) Click **Update All** to automatically download and install the correct version of_ALL_ the drivers that are missing or out of date on your system (this requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)** [](https://tools.techidaily.com/drivereasy/download/) – you’ll be prompted to upgrade when you click **Update All** ). Or if you just want to update the audio driver, simply click the **Update** button next to it.
@@ -99,6 +99,13 @@ thumbnail: https://thmb.techidaily.com/d3b9fa260885ec727c421c1f7392781651fabce3d
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Fix 3: Make sure your microphone is set as default in Windows
 
  Ideally Windows can automatically detect your microphone and set it as the default device every time it’s plugged into. But that’s not always the case and sometimes you’ll have to manually set it as default.[](https://tools.techidaily.com/drivereasy/download/) [](http://twitter.com/home/?status=How%20To%20Fix%20Fortnite%20Sound%20Not%20Working%20-%20https://www.drivereasy.com/knowledge/how-to-fix-fortnite-sound-not-working-on-pc/) **[](https://tools.techidaily.com/drivereasy/download/)**
@@ -108,19 +115,6 @@ Here’s how to do it:
  1) On your keyboard, press **the Windows logo key** and R at the same time, then type **ms-settings:sound** and press **Enter** to open Control Panel.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/10/image-239.png)
-
-<!-- affiliate ads begin -->
-<span id="1424533">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  4) In **Sound** settings, scroll down to the**Input** section, and in**Choose your input device** , make sure the microphone you are actively using is selected. Then,**test your microphone** by speaking into your mic to see if it ‘hears’ anything. If yes, it means you have configured the microphone properly.
 
@@ -142,27 +136,26 @@ Here is how to configure in-game settings:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/10/image-260.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  2) Click**More** \>**VOICE** , then make sure**the microphone you’re using is selected** and**Microphone volum** e is set to**an audio volume** . After that, in**Activation mode** , choose**Push-to-talk** .
 
 ![This image has an empty alt attribute; its file name is image-261-1024x700.png](https://images.drivereasy.com/wp-content/uploads/2019/10/image-261-1024x700.png)
 
+<!-- affiliate ads begin -->
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  3) Open Apex Legends, then go to**Settings > AUDIO** and set the **Voice Chat Record Mode** to **Push to Talk** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/10/image-262-1024x576.png)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  4) Again, play Apex Legends to see if the voice chat not working issue is resolved.
 
@@ -191,6 +184,13 @@ Here are the steps:
  2) In the program list, locate **Origin** , then right-click on it and click **Uninstall** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/10/image-175-1024x499.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  4) Locate **Apex Legends** and uninstall it too.
 
@@ -224,16 +224,22 @@ Here are the steps:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-insta-stories-enhancing-background-blur-technique/"><u>[New] 2024 Approved Insta Stories Enhancing Background Blur Technique</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-the-ultimate-handbook-for-saving-insta-content/"><u>[New] 2024 Approved The Ultimate Handbook for Saving Insta Content</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-step-by-step-designing-aplus-cover-photos-for-your-insta-highlights/"><u>[New] In 2024, Step-by-Step Designing A+ Cover Photos for Your Insta Highlights</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-decoding-the-instagram-story-viewer-experience/"><u>[Updated] 2024 Approved Decoding the Instagram Story Viewer Experience</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-10-best-video-calling-software-on-phone-and-pc/"><u>[Updated] In 2024, 10 Best Video Calling Software on Phone and PC</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/1725286218608-iphone/"><u>最新のiPhoneビデオ圧縮ソフトウェアおすすめ！容量を抑えて楽に保存する方法</u></a></li>
-<li><a href="https://fox-that.techidaily.com/how-to-repair-broken-volume-buttons-on-your-iphone-with-these-7-methods/"><u>How to Repair Broken Volume Buttons on Your iPhone with These 7 Methods</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-revolutionize-virtual-reality-with-our-expertise/"><u>In 2024, Revolutionize Virtual Reality with Our Expertise</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-top-10-best-apps-for-editing-igtv-vertical-videos/"><u>In 2024, Top 10 Best Apps for Editing IGTV Vertical Videos</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/meme-tastic-creativity-tips-on-standing-out-in-virtual-worlds-for-2024/"><u>Meme-Tastic Creativity Tips on Standing Out in Virtual Worlds for 2024</u></a></li>
-<li><a href="https://solve-lab.techidaily.com/reclaim-your-deleted-files-a-guide-to-reviving-missing-documents-in-windows-server-2-techniques/"><u>Reclaim Your Deleted Files: A Guide to Reviving Missing Documents in Windows Server ([2 Techniques])</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-minimizing-film-length-mac-solutions-for-instagram-posting/"><u>[New] 2024 Approved Minimizing Film Length Mac Solutions for Instagram Posting</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-tips-to-reduce-compression-artifacts-in-obs/"><u>[New] 2024 Approved Tips to Reduce Compression Artifacts in OBS</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-leveraging-youtubes-community-how-to-find-and-create-collab-videos/"><u>[New] In 2024, Leveraging YouTube's Community How to Find & Create Collab Videos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-top-insights-on-maximizing-business-engagement-on-insta/"><u>[New] In 2024, Top Insights on Maximizing Business Engagement on Insta</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-unlock-instagrams-video-capabilities-blueprint-for-powerful-marketing-for-2024/"><u>[New] Unlock Instagram's Video Capabilities Blueprint for Powerful Marketing for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-converting-twitter-video-lyrics-to-custom-gif-animations/"><u>2024 Approved Converting Twitter Video Lyrics to Custom GIF Animations</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-professional-edge-in-instagram-videos-with-green-screen-tech/"><u>2024 Approved Professional Edge in Instagram Videos with Green Screen Tech</u></a></li>
+<li><a href="https://program-issues.techidaily.com/addressing-multiplayer-malfunctions-steps-to-repair-your-elden-ring-network-play/"><u>Addressing Multiplayer Malfunctions: Steps to Repair Your Elden Ring Network Play</u></a></li>
+<li><a href="https://media-tips.techidaily.com/building-isquint-and-visualhub-with-techspansions-free-software-solutions/"><u>Building iSquint and VisualHub with Techspansion’s Free Software Solutions</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-harmonizing-soundscape-and-unboxing-footage/"><u>In 2024, Harmonizing Soundscape and Unboxing Footage</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-a-samsung-galaxy-a24-phone-that-is-locked-by-drfone-android/"><u>In 2024, How to Reset a Samsung Galaxy A24 Phone that is Locked?</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-successfully-bypass-icloud-activation-lock-on-apple-iphone-7-by-drfone-ios/"><u>In 2024, How to Successfully Bypass iCloud Activation Lock on Apple iPhone 7</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-how-to-upload-and-post-gifs-onto-instagram-4-steps/"><u>In 2024, How To Upload and Post GIFs Onto Instagram [4 Steps]</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-leveraging-text-overlays-for-engaging-visual-posts/"><u>In 2024, Leveraging Text Overlays for Engaging Visual Posts</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-the-ultimate-guide-to-melodic-content-on-instagram/"><u>In 2024, The Ultimate Guide to Melodic Content on Instagram</u></a></li>
+<li><a href="https://app-tips.techidaily.com/tech-trends-unveiled-the-revival-and-growing-appeal-of-openstack-with-kata-containers-zdnet/"><u>Tech Trends Unveiled: The Revival and Growing Appeal of OpenStack with Kata Containers | ZDNet</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/the-video-vroom-guide-rotating-images-to-gain-insta-momentum/"><u>The Video Vroom Guide Rotating Images to Gain Insta Momentum</u></a></li>
 </ul></div>
 
