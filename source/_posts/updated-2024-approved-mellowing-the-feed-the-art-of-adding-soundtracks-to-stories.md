@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Mellowing the Feed  The Art of Adding Soundtracks to Stories\""
-date: 2024-11-08T22:09:34.156Z
-updated: 2024-11-11T22:24:40.433Z
+date: 2024-11-18T22:10:36.126Z
+updated: 2024-11-21T18:14:56.476Z
 tags:
   - ai video
   - ai instagram
@@ -51,9 +51,17 @@ As of now, Instagram music has an extensive catalog with millions of songs in di
 
 ![ Select Taylor Swift Songs](https://images.wondershare.com/filmora/article-images/select-taylor-swift-songs.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Once you find the song of your choice, just tap on it and it will be loaded on the Instagram Story interface. Although the entire song would be loaded, you would now have to clip a snippet of at most 15 seconds from it. There is a slider at the bottom that you can move and adjust to clip the specific part and even view its lyrics sliding as you move.
 
 ![ View Lyrics](https://images.wondershare.com/filmora/article-images/view-lyrics.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 3. Make optional edits to customize the story
 
@@ -75,6 +83,10 @@ That’s it! In this way, you can learn how to add music to IG story and customi
 
 ![ Share Your IG Story](https://images.wondershare.com/filmora/article-images/share-your-ig-story.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Create Stunning IG Stories to Captivate Your Audience?
 
 You might already know how popular Instagram Stories have become in just a few years. The feature is used by over 500 million people and can be an excellent tool to reach out to your audience. Apart from learning how to put music on IG story, there are several other things that you can also do to make your stories more captivating and eye-catching.
@@ -86,10 +98,7 @@ Boomerangs are extremely popular in Instagram stories due to their quick yet int
 ![ Boomerangs & Layouts](https://images.wondershare.com/filmora/article-images/boomerangs-layouts.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Use inbuilt Instagram filters
@@ -98,25 +107,11 @@ Instagram also keeps rotating different filters that we can add to our stories. 
 
 ![ Inbuilt IG Filters](https://images.wondershare.com/filmora/article-images/inbuilt-ig-filters.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### Add polls, challenges, countdowns, and more
 
 Apart from adding music, Instagram also lets us add tons of other things to our story. You can mention any other user in your story or add a location to get more views. There are also options to add a hashtag or create a poll. You can also find different challenges to explore (like the ice bucket challenge) to post your story under a specific category.
 
 ![ Add Polls and More](https://images.wondershare.com/filmora/article-images/add-polls-challenges.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### Ask questions to interact with your audience
 
@@ -133,10 +128,7 @@ There you go! Now when you know how to add music to IG Story, you can easily pos
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -154,18 +146,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-unlock-igtv-master-video-submission/"><u>[New] 2024 Approved Unlock IGTV Master Video Submission</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-jump-into-gaming-evolution-explore-lgs-27ud68-monitor-for-2024/"><u>[Updated] Jump Into Gaming Evolution Explore LG's 27UD68 Monitor for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-instagram-media-transformation-for-audio-mp3/"><u>2024 Approved Instagram Media Transformation for Audio (MP3)</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/breaking-down-the-selfie-security-on-insta/"><u>Breaking Down the Selfie Security on Insta</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/designing-engaging-film-teasers/"><u>Designing Engaging Film Teasers</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-samsung-galaxy-m14-5g-by-drfone-android/"><u>In 2024, 10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Samsung Galaxy M14 5G</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-how-to-add-stickers-to-instagram/"><u>In 2024, How to Add Stickers to Instagram?</u></a></li>
-<li><a href="https://program-issues.techidaily.com/instantly-resolve-your-black-screen-woes-with-these-6-oculus-link-hacks/"><u>Instantly Resolve Your Black Screen Woes with These 6 Oculus Link Hacks!</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/the-straightforward-way-to-upgrade-your-amd-graphic-driver-software/"><u>The Straightforward Way to Upgrade Your AMD Graphic Driver Software</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/try-out-macos-15-sequoia-early-release-on-your-apple-computer-step-by-step-tutorial-wired/"><u>Try Out MacOS 15 Sequoia Early Release on Your Apple Computer - Step-by-Step Tutorial | Wired</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/unlocking-igtvs-potential-5-ways-to-surge-follower-count/"><u>Unlocking IGTV's Potential 5 Ways to Surge Follower Count</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/unveiling-the-features-an-insightful-evaluation-of-the-stylishly-engineered-samsung-galaxy-watch/"><u>Unveiling the Features: An Insightful Evaluation of the Stylishly Engineered Samsung Galaxy Watch</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-poco-c55-device-by-drfone-android/"><u>What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Poco C55 Device</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-a-step-by-step-approach-for-flawless-instagrams/"><u>[New] 2024 Approved A Step-by-Step Approach for Flawless Instagrams</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-premier-experts-innovative-instragram-hlv-designs/"><u>[New] In 2024, Premier Experts Innovative Instragram HLV Designs</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-save-instastories-infinite-the-liberation-app/"><u>[New] In 2024, Save InstaStories Infinite The Liberation App</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-unveiling-the-secrets-of-monetizing-instagram-successfully-for-2024/"><u>[New] Unveiling the Secrets of Monetizing Instagram Successfully for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-get-thousands-of-youtube-views-in-30-days/"><u>[Updated] How To Get Thousands of YouTube Views in 30 Days</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-how-to-maintain-youtube-session-in-the-background-for-2024/"><u>[Updated] How to Maintain YouTube Session in the Background for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-leading-the-pack-10-crucial-apps-for-insta-video-marketers/"><u>[Updated] In 2024, Leading the Pack 10 Crucial Apps for Insta Video Marketers</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-podcast-profitability-analysis/"><u>[Updated] Podcast Profitability Analysis</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-take-portrait-photo-with-your-old-iphone-x8-plus7-plus/"><u>[Updated] Take Portrait Photo with Your Old iPhone X/8 Plus/7 Plus</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-ultimate-guide-to-samsungs-picture-editing-app/"><u>[Updated] The Ultimate Guide to Samsung's Picture Editing App</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/comparing-ig-reels-and-ig-stories-a-comprehensive-guide-for-2024/"><u>Comparing IG Reels & IG Stories A Comprehensive Guide for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/guide-updating-your-logitech-wireless-mouse-drivers-on-microsofts-operating-system/"><u>Guide: Updating Your Logitech Wireless Mouse Drivers on Microsoft's Operating System</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-instagram-illuminations-mastering-three-highlight-techniques/"><u>In 2024, Instagram Illuminations Mastering Three Highlight Techniques</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/merge-worlds-easily-linking-instagram-and-facebook-accounts/"><u>Merge Worlds Easily Linking Instagram & Facebook Accounts</u></a></li>
+<li><a href="https://blog-min.techidaily.com/online-veilige-veerster-mp4-en-mov-quicktime-videos-gratis-omzetten-professionele-konvertertools/"><u>Online Veilige Veerster MP4 en MOV (Quicktime) Videos Gratis Omzetten - Professionele Konvertertools</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/the-sleek-new-kid-on-the-block-exploring-lgs-lightweight-gram-pro-17-now-on-sale-for-a-limited-time-in-october-insights-from-zdnet/"><u>The Sleek New Kid on the Block: Exploring LG's Lightweight Gram Pro 17, Now on Sale for a Limited Time in October – Insights From ZDNet</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/unveiling-hidden-potential-edit-wonders-on-snapchat-app/"><u>Unveiling Hidden Potential Edit Wonders on Snapchat App</u></a></li>
 </ul></div>
 

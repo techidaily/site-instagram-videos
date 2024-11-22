@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Perfect Selfies  Tips for Instagram Story Magnification\""
-date: 2024-11-11T02:05:21.049Z
-updated: 2024-11-12T06:24:47.118Z
+date: 2024-11-19T22:58:45.424Z
+updated: 2024-11-22T00:13:58.974Z
 tags:
   - ai video
   - ai instagram
@@ -34,6 +34,10 @@ Here, in this article, we are going to introduce various methods of **zooming in
 * [Part 1: 4 Ways to Zoom in/out on Instagram Stories](#part1)
 * [Part 2: Edit Instagram Videos with Excellent Video Editor](#part2)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to zoom in/out in Instagram Stories
 
 #### 1\. Normal Mode
@@ -58,6 +62,10 @@ We know a video in 'Rewind' mode is pretty cute and funny, as the chain of event
 
 ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-superzoom-mode.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Image resource: metro.com
 
 Shooting a video in 'Boomerang' is exciting while creating Instagram Stories. We will explain to you how to zoom in/out Instagram Stories in 'Superzoom' mode in Boomerang. Press your record button longer and slide your finger up/down to zoom in/out, while recording the video for your Insta Stories. As long as you hold the button, the recording continues until it reaches the maximum duration.
@@ -66,18 +74,15 @@ Shooting a video in 'Boomerang' is exciting while creating Instagram Stories. We
 
 ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-hands-free-mode.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Image resource: later.com
 
 There are two-options while you want to zoom in/out using the 'Hands-Free' mode. You can pinch the screen and zoom in or out prior to recording the video. Now, tap the record button, the video will be automatically recorded after a few seconds. Remember! You are using the 'Hands-Free' mode, so no holding the record button. The second method is similar to the previous methods of zooming in/out videos for Instagram Stories. Tap the record button and wait till the point where you want to zoom in/out. At that very point, hold the record button and slide your finger up/down to zoom in/out the video. This is how to zoom in/out Instagram Stories using 'Hands-Free' mode.
 
 Be it a 'Boomerang', 'Rewind', 'Hands-Free', or 'Normal' mode video, learning how to zoom in Instagram Stories is sure to make your stories cool and funky.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Edit Instagram Videos with Wondershare Filmora
 
@@ -86,17 +91,7 @@ Editing Instagram videos is not difficult at all as long as you installed a powe
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Final Verdict
@@ -117,10 +112,7 @@ You May also like
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144273/7443" target="_top" id="2144273">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144273" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144273/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -138,16 +130,15 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-highlighting-the-leading-10-shadowy-story-viewers-for-2024/"><u>[New] Highlighting the Leading 10 Shadowy Story Viewers for 2024</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-navigating-immediate-account-suspension-due-to-copyright-violations/"><u>[New] In 2024, Navigating Immediate Account Suspension Due to Copyright Violations</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-from-passion-to-paycheck-a-strategic-guide-to-attracting-brand-backers-on-instagram/"><u>[Updated] 2024 Approved From Passion to Paycheck A Strategic Guide to Attracting Brand Backers on Instagram</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-esteemed-experts-premium-instragram-highlight-designs-online-for-2024/"><u>[Updated] Esteemed Experts Premium Instragram Highlight Designs Online for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-soundscaping-stories-musical-elements-in-reels/"><u>2024 Approved Soundscaping Stories Musical Elements in Reels</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/5-essential-ways-to-ascertain-chatgpts-uptime/"><u>5 Essential Ways to Ascertain ChatGPT’s Uptime</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/cutting-edge-converter-elevate-your-screen-viewing/"><u>Cutting Edge Converter Elevate Your Screen Viewing</u></a></li>
-<li><a href="https://program-issues.techidaily.com/far-cry-6-pc-crashes-no-more-discover-the-key-fixes-for-seamless-gaming/"><u>Far Cry 6 PC Crashes No More! Discover the Key Fixes for Seamless Gaming</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-streamline-your-musical-journey-top-6-music-vids-on-android/"><u>In 2024, Streamline Your Musical Journey - Top 6 Music Vids on Android</u></a></li>
-<li><a href="https://techidaily.com/three-solutions-to-hard-reset-infinix-note-30i-drfone-by-drfone-reset-android-reset-android/"><u>Three Solutions to Hard Reset Infinix Note 30i? | Dr.fone</u></a></li>
-<li><a href="https://common-error.techidaily.com/windows-10-and-missing-cursor-mystery-solved-tips-and-fixes/"><u>Windows 10 and Missing Cursor Mystery Solved – Tips & Fixes!</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-get-that-perfect-fit-resize-videos-to-instagram-standards-using-mac/"><u>[New] 2024 Approved Get That Perfect Fit Resize Videos to Instagram Standards Using Mac</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-mastering-instagram-video-editing-tips-with-fcpx/"><u>[New] 2024 Approved Mastering Instagram Video Editing Tips with FCPX</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-mastering-instagram-filters-applying-them-to-old-memories/"><u>[New] In 2024, Mastering Instagram Filters Applying Them to Old Memories</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-iphone-video-editing-shorten-crop-and-resize-basics/"><u>[New] IPhone Video Editing Shorten, Crop & Resize Basics</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-perfect-posts-every-time-mastering-instagram-video-uploads-on-desktop-for-2024/"><u>[New] Perfect Posts Every Time Mastering Instagram Video Uploads on Desktop for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-gif-odyssey-navigating-the-most-effective-9-tools-of-memetic-crafting/"><u>2024 Approved The GIF Odyssey Navigating the Most Effective 9 Tools of Memetic Crafting</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-7-passcode-without-computer-drfone-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 7 Passcode without Computer? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-top-10-password-cracking-tools-for-realme-v30-by-drfone-android/"><u>In 2024, Top 10 Password Cracking Tools For Realme V30</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-top-5-mid-range-gaming-keyboards-costing-99plus/"><u>In 2024, Top 5 Mid-Range Gaming Keyboards Costing $99+</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/inside-look-why-the-premium-roborock-robot-vacuum-deserves-your-attention-top-4-benefits-unveiled/"><u>Inside Look: Why the Premium Roborock Robot Vacuum Deserves Your Attention - Top 4 Benefits Unveiled</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Analyzing Instagram De-Followings\""
-date: 2024-10-30T06:17:47.931Z
-updated: 2024-11-03T02:34:08.695Z
+date: 2024-11-16T22:57:59.482Z
+updated: 2024-11-21T20:28:30.868Z
 tags:
   - ai video
   - ai instagram
@@ -36,6 +36,10 @@ Whenever anyone wants to follow you on Instagram, you are notified and have the 
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to Figure Out Who Unfollowed You On Instagram?
 
 Instagram is one of the most used social media websites in recent times. Many people are trying to become influencers on Instagram daily. To do that, they have to keep the check on their followers' counts. No one wants their follower count to decrease. But if that happens, then you would like to know who has unfollowed you. There are many ways to check it, but the most basic form of how to see who unfollowed you on Instagram is by inspecting manually. The following steps can assist you in that:
@@ -67,10 +71,7 @@ if your followers are in thousands, it is pretty hectic to go to each person's p
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to See Who Unfollowed You on Instagram 2021with NO APPS \[ 100% Safe Method\]
@@ -89,6 +90,10 @@ Now, you have to tap on **Download Data** from the panel, and a confirmation win
 
 ![download Instagram information](https://images.wondershare.com/filmora/article-images/download-instagram-information.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3: Copy followers and Following list**
 
 **Unzip** the file you have downloaded. Open the **Followers\_Following** option and open **Followers.html** and **Following.html. Copy** the data from both lists.
@@ -99,14 +104,11 @@ Open [ListDiff.com](http://www.listdiff.com/) and paste the data copied from **F
 
 ![compare  Instagram follower list](https://images.wondershare.com/filmora/article-images/compare-instagram-followers-following-list-listdiff.jpg)
 
-For the detailed information about checking who unfollowed you on Instagram 2021, you can watch the video tutorial made by YouTuber Ben Leavitt below.
-
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
-  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+For the detailed information about checking who unfollowed you on Instagram 2021, you can watch the video tutorial made by YouTuber Ben Leavitt below.
 
 ## Part 3: Best Apps to Check Who Unfollowed You On Instagram
 
@@ -119,6 +121,10 @@ However, some third-party apps do the job without any security breach, so they a
 Follow Meter allows you to know about the popularity of your Instagram account, secret admirers, people who have unfollowed you, and your ghost followers. You will have to **log in** to your Instagram account once the app is downloaded. After that, you can see the accounts you're not following, the accounts that have not followed you back, and the accounts you are following on the dashboard. However, some of the features are limited, which can only be accessible any purchasing its premium packages.
 
 ![Follow Meter](https://images.wondershare.com/filmora/article-images/followmeter-for-instagram.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Features**
 
@@ -133,25 +139,11 @@ It offers its premium version for $4.99 a month, $17.99 per 6 months, and $24.99
 
 [Android](https://play.google.com/store/apps/details?id=com.beakerapps.instameter2&hl=en&gl=US) and [iOS](https://apps.apple.com/us/app/followmeter-for-instagram/id651309421).
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\.  Followers Trackers Pro
 
 Follower Tracker Pro works as a tracker of Instagram followers. You have to sign in to your Instagram account once you have downloaded the app. After that, a menu will appear where you have the options to see the lists of accounts that have unfollowed you, followers, new followers, and the people who are not following you back.
 
 ![Followers Trackers Pro](https://images.wondershare.com/filmora/article-images/tracker-pro-followers-reports.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 You can tap on one of these options to see the list. And despite having a "pro" in its name, this app is free to download. It updates multiple times a month to keep its drivers up-to-date.
 
@@ -169,16 +161,7 @@ It offers one premium package that is $29.99 a year.
 [iOS](https://apps.apple.com/us/app/tracker-pro-followers-reports/id1486844902) only.
 
 <!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\.  Followers Track, For Instagram
@@ -259,17 +242,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-enhance-instagram-video-streams-speedily-for-2024/"><u>[New] Enhance Instagram Video Streams Speedily for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-epic-dramatic-stories-for-the-ears/"><u>[Updated] 2024 Approved Epic Dramatic Stories for the Ears</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-squared-up-crafting-square-format-videos-with-imovie-and-instagram/"><u>[Updated] In 2024, Squared Up Crafting Square-Format Videos with iMovie and Instagram</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-top-trends-in-instagram-hashtags-for-enhanced-reach-for-2024/"><u>[Updated] Top Trends in #Instagram Hashtags for Enhanced Reach for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-the-leading-10-clock-apps-to-time-your-wedding-ceremony/"><u>2024 Approved The Leading 10 Clock Apps to Time Your Wedding Ceremony</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/experience-the-power-of-sound-with-razer-leviathan-v2-a-detailed-review-tech-innovation-hub/"><u>Experience the Power of Sound with Razer Leviathan V2 - A Detailed Review | Tech Innovation Hub</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-engaging-users-with-instagrams-interactive-survey-feature/"><u>In 2024, Engaging Users with Instagram's Interactive Survey Feature</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-making-a-mark-on-instagram-strategies-for-securing-brand-funding-and-partnerships/"><u>In 2024, Making a Mark on Instagram Strategies for Securing Brand Funding and Partnerships</u></a></li>
-<li><a href="https://fox-info.techidaily.com/leading-macos-mkv-players-exposed-for-2024/"><u>Leading macOS MKV Players Exposed for 2024</u></a></li>
-<li><a href="https://win-blog.techidaily.com/troubleshooting-davinci-resolve-launch-issues-in-windows-a-comprehensive-guide/"><u>Troubleshooting DaVinci Resolve Launch Issues in Windows: A Comprehensive Guide</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/understanding-iphone-15s-moisture-protection-capabilities/"><u>Understanding iPhone 15'S Moisture Protection Capabilities</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/m4vwebm-obs-streamyard/"><u>무료 온라인 M4V/WEBM 이미지를 OBS에서 바인딩하기 - StreamYard</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-avoiding-unwanted-shaking-in-dynamic-gopro-footage/"><u>[New] Avoiding Unwanted Shaking in Dynamic GoPro Footage</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-secure-story-spectatorship-techniques-for-desktopandroidios-devices-at-no-cost/"><u>[New] In 2024, Secure Story Spectatorship Techniques for Desktop/Android/iOS Devices (At No Cost)</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-step-by-step-strategies-for-posting-and-uploading-gifs-on-instagram/"><u>[New] Step-by-Step Strategies for Posting & Uploading GIFs on Instagram</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-diy-instagram-videos-simple-steps-to-success/"><u>[Updated] 2024 Approved DIY Instagram Videos Simple Steps to Success</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-tailor-your-insta-experience-no-more-suggestions/"><u>[Updated] 2024 Approved Tailor Your Insta Experience No More Suggestions</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-go-big-go-viral-channel-tiktok-trends-into-instagram-reels-for-2024/"><u>[Updated] Go Big, Go Viral Channel TikTok Trends Into Instagram Reels for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-prime-sites-where-your-presents-stand-out-in-a-sea-of-boxes/"><u>[Updated] Prime Sites Where Your Presents Stand Out in a Sea of Boxes</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/enhancing-collaborative-coding-in-microsoft-teams-using-github-copilot-techniques/"><u>Enhancing Collaborative Coding in Microsoft Teams Using GitHub Copilot Techniques</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/guidelines-to-address-hypervisor-absence-in-sandbox/"><u>Guidelines to Address Hypervisor Absence in Sandbox</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-lava-blaze-2-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Lava Blaze 2 to Samsung Phone | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-peals-of-laughter-fun-tones-websites-unveiled/"><u>In 2024, Peals of Laughter Fun Tones Websites Unveiled</u></a></li>
+<li><a href="https://blog-min.techidaily.com/mov-to-mp4-conversion-for-free-easy-file-transformation-on-all-platforms-including-mac-and-win10/"><u>MOV to MP4 Conversion for FREE: Easy File Transformation on All Platforms Including Mac and Win10</u></a></li>
+<li><a href="https://apple-account.techidaily.com/protecting-your-privacy-how-to-remove-apple-id-from-iphone-7-plus-by-drfone-ios/"><u>Protecting Your Privacy How To Remove Apple ID From iPhone 7 Plus</u></a></li>
+<li><a href="https://howto.techidaily.com/why-your-infinix-hot-40i-screen-might-be-unresponsive-and-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Your Infinix Hot 40i Screen Might be Unresponsive and How to Fix It | Dr.fone</u></a></li>
 </ul></div>
 

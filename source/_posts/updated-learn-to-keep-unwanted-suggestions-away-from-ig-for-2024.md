@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Learn to Keep Unwanted Suggestions Away From IG for 2024"
-date: 2024-10-29T03:00:35.559Z
-updated: 2024-11-03T04:04:38.706Z
+date: 2024-11-20T16:27:29.973Z
+updated: 2024-11-21T19:28:30.292Z
 tags:
   - ai video
   - ai instagram
@@ -62,10 +62,7 @@ Here's what you need to do:
 ![ suggestions for you on Ins](https://images.wondershare.com/filmora/article-images/instagram-suggestions-for-you.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 2:** Go to the home page, where you can see posts of the people you follow. Now, scroll down towards the end and stop when you see the "you're all caught up" message.
@@ -78,29 +75,19 @@ Here's what you need to do:
 
 ![click on not interested on suggested posts](https://images.wondershare.com/filmora/article-images/instagram-suggestion-posts-options.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 6:** That post and user will be removed, and instead of that, you will see a message by Instagram asking for feedback. You can click on the option: I don't want to see posts from this account, and Instagram won't show you that user's posts.
 
 ![choose your feedback option](https://images.wondershare.com/filmora/article-images/instagram-suggestion-posts-feedback.jpg)
 
 Now, you can apply the same steps for the rest of the posts as well. But do keep in mind that suggested posts will still appear. And you will have to apply this setting for each one so that you are shown fewer posts of unknown people.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3: How to Delete Suggested Users from Instagram?
 
 If you don't want to see suggested users on your Instagram feed, there is a way to remove unknown users actually. You can do it by using your web browser or Instagram mobile app. Whichever is comfortable to use. However, please note that these steps have to be followed for each suggested user. Now, please use that and then follow these steps.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### For Instagram app users
 
@@ -113,6 +100,10 @@ If you don't want to see suggested users on your Instagram feed, there is a way 
 ![click on x symbol to delete suggested users](https://images.wondershare.com/filmora/article-images/delete-instagram-suggestion-post.jpg)
 
 **Step 4:** To delete multiple suggested users, just click on the see all option, and the list of suggested users will appear; now click on the X for each user you want to delete. However, you need to delete everyone one by one individually.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### For web browsers
 
@@ -131,10 +122,7 @@ Just like Instagram show you suggested users and posts, your account gets recomm
 ![ uncheck the similar account suggestions box](https://images.wondershare.com/filmora/article-images/uncheck-similar-account-suggestions.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 5: How Does Instagram Suggestions Work?
@@ -155,6 +143,10 @@ So, now you know **how to remove suggested posts on Instagram feed** and how to 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -170,22 +162,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-game-soundscapes-transformed-a-ps4ps5-journey/"><u>[New] 2024 Approved Game Soundscapes Transformed A PS4/PS5 Journey</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-smooth-sailing-navigating-the-world-of-igtv-videos/"><u>[New] 2024 Approved Smooth Sailing Navigating the World of IGTV Videos</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-optimal-insta-video-sizes-2023-guide/"><u>[New] In 2024, Optimal Insta Video Sizes - 2023 Guide</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-the-art-of-incorporating-urls-in-ig-stories-and-posts/"><u>[New] In 2024, The Art of Incorporating URLs in IG Stories & Posts</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-professional-techniques-for-getting-rid-of-backgrounds-in-figma/"><u>[New] Professional Techniques for Getting Rid of Backgrounds in Figma</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-propel-participation-through-tailored-story-inquiry-designs/"><u>[New] Propel Participation Through Tailored Story Inquiry Designs</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-step-into-retro-gaming-with-top-5-ps1-emulators-for-pc/"><u>[New] Step Into Retro Gaming with Top 5 PS1 Emulators for PC</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-the-complete-instagram-analytics-companion-transforming-metrics-into-strategy/"><u>[New] The Complete Instagram Analytics Companion Transforming Metrics Into Strategy</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-behind-the-scenes-of-effective-instagram-caption-use/"><u>[Updated] 2024 Approved Behind the Scenes of Effective Instagram Caption Use</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-making-impeccable-square-videos-in-imovie-for-instagram-for-2024/"><u>[Updated] Making Impeccable Square Videos in iMovie for Instagram for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-most-trending-templates-transforming-social-video/"><u>[Updated] The Most Trending Templates Transforming Social Video</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-tricks-to-acquire-dry-stock-photography/"><u>[Updated] Tricks to Acquire Dry Stock Photography</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-the-ultimate-compendium-of-top-rated-instagram-analytics-applications/"><u>2024 Approved The Ultimate Compendium of Top-Rated Instagram Analytics Applications</u></a></li>
-<li><a href="https://win-web.techidaily.com/7-auf-windows-11-verschiebt/"><u>7 Auf Windows 11 Verschiebt</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-motorola-moto-g-stylus-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On Motorola Moto G Stylus (2023) | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Realme Narzo 60 5G? | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/your-ultimate-list-for-mp4-players/"><u>Your Ultimate List for MP4 Players</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-swift-success-stories-leveraging-instagram-likes-and-videos/"><u>[New] 2024 Approved Swift Success Stories Leveraging Instagram Likes and Videos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-tapping-into-trends-your-guide-to-impactful-instagram-tags/"><u>[New] In 2024, Tapping Into Trends Your Guide to Impactful Instagram Tags</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-insta-experts-reveal-unknown-functions-and-features-for-2024/"><u>[New] Insta-Experts Reveal Unknown Functions and Features for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-instagram-filters-a-comprehensive-guide-for-2024/"><u>[New] Instagram Filters A Comprehensive Guide for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-step-by-step-video-enhancement-tutorial-for-gopro-studio-users/"><u>[New] Step-by-Step Video Enhancement Tutorial for GoPro Studio Users</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-convenient-interaction-starting-a-skype-group-for-windowsmac-users/"><u>[Updated] 2024 Approved Convenient Interaction Starting a Skype Group for Windows/Mac Users</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-expert-techniques-to-make-the-most-of-instagrams-question-marker/"><u>[Updated] 2024 Approved Expert Techniques to Make the Most of Instagram's Question Marker</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-choose-folder-for-stored-mac-screenshots/"><u>[Updated] Choose Folder for Stored Mac Screenshots</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-amass-a-thousand-tactics-for-monthly-instagram-following/"><u>[Updated] In 2024, Amass a Thousand Tactics for Monthly Instagram Following</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/boosting-video-conference-quality-a-guide-to-using-zoom-and-skype/"><u>Boosting Video Conference Quality A Guide to Using ZOOM & SKYPE</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/320678-9780973670509-conscious-women-conscious-lives/"><u>Conscious Women - Conscious Lives | Free Book</u></a></li>
+<li><a href="https://win-able.techidaily.com/epa-2018-glyphosate-retrieved-from-(httpswwwepagovingredients-used-pesticide-productsglyphosate)/"><u>EPA (2018). Glyphosate. Retrieved From <https://www.epa.gov/ingredients-used-pesticide-products/glyphosate></u></a></li>
+<li><a href="https://fox-that.techidaily.com/fix-a-world-without-app-icons-tips-for-iphone-and-ipad-users/"><u>Fix a World Without App Icons: Tips for iPhone & iPad Users</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/instagram-story-upgrade-how-to-add-music-effectively-for-2024/"><u>Instagram Story Upgrade How to Add Music Effectively for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1722978388646-quick-and-simple-download-of-razer-mamba-controller-drivers-do-it-right-away/"><u>Quick & Simple Download of Razer Mamba Controller Drivers – Do It Right Away</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-7-phone-number-locators-to-track-motorola-edge-40-neo-location-drfone-by-drfone-virtual-android/"><u>Top 7 Phone Number Locators To Track Motorola Edge 40 Neo Location | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/top-apps-for-instagram-strategy-mastery-and-expansion/"><u>Top Apps for Instagram Strategy Mastery and Expansion</u></a></li>
 </ul></div>
 

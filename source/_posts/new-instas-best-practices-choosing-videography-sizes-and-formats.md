@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Insta's Best Practices - Choosing Videography Sizes & Formats\""
-date: 2024-10-31T20:03:19.912Z
-updated: 2024-11-02T20:50:51.095Z
+date: 2024-11-15T21:08:09.361Z
+updated: 2024-11-21T21:11:46.384Z
 tags:
   - ai video
   - ai instagram
@@ -59,10 +59,7 @@ Before getting into the nitty-gritty of this article, it is prudent to understan
 Since you can now interpret video dimensions and photo sizes like a pro, do you know the recommended video dimensions for Instagram for each format?
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Best Instagram Video Dimensions Specifications for a Post
@@ -76,6 +73,10 @@ Since Instagram is not limited to videos, you might be puzzling about the requir
 Other than just uploading ordinary videos and sharing photos, you can also **tell a story on Instagram**  using videos and photos in a slideshow format. For business purposes, you can format Instagram stories to **create Instagram Carousel ads**  to use as an advert.
 
 To realize the real importance of Instagram, start using the **video ads feature** , uploading **IGTV videos**  and **streaming live videos** . As you explore all these features, remember to use the specified Max Instagram video dimensions in this article.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### #1 - Instagram Video Dimensions And Sizes
 
@@ -105,20 +106,10 @@ To recorded landscape videos, set the dimensions in the aspect ratio of 16:9 or 
 ![instagram vertical video dimensions](https://images.wondershare.com/filmora/instagram-vertical-videos.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Vertical videos differ from square videos by very small margins. For your portrait videos to attract many viewers, ensure it is of the highest quality and has an aspect ratio of 4:5\. This ratio has to coincide with a 1080px by 1350px dimension.
-
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
-  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### #2 - Instagram Story Dimensions
 
@@ -195,13 +186,6 @@ What is your Instagram profile picture size? It is your trademark! Therefore, it
 
 ![instagram story dimensions](https://images.wondershare.com/filmora/instagram-square-photo-size.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 As said earlier, your square photos should have an aspect ratio of 1:1\. To retain original photo qualities of, these are the right Instagram picture sizes to use:
 
 * Minimum picture size: 320px by 320px
@@ -212,6 +196,10 @@ This is how using extra small or larger photos than recommended affects quality.
 #### Instagram Portrait Photo Size
 
 ![instagram story size](https://images.wondershare.com/filmora/instagram-portrait-photo-size.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 For images or photos whose height is naturally greater than width, the ideal Instagram photo format to use is portrait. To avoid cropping your photos, use the 4:5 aspect ratio. The photo dimension should not exceed 1080px by 1350px.
 
@@ -244,15 +232,16 @@ It's free to use and click the below link to download now.
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Since you will probably use a mobile phone for Instagram than a computer, download the free mobile video editor – **[Filmora](https://tools.techidaily.com/wondershare/filmora/download/).** There is every effect, transition, filters, texts, and themes to make your Instagram live videos and photos cinematic.
 
 **You may also like:** [How to Post/Share a Video From YouTube on Instagram >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -279,18 +268,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-boosting-video-playback-speed-on-instagram/"><u>[New] 2024 Approved Boosting Video Playback Speed on Instagram</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-navigating-through-troubled-waters-instagram-videos-guide/"><u>[New] 2024 Approved Navigating Through Troubled Waters Instagram Videos Guide</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-snapsizesecrets-perfecting-photo-and-video-sizes-in-instagram/"><u>[New] 2024 Approved SnapSizeSecrets Perfecting Photo and Video Sizes in Instagram</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-behind-the-scenes-choosing-ideal-winter-backdrops/"><u>[Updated] 2024 Approved Behind the Scenes Choosing Ideal Winter Backdrops</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-the-instagram-editors-handbook-maximizing-video-impact/"><u>[Updated] 2024 Approved The Instagram Editor's Handbook Maximizing Video Impact</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-unbeatable-screen-grabbers-for-modern-windows-pcs/"><u>[Updated] 2024 Approved Unbeatable Screen Grabbers for Modern Windows PCs</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-capturing-content-with-precision-best-practices-for-igtv-video-downloads/"><u>[Updated] In 2024, Capturing Content with Precision Best Practices for IGTV Video Downloads</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-the-art-of-hiding-hashtags-on-social-media-platforms-for-2024/"><u>[Updated] The Art of Hiding Hashtags on Social Media Platforms for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-tips-for-broadcasting-youtube-content-via-facebook/"><u>[Updated] Tips for Broadcasting YouTube Content via Facebook</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/discover-apples-newly-enhanced-carplay-top-features-unveiled-at-wwdc-2024-covered/"><u>Discover Apple's Newly Enhanced CarPlay: Top Features Unveiled at WWDC 2024 Covered</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-xiaomi-redmi-note-13-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Xiaomi Redmi Note 13 Pro+ 5G | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/stay-clear-mobile-apps-and-chatgpt-concerns/"><u>Stay Clear: Mobile Apps and ChatGPT Concerns</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/top-rated-touchscreen-laptop-picks-thoroughly-vetted-by-tech-experts/"><u>Top-Rated Touchscreen Laptop Picks: Thoroughly Vetted by Tech Experts</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-from-ordinary-to-outstanding-transforming-your-meetings-with-zoom-filters-for-2024/"><u>[New] From Ordinary to Outstanding Transforming Your Meetings with Zoom Filters for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-mastering-srt-extension-on-both-macwindows-platforms/"><u>[New] Mastering SRT Extension on Both Mac/Windows Platforms</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-quintessential-guide-to-selecting-video-apps-for-reels/"><u>[Updated] The Quintessential Guide to Selecting Video Apps for Reels</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-unveiling-the-mystery-of-instagrams-most-trusted-6-techniques-for-building-a-fanbase/"><u>[Updated] Unveiling the Mystery of Instagram's Most Trusted 6 Techniques for Building a Fanbase</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-cinemagraphy-central-filmo-faqs/"><u>2024 Approved Cinemagraphy Central Filmo FAQs</u></a></li>
+<li><a href="https://driver-error.techidaily.com/cure-faulty-usb-serial-cables-in-windows/"><u>Cure Faulty USB-Serial Cables in Windows</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-fake-gps-location-apps-on-android-of-your-vivo-y28-5g-drfone-by-drfone-virtual/"><u>In 2024, 10 Fake GPS Location Apps on Android Of your Vivo Y28 5G | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/insta-personality-showcase-100-crafted-caption-ideas-for-2024/"><u>Insta Personality Showcase - 100 Crafted Caption Ideas for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/unraveling-the-enigma-instagram-story-follower-secrets-revealed/"><u>Unraveling the Enigma Instagram Story Follower Secrets Revealed</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1722972091996-update-to-intels-hd-graphics-4400-drivers-now-free-and-easy-to-get/"><u>Update to Intel's HD Graphics 4400 Drivers Now - Free & Easy to Get</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/youtube-earning-novice-navigators-essential-guide-for-2024/"><u>YouTube Earning Novice Navigator's Essential Guide for 2024</u></a></li>
 </ul></div>
 

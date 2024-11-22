@@ -1,7 +1,7 @@
 ---
 title: Affordable Lifestyle, High-Quality Video
-date: 2024-11-05T16:44:55.960Z
-updated: 2024-11-11T22:25:38.974Z
+date: 2024-11-14T21:35:56.914Z
+updated: 2024-11-21T19:22:00.458Z
 categories:
   - BestProducts
 description: This Article Describes Affordable Lifestyle, High-Quality Video
@@ -16,6 +16,10 @@ thumbnail: https://www.lifewire.com/thmb/uRCgNw-CUKlAX2NVz76xLIumjts=/400x300/fi
 ## Kensun AC/DC Portable Air Pump Tire Inflator
 
 ![Kensun Portable Tire Inflator](https://www.lifewire.com/thmb/NWhMBmuK3pkL9EGvdNCEAF8sWEo=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/KensunPortableTireInflator_HeroSquare-c74ce1562bed43b897087fa89d11df23.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jeffrey Daniel Chadwick
 
@@ -37,22 +41,12 @@ Lifewire / Jeffrey Daniel Chadwick
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Kensun AC/DC Portable Air Pump Tire Inflator
 
 ![Kensun Portable Tire Inflator](https://www.lifewire.com/thmb/MEKNaqKs5klEYPtoc5EGv7lAyJU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/KensunPortableTireInflator_HeroSquare-c74ce1562bed43b897087fa89d11df23.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Jeffrey Daniel Chadwick
@@ -77,13 +71,6 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design and Features: Maximum portability, but not maximum flexibility**
 
  The form factor of the Kensun Portable Tire Inflator is a case study in maximum portability. It weighs a mere 5 pounds, and the sturdy handle makes it easy to pick up and move around. Moreover, at 11.8 inches long, 4.3 inches wide and 6.7 inches tall, it’s quite compact. And it’s hard plastic casing means it can withstand some punishment and still deliver top performance.
@@ -107,10 +94,7 @@ Lifewire / Jeffrey Daniel Chadwick
  Lifewire / Jeffrey Daniel Chadwick
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: T-minus one minute**
@@ -118,6 +102,10 @@ Lifewire / Jeffrey Daniel Chadwick
  Once you’ve read the user manual, you’ll know how to use the Kensun portable tire inflator. Nevertheless, you’ll want to do some test runs before you take it on the road. During our testing phase, we timed how long it takes from getting out of the car to the pump inflating one of our tires. It took about one minute, which is good time if you’re on the side of the highway with an unexpected flat.
 
  Lifewire / Jeffrey Daniel Chadwick
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance: Reliable, accurate, quick and loud**
 
@@ -142,6 +130,10 @@ Lifewire / Jeffrey Daniel Chadwick
 ## **Price: A decent buy considering its versatility**
 
  The Kensun Portable Tire Inflator has an MSRP of $80 on Amazon, which is a good price for what you get. It’s not nearly as affordable as some budget models we’ve seen, such as the Audew Portable Air Compressor Pump, which will only run you $40, but it gives you the convenience of not having to be tethered to your car to inflate something.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Kensun Portable Tire Inflator vs. Jaco Digital Tire Inflator**
 
@@ -182,24 +174,22 @@ Lifewire / Jeffrey Daniel Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-2024-approved-bargain-ball-games-free-recording-and-editing-techniques/"><u>[New] 2024 Approved Bargain Ball Games Free Recording & Editing Techniques</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-get-both-sides-right-expert-tips-on-crafting-compelling-pov-based-youtube-reaction-videos-2-pov-perspective/"><u>[New] 2024 Approved Get Both Sides Right – Expert Tips on Crafting Compelling POV-Based YouTube Reaction Videos (2 POV Perspective)</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-the-art-of-sharing-horizontals-in-igtvs-vertical-world/"><u>[New] The Art of Sharing Horizontals in IGTV's Vertical World</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-unmasking-falsified-follower-fabrications-on-feeds/"><u>[New] Unmasking Falsified Follower Fabrications on Feeds</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-behind-the-filter-ensuring-veritable-instagram-selfies/"><u>[Updated] 2024 Approved Behind the Filter Ensuring Veritable Instagram Selfies</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-vlc-player-insider-top-10-underrated-functions/"><u>[Updated] 2024 Approved VLC Player Insider Top 10 Underrated Functions</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-ignite-your-creativity-making-dynamic-splitscreen-videos/"><u>[Updated] Ignite Your Creativity Making Dynamic Splitscreen Videos</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-straightforward-methods-to-save-insta-story-videos/"><u>[Updated] In 2024, Straightforward Methods to Save Insta Story Videos</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-navigating-melodic-waters-a-legal-guide-on-instagram-for-2024/"><u>[Updated] Navigating Melodic Waters A Legal Guide on Instagram for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-leading-8-screenshot-solutions-without-hesitation/"><u>2024 Approved Leading 8 Screenshot Solutions Without Hesitation</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-top-ten-recommendations-for-dynamic-instagram-grid-crafting/"><u>2024 Approved Top Ten Recommendations for Dynamic Instagram Grid Crafting</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-unlocking-instagrams-monetization-secrets/"><u>2024 Approved Unlocking Instagram’s Monetization Secrets</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/2024-approved-video-marketing-mastery-for-affiliate-success/"><u>2024 Approved Video Marketing Mastery for Affiliate Success</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/epson-gt-s50-compatible-driver-downloads-for-windows-operating-systems-7-8-and-lete-10/"><u>Epson GT-S50: Compatible Driver Downloads for Windows Operating Systems (7, 8 & Lete 10)</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-poco-c65-phone-without-pin-by-drfone-android/"><u>How to Unlock Poco C65 Phone without PIN</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-motorola-edge-40-drfone-by-drfone-virtual-android/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Motorola Edge 40 | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-instagram-story-hacks-your-path-to-prominence/"><u>In 2024, Instagram Story Hacks Your Path to Prominence</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/instagram-edge-selecting-the-best-mobile-and-desktop-video-editors-for-2024/"><u>Instagram Edge Selecting the Best Mobile & Desktop Video Editors for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/the-image-editors-ultimate-toolkit-review/"><u>The Image Editor's Ultimate Toolkit Review</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-petite-narrative-blueprint/"><u>[New] 2024 Approved Petite Narrative Blueprint</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-proven-paths-to-owning-successful-monetized-youtubes/"><u>[New] 2024 Approved Proven Paths to Owning Successful Monetized Youtubes</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-step-by-step-guide-changing-voices-in-instagram-features/"><u>[New] 2024 Approved Step-by-Step Guide Changing Voices in Instagram Features</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-boosting-social-impact-with-the-combined-force-of-youtube-and-instagram-stories/"><u>[New] Boosting Social Impact with the Combined Force of YouTube and Instagram Stories</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-guide-to-screen-record-on-mac-with-shortcuts-for-2024/"><u>[New] Guide to Screen Record on Mac with Shortcuts for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-a-visual-feast-delving-into-the-world-of-asuss-4k-uxga-screen/"><u>[New] In 2024, A Visual Feast Delving Into the World of ASUS's 4K UXGA Screen</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-groundbreaking-tools-to-create-instagram-grids-that-wow/"><u>[New] In 2024, Groundbreaking Tools to Create Instagram Grids That Wow</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-rapid-accessibility-of-instagram-videos-and-stories/"><u>[New] In 2024, Rapid Accessibility of Instagram Videos and Stories</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-the-ultimate-path-for-influencers-in-advertising-and-sponsorships-for-2024/"><u>[New] The Ultimate Path for Influencers in Advertising & Sponsorships for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-visuallyvivid-adjust-your-content-for-instagram-success/"><u>[Updated] 2024 Approved VisuallyVivid Adjust Your Content for Instagram Success</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-ultimate-guide-to-insta-image-perfection-for-2024/"><u>[Updated] The Ultimate Guide to Insta Image Perfection for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/elevate-social-media-engagement-cutting-edge-fb-ad-techniques/"><u>Elevate Social Media Engagement Cutting-Edge FB Ad Techniques</u></a></li>
+<li><a href="https://games-able.techidaily.com/eliminating-component-shortfall-problem-on-oses/"><u>Eliminating Component Shortfall Problem on OSes</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-change-your-iphone-13-pro-max-apple-id-on-macbook-by-drfone-ios/"><u>In 2024, How To Change Your iPhone 13 Pro Max Apple ID on MacBook</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-life360-on-windows-pc-for-vivo-s18e-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Life360 on Windows PC For Vivo S18e? | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-ignite-attention-driving-success-in-instagram-posts/"><u>In 2024, Ignite Attention Driving Success in Instagram Posts</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/quick-tricks-for-bulk-selection-of-emails-within-your-gmail-inbox/"><u>Quick Tricks for Bulk Selection of Emails Within Your Gmail Inbox</u></a></li>
 </ul></div>
 

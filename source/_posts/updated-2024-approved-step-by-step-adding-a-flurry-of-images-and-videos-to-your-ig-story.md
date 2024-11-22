@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Step-by-Step  Adding a Flurry of Images & Videos to Your IG Story\""
-date: 2024-11-04T17:55:37.605Z
-updated: 2024-11-11T21:04:22.804Z
+date: 2024-11-18T22:57:02.133Z
+updated: 2024-11-21T18:47:43.329Z
 tags:
   - ai video
   - ai instagram
@@ -27,11 +27,19 @@ thumbnail: https://thmb.techidaily.com/46c850237c04863ff656e578f32b008a00b71b463
 
  We often wonder how great would that be if you can upload multiple photos or video to Instagram, right? Well, we understand your situation. Obviously, if you have to upload your photos or videos one at a time, it may feel quite boring and frustrating, especially when you have dozens of them lined up in the queue. But here's the good news!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Introducing Carousel
 
  Instagram's update 10.9 for Android and iOS allows its users to upload upto 10 photos and videos in one go. This new feature is called 'Carousel'. Basically, when you upload multiple photos via carousel, they appear in a single post in the feed. There will be a row of blue dots underneath the pictures to let others know that they can swipe left and right through the slideshow to view the photos.
 
  You can now organize and post your photos about an expedition or some memorable event etc. in one single post and boast about your experiences in a more sequential and connective way to efficiently capture your audience's attention. Since this feature lets you add a series of videos as well, you can incorporate up to 10 videos in a single post and hence post a video content for up to 10 minutes.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Upload Multiple Videos and Photos to Instagram
 
@@ -40,13 +48,6 @@ thumbnail: https://thmb.techidaily.com/46c850237c04863ff656e578f32b008a00b71b463
 * Launch your Instagram app and hit the '+' sign at the bottom.
 
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-1.png)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * As soon as you tap it, you will be able to see the recent photos and videos in your phone. Tap and hold, on any of the preferred image or video which you wish to upload, until you sense a slight vibration. Now, you have enabled the 'Select Multiple', scroll through the gallery and select rest 9 photos or videos that you wish to upload.
 
@@ -71,10 +72,7 @@ thumbnail: https://thmb.techidaily.com/46c850237c04863ff656e578f32b008a00b71b463
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-5.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Lastly, hit on 'Share' to publish your post with multiple photos/videos in it.
@@ -82,10 +80,7 @@ thumbnail: https://thmb.techidaily.com/46c850237c04863ff656e578f32b008a00b71b463
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-6.png)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -95,10 +90,7 @@ thumbnail: https://thmb.techidaily.com/46c850237c04863ff656e578f32b008a00b71b463
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -116,20 +108,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-inside-the-box-logitechs-expertly-designed-4k-pro-webcam/"><u>[New] 2024 Approved Inside the Box Logitech’s Expertly Designed 4K Pro Webcam</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-unlock-the-potential-of-paid-endorsements-with-these-tips/"><u>[New] 2024 Approved Unlock the Potential of Paid Endorsements with These Tips</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-chorus-of-creativity-merging-melodies-and-visuals-in-reels/"><u>[New] Chorus of Creativity Merging Melodies & Visuals in Reels</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-craft-compelling-loops-best-practices-for-instagram-posts/"><u>[New] Craft Compelling Loops Best Practices for Instagram Posts</u></a></li>
-<li><a href="https://some-tips.techidaily.com/new-snappy-snippets-quick-and-quirky-memes-guide/"><u>[New] Snappy Snippets Quick and Quirky Memes Guide</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-guerrilla-marketing-for-youtube-upping-video-traffic/"><u>[Updated] Guerrilla Marketing for YouTube Upping Video Traffic</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/1726222098139-wtv-wmv-movavi/"><u>「ワンクリックで無料オンラインWTV WMV Movaviへの変換ガイド」</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/7-things-that-belong-in-your-summer-edc/"><u>7 Things That Belong in Your Summer EDC</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/from-high-speed-to-serenity-making-captivating-slow-movies-on-instagram-for-2024/"><u>From High-Speed to Serenity Making Captivating Slow Movies on Instagram for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/in-2024-the-ultimate-drone-marathoners-list-top-10/"><u>In 2024, The Ultimate Drone Marathoners List (Top 10)</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/instagrams-copyright-and-sharing-guide/"><u>Instagram's Copyright & Sharing Guide</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/mastering-igtv-thumbnail-creation-and-editing-for-2024/"><u>Mastering IGTV Thumbnail Creation & Editing for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/spoofing-life360-how-to-do-it-on-xiaomi-14-drfone-by-drfone-virtual-android/"><u>Spoofing Life360 How to Do it on Xiaomi 14? | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/the-complete-guide-to-imovie-music/"><u>The Complete Guide to iMovie Music</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/the-ultimate-guide-to-making-secure-payments-effortlessly-using-your-apple-watchs-apple-pay-functionality/"><u>The Ultimate Guide to Making Secure Payments Effortlessly Using Your Apple Watch's Apple Pay Functionality</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-how-to-repost-photos-and-video-on-instagram/"><u>[New] 2024 Approved How to Repost Photos and Video on Instagram</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-instagrams-veracity-matrix-deconstructing-selfie-integrity/"><u>[New] 2024 Approved Instagram's Veracity Matrix Deconstructing Selfie Integrity</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-tactical-techniques-for-stunning-instagram-puzzle-displays/"><u>[New] 2024 Approved Tactical Techniques for Stunning Instagram Puzzle Displays</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-crafting-instagram-stories-polls-your-complete-playbook-for-2024/"><u>[New] Crafting Instagram Stories Polls - Your Complete Playbook for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-guide-shutting-down-igtv-for-2024/"><u>[New] Guide Shutting Down IGTV for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-toggle-pip-for-streaming-youtube-videos-more-conveniently-with-iphone/"><u>[New] Toggle PIP for Streaming Youtube Videos More Conveniently with iPhone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-elevating-gameplay-preservation-in-windows-11/"><u>[Updated] 2024 Approved Elevating Gameplay Preservation in Windows 11</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-how-to-archive-your-minecraft-sessions-on-a-mac-computer/"><u>[Updated] 2024 Approved How to Archive Your Minecraft Sessions on a Mac Computer</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-unveiling-the-unexpected-10-truths-about-instagram-reels/"><u>[Updated] 2024 Approved Unveiling the Unexpected 10 Truths About Instagram Reels</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-how-to-make-macbook-pro-video-tutorials-easy/"><u>[Updated] In 2024, How to Make Macbook Pro Video Tutorials Easy</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-maximize-impact-priority-list-of-highlight-tweaks/"><u>[Updated] Maximize Impact Priority List of Highlight Tweaks</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-can-i-bypass-a-forgotten-phone-password-of-tecno-phantom-v-flip-by-drfone-android/"><u>In 2024, Can I Bypass a Forgotten Phone Password Of Tecno Phantom V Flip?</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/strategies-for-silent-audio-fades/"><u>Strategies for Silent Audio Fades</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-realm-of-melodies-where-to-get-hearing-heroes-ringtones-for-2024/"><u>The Realm of Melodies Where to Get Hearing Heroes' Ringtones for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/unlocking-siris-voice-functionality-for-accessibility-across-ios-and-mac-os/"><u>Unlocking Siri's Voice Functionality for Accessibility Across iOS and Mac OS</u></a></li>
 </ul></div>
 

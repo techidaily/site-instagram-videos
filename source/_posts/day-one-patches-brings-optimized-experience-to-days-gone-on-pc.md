@@ -1,7 +1,7 @@
 ---
 title: Day One Patches Brings Optimized Experience to 'Days Gone' On PC
-date: 2024-10-29T22:16:29.798Z
-updated: 2024-11-02T18:06:37.954Z
+date: 2024-11-15T00:49:16.879Z
+updated: 2024-11-21T23:01:34.305Z
 tags:
   - win11
   - win10
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/e849b3433ae861a98a41e422ed19bb8502406c236
 
 Battlefield 2042 is one of the most awaited games. Now players can dive into the thrilling gameplay. However, some performance issues such as**insane stutters and crazy FPS drops** just ruin the gaming experience. For some players, the mouse input lag caused stutters and FPS drops. If you’re on the same boat, don’t worry. We’ve put together some fixes.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Try these fixes
 
  You may not need to try them all; simply work your way down the list until you find the one that works for you.
@@ -29,13 +33,6 @@ Battlefield 2042 is one of the most awaited games. Now players can dive into the
 6. **[Tweak in-game settings](https://tools.techidaily.com/drivereasy/download/)**
 
 ![how to fix Battlefield 2042 stuttering and FPS drops](https://images.drivereasy.com/wp-content/uploads/2021/10/2042-1200x675.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
-  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 1\. Enable game mode
 
@@ -52,10 +49,7 @@ Battlefield 2042 is one of the most awaited games. Now players can dive into the
  Now launch Battlefield 2042\. If your game still stutters a lot or it’s showing pretty low FPS, try the next fix below.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Disable overlays
@@ -72,14 +66,11 @@ Below are a few common overlays and how to disable them.
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/7-2-1-1.jpg)
 3. Select the **Game Overlay** on the navigation bar and switch **Enable in-game overlay** .  
 
-![](https://images.drivereasy.com/wp-content/uploads/2021/09/discord-overlay.png)
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![](https://images.drivereasy.com/wp-content/uploads/2021/09/discord-overlay.png)
 
 #### Twitch
 
@@ -88,15 +79,16 @@ Below are a few common overlays and how to disable them.
 ![](https://images.drivereasy.com/wp-content/uploads/2021/10/Twitch-settings.png)
 2. Click on**In-Game Overlay** on the left hand side of the screen. Then click the toggle**off** the In-Game Overlay.  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2021/10/Twitch-in-game-overlay.png)
 
  After disabling overlays, launch Battlefield 2042 and it should run smoothly.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Update your graphics driver
@@ -127,20 +119,21 @@ Below are a few common overlays and how to disable them.
 ![](https://images.drivereasy.com/wp-content/uploads/2021/08/scan-now-v5_7_0.jpg)
 3. Click **Update All** . Driver Easy will then download and update all your outdated and missing device drivers, giving you the latest version of each, direct from the device manufacturer.  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  which comes with full support and a 30-day money-back guarantee. You’ll be prompted to upgrade when you click Update All. If you don’t want to upgrade to the Pro version, you can also update your drivers with the FREE version. All you need to do is to download them one at a time and manually install them.  
 
 ![Download & Update NVIDIA GeForce RTX 3080 Ti driver](https://images.drivereasy.com/wp-content/uploads/2021/06/Download-Update-NVIDIA-GeForce-RTX-3080-Ti-driver.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **The Pro version of Driver Easy** comes with _full technical support_ . If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
 
  After updating drivers, restart your PC for the changes to take full effect. If you still have FPS drops and stuttering issues, try the next fix below.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. Enable hardware-accelerated GPU scheduling
 
@@ -154,21 +147,11 @@ Below are a few common overlays and how to disable them.
 ![](https://images.drivereasy.com/wp-content/uploads/2021/07/graphics-settings-1.jpg)
 3. Toggle**On** Hardware-accelerated GPU scheduling.  
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![enable hardware-acceleration GPU scheduling](https://images.drivereasy.com/wp-content/uploads/2021/08/turn-on-hardware-accelerated-GPU-scheduling.png)
 4. Also make sure you’ve selected**Desktop app** . Then click on the**Browse** button.  
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/10/graphics-settings.png)
@@ -176,6 +159,10 @@ Below are a few common overlays and how to disable them.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/10/add-BF2042.png)
 6. Your game should appear on the list. Click on the**Options** button.  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/10/options-button.png)
 7. Select**High Performance** .  
@@ -198,19 +185,6 @@ Below are a few common overlays and how to disable them.
 ![](https://images.drivereasy.com/wp-content/uploads/2021/10/delete-cache.png)
 
 If this doesn’t do the trick, try the next fix below.
-
-<!-- affiliate ads begin -->
-<span id="1424533">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 6\. Tweak in-game settings
 
@@ -242,19 +216,24 @@ If this doesn’t do the trick, try the next fix below.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-tips-for-efficient-music-import-in-inshot-app/"><u>[New] 2024 Approved Tips for Efficient Music Import in InShot App</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-capture-attention-with-perfectly-cropped-instagram-ready-videos/"><u>[New] In 2024, Capture Attention with Perfectly Cropped, Instagram-Ready Videos</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-unmask-phony-followers-a-speedy-cost-free-approach-for-instagram/"><u>[Updated] 2024 Approved Unmask Phony Followers A Speedy, Cost-Free Approach for Instagram</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-awaken-the-artist-within-selective-shots-for-inspiration/"><u>[Updated] In 2024, Awaken the Artist Within Selective Shots for Inspiration</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-slide-swivel-and-shift-mastering-the-rotation-ritual-for-stunning-photos-on-insta-sites/"><u>[Updated] In 2024, Slide, Swivel and Shift Mastering the Rotation Ritual for Stunning Photos on Insta Sites</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-integrating-your-vimeo-videos-into-instagram/"><u>[Updated] Integrating Your Vimeo Videos Into Instagram</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-streamlining-processes-adding-tracks-to-your-custom-youtube-collection/"><u>[Updated] Streamlining Processes Adding Tracks to Your Custom YouTube Collection</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-investigating-unmodified-audio-from-ffmpeg-output/"><u>2024 Approved Investigating Unmodified Audio From FFmpeg Output</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-xiaomi-13t-pro-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>How to Track Xiaomi 13T Pro Location without Installing Software? | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-photo-magic-weaving-text-into-your-imagery-journey/"><u>In 2024, Photo Magic Weaving Text Into Your Imagery Journey</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/in-2024-turn-your-meet-webinar-into-an-interactive-participant-showcase/"><u>In 2024, Turn Your Meet Webinar Into an Interactive Participant Showcase</u></a></li>
-<li><a href="https://facebook.techidaily.com/master-the-art-skyrockets-for-your-virtual-gathering-on-fb/"><u>Master the Art: Skyrockets for Your Virtual Gathering on FB</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/unlocking-instagrams-hidden-gems-tailored-to-your-passions-for-2024/"><u>Unlocking Instagram’s Hidden Gems Tailored to Your Passions for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-infinix-note-30-vip-racing-edition-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Infinix Note 30 VIP Racing Edition | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-preserving-profile-prestige-from-pretend-popularity-pitfalls/"><u>[New] 2024 Approved Preserving Profile Prestige From Pretend Popularity Pitfalls</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-aesthetic-alchemy-best-tools-for-your-feed/"><u>[New] In 2024, Aesthetic Alchemy Best Tools for Your Feed</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-from-no-followers-to-a-million-top-15-tricks-to-become-an-instagram-phenomenon/"><u>[New] In 2024, From No Followers to a Million Top 15 Tricks to Become an Instagram Phenomenon</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-premier-tools-for-video-creation-on-android-and-desktop-oses/"><u>[New] Premier Tools for Video Creation on Android & Desktop OSes</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-ultimate-list-of-top-hashtag-tracker-tools-fb-twitter-insta/"><u>[Updated] 2024 Approved Ultimate List of Top Hashtag Tracker Tools (FB, Twitter, Insta)</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-five-steps-to-enhance-your-screenplay-narration/"><u>[Updated] Five Steps to Enhance Your Screenplay Narration</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-how-to-seamlessly-capture-igtv-5-windows-and-mac-downloading-tips/"><u>[Updated] In 2024, How to Seamlessly Capture IGTV 5 Windows & Mac Downloading Tips</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-mastering-instavid-promotion-crafting-a-successful-marketing-gameplan-for-2024/"><u>[Updated] Mastering InstaVid Promotion Crafting a Successful Marketing Gameplan for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-pictureperfect-tips-for-instagrams-image-sizing-for-2024/"><u>[Updated] PicturePerfect Tips for Instagram's Image Sizing for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-premium-pick-ios-sound-artisans-guidebook-for-2024/"><u>[Updated] Premium Pick IOS Sound Artisans Guidebook for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-key-sites-the-6-most-vital-platforms-for-b2b-relationships/"><u>2024 Approved Key Sites The 6 Most Vital Platforms for B2B Relationships</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-macs-prime-screen-seize-collection-max-156/"><u>2024 Approved Mac's Prime Screen Seize Collection (Max 156)</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-the-ultimate-guide-the-hottest-meme-accounts-for-emotional-rollerscoasters/"><u>2024 Approved The Ultimate Guide The Hottest Meme Accounts for Emotional Rollerscoasters</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-can-infinix-note-30-5gmirror-share-to-pc-drfone-by-drfone-android/"><u>How Can Infinix Note 30 5GMirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-tecno-camon-20-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Tecno Camon 20 | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-proven-techniques-for-captivating-online-audiences-via-zoom-and-youtube-live/"><u>In 2024, Proven Techniques for Captivating Online Audiences via Zoom & YouTube Live</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/social-media-self-proofing-deciphering-ig-identity-for-2024/"><u>Social Media Self-Proofing Deciphering IG Identity for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/stuck-at-android-system-recovery-of-nokia-c12-plus-fix-it-easily-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Stuck at Android System Recovery Of Nokia C12 Plus ? Fix It Easily | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/understanding-youtubes-mechanism-to-foster-creative-video-content-creators-for-2024/"><u>Understanding YouTube’s Mechanism to Foster Creative Video Content Creators for 2024</u></a></li>
 </ul></div>
 

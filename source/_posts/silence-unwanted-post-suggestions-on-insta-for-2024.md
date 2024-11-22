@@ -1,7 +1,7 @@
 ---
 title: "Silence Unwanted Post Suggestions on Insta for 2024"
-date: 2024-10-31T18:55:58.208Z
-updated: 2024-11-02T18:12:02.329Z
+date: 2024-11-15T00:32:50.877Z
+updated: 2024-11-22T00:44:01.444Z
 tags:
   - ai video
   - ai instagram
@@ -39,6 +39,10 @@ The reason? These people aren't interested in seeing random people's posts on th
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: What is Instagram Suggested?
 
 Instagram is working on its features and has recently rolled out the new feature called suggested posts. When Instagram suggests something on its own, it will be basically posts of random people who Instagram thinks you might be interested in checking out. These posts will appear when you reach the end of your feed.
@@ -72,28 +76,12 @@ Here's what you need to do:
 ![click on not interested on suggested posts](https://images.wondershare.com/filmora/article-images/instagram-suggestion-posts-options.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1975636">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 6:** That post and user will be removed, and instead of that, you will see a message by Instagram asking for feedback. You can click on the option: I don't want to see posts from this account, and Instagram won't show you that user's posts.
 
 ![choose your feedback option](https://images.wondershare.com/filmora/article-images/instagram-suggestion-posts-feedback.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Now, you can apply the same steps for the rest of the posts as well. But do keep in mind that suggested posts will still appear. And you will have to apply this setting for each one so that you are shown fewer posts of unknown people.
 
@@ -114,15 +102,16 @@ If you don't want to see suggested users on your Instagram feed, there is a way 
 **Step 4:** To delete multiple suggested users, just click on the see all option, and the list of suggested users will appear; now click on the X for each user you want to delete. However, you need to delete everyone one by one individually.
 
 <!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### For web browsers
 
 The problem with web browsers is that you won't be able to remove the suggested users like you can through your Instagram app on your Android or iOS devices. So, the only way out for you will be to open your Instagram mobile app and then do it from there by following the steps that we have mentioned for Instagram app users.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 4: How to Avoid Showing up in Other Users' Suggestions for Your List
 
@@ -135,19 +124,6 @@ Just like Instagram show you suggested users and posts, your account gets recomm
 **Step 3:** Scroll down towards the bottom, and you will find the similar account suggestions section. In this section, you will see a checkbox. You need to uncheck that if you don't want your name to appear as a suggested user.
 
 ![ uncheck the similar account suggestions box](https://images.wondershare.com/filmora/article-images/uncheck-similar-account-suggestions.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 5: How Does Instagram Suggestions Work?
 
@@ -167,6 +143,10 @@ So, now you know **how to remove suggested posts on Instagram feed** and how to 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -182,22 +162,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-leading-tools-to-monitor-hashtags-on-fb-twitter-and-instagram/"><u>[New] 2024 Approved Leading Tools to Monitor Hashtags on FB, Twitter & Instagram</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-premium-designers-stellar-instagram-hlv-page-builders/"><u>[New] 2024 Approved Premium Designers Stellar Instagram HLV Page Builders</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-showcase-splendor-best-cover-apps-for-iphones-and-android/"><u>[New] 2024 Approved Showcase Splendor Best Cover Apps for iPhones & Android</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-enhancing-imagery-a-step-by-step-guide-to-crop-videos-on-instagram/"><u>[New] Enhancing Imagery A Step-by-Step Guide to Crop Videos on Instagram</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-instagram-stories-harmonizing-photos-for-maximum-impact/"><u>[Updated] Instagram Stories Harmonizing Photos for Maximum Impact</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580138450-103-crucial-croatian-expressions-your-translator-on-the-go/"><u>103 Crucial Croatian Expressions: Your Translator On-the-Go</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-2023s-best-cam-recorders-a-curated-selection-of-18/"><u>2024 Approved 2023'S Best Cam Recorders A Curated Selection of 18</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-how-to-turn-off-suggested-posts-on-instagram/"><u>2024 Approved How to Turn Off Suggested Posts on Instagram?</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-price-tracker-for-cloud-space-services-a-detailed-review/"><u>2024 Approved Price Tracker for Cloud Space Services A Detailed Review</u></a></li>
-<li><a href="https://win-blog.techidaily.com/decoding-and-resolving-the-centipede-issue-a-destiny-2-players-handbook/"><u>Decoding and Resolving the Centipede Issue: A Destiny 2 Player’s Handbook</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-vivo-y100i-android-system-webview-crash-2024-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Vivo Y100i Android System Webview Crash 2024 Issue | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/from-portrait-to-landscape-the-ultimate-guide-to-instagram-video-spins-for-2024/"><u>From Portrait to Landscape The Ultimate Guide to Instagram Video Spins for 2024</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-3-easy-methods-to-unlock-icloud-locked-iphone-13-miniipadipod-by-drfone-ios/"><u>In 2024, 3 Easy Methods to Unlock iCloud Locked iPhone 13 mini/iPad/iPod</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-insta-chat-101-an-introduction-to-online-video-talks/"><u>In 2024, Insta Chat 101 An Introduction to Online Video Talks</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/next-generation-of-intel-desktops-could-exceed-heat-specs-raises-concerns-for-arrow-lake-series/"><u>Next Generation of Intel Desktops Could Exceed Heat Specs, Raises Concerns for Arrow Lake Series</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/overcoming-virtual-reality-nausea/"><u>Overcoming Virtual Reality Nausea</u></a></li>
-<li><a href="https://driver-error.techidaily.com/resolving-driver-conflicts-in-windows-quickly/"><u>Resolving Driver Conflicts in Windows Quickly</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-elevate-your-video-game-on-instagram-with-right-dimensions/"><u>[New] 2024 Approved Elevate Your Video Game on Instagram with Right Dimensions</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-unleash-virtual-reality-to-the-fullest-with-htc-vive-review/"><u>[New] 2024 Approved Unleash Virtual Reality to the Fullest with HTC Vive Review</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-digital-diary-a-complete-2023-collection-of-twit-threads-for-2024/"><u>[Updated] Digital Diary A Complete 2023 Collection of Twit-Threads for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-getting-started-with-your-youtube-channel-essentials/"><u>[Updated] In 2024, Getting Started with Your YouTube Channel – Essentials</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-rapid-instagram-video-viewing-techniques-for-2024/"><u>[Updated] Rapid Instagram Video Viewing Techniques for 2024</u></a></li>
+<li><a href="https://location-fake.techidaily.com/11-best-location-changers-for-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>11 Best Location Changers for Realme 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-dive-deep-into-vlogging-easy-creative-projects/"><u>2024 Approved Dive Deep Into Vlogging Easy, Creative Projects</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-instagram-story-hacks-your-path-to-prominence/"><u>2024 Approved Instagram Story Hacks Your Path to Prominence</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-what-lies-beneath-instagram-story-perceptions/"><u>2024 Approved What Lies Beneath Instagram Story Perceptions</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/a-step-by-step-methodology-for-precisentic-google-meeting-arrangements-for-2024/"><u>A Step-by-Step Methodology for Precisentic Google Meeting Arrangements for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/exploring-the-evolution-of-a-gaming-legend-in-ratchet-and-clank-reboot/"><u>Exploring the Evolution of a Gaming Legend in 'Ratchet & Clank' Reboot</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/how-to-use-the-instagram-question-sticker/"><u>How to Use the Instagram Question Sticker?</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-guide-to-saving-instagram-videos-with-maximum-convenience/"><u>In 2024, Guide to Saving Instagram Videos with Maximum Convenience</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-mac-to-snapchat-creating-compact-shareable-content/"><u>In 2024, Mac to Snapchat Creating Compact, Shareable Content</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/instagrams-notes-for-sharing-tunes-responsibly-for-2024/"><u>Instagram’s Notes for Sharing Tunes Responsibly for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Fixing Your COD: WWII Experience - Overcoming the Hurdle of Error #4128"
-date: 2024-11-08T22:33:26.550Z
-updated: 2024-11-12T00:18:12.977Z
+date: 2024-11-18T23:29:01.197Z
+updated: 2024-11-21T18:27:48.132Z
 tags:
   - win11
   - win10
@@ -23,15 +23,20 @@ If you’re on Windows, and you’re seeing the error message “_**GeForce Expe
 
 One of the first things you do when you run into problems with your PC programs is to reinstall them. Here is how you can do it: 1)On your keyboard, press the **Windows logo key** ![](https://images.drivereasy.com/wp-content/uploads/2017/09/img_59ad1f04d88bb.png)  and**R** at the same time and type**%localappdata%\\NVIDIA\\**  and press**Enter** .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2017/09/img_59c8cab77a328.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 2) Highlight**GFExperience.exe**folder and delete it. 3) Go to NVIDIA support website again to download the most stable version of GeForce Experience available. Or you can go to safe download sites such as cnet to search for available downloads. 4) Install GeForce Experience as instructed. 5) Check if the problem is resolved.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Method 2: Reinstall NVIDIA Drivers
@@ -39,17 +44,11 @@ One of the first things you do when you run into problems with your PC programs 
 Faulty installed NVIDIA drivers can be one of the causes of this problem according to may users. You can uninstall all the possible NVIDIA drivers from your computer and then reinstall them again. If you need, you can use software such as Display Driver Uninstaller to help you with the NVIDIA display driver uninstall. Or you can just go to Device Manager to uninstall NVIDIA drivers one by one. Pick whatever suits you best. When the uninstall finishes, restart your PC. Search for the needed NVIDIA drivers from its support website, and update them as instructed. If you don’t have the time, patience or computer skills to update your drivers manually, you can do it automatically with[**Driver Easy**](https://tools.techidaily.com/drivereasy/download/). Driver Easy will automatically recognize your system and find the correct drivers for it. To ensure that you have safe and secure drivers, Driver Easy prioritizes in providing you with drivers that have passed WHQL test. You can update your drivers automatically with either the FREE or the Pro version of Driver Easy. But with the Pro version it takes just 2 clicks (and you get full support and a 30-day money back guarantee): 1)[**Download**](https://tools.techidaily.com/drivereasy/download/)and install Driver Easy. 2) Run Driver Easy and click the**Scan Now**button. Driver Easy will then scan your computer and detect any problem drivers. ![](https://images.drivereasy.com/wp-content/uploads/2017/07/img_595772546bc1c.png)3) Click the**Update**button next to all flagged devices to automatically download and install the correct version of their drivers (you can do this with the FREE version). Or click**Update All**to automatically download and install the correct version of all the drivers that are missing or out of date on your system (this requires the[**Pro version**](https://tools.techidaily.com/drivereasy/download/)– you’ll be prompted to upgrade when you click Update All). ![](https://images.drivereasy.com/wp-content/uploads/2017/04/img_58e8b44fc8c34.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Method 3: Reinstall Microsoft .NET Framework
@@ -74,20 +73,20 @@ Another possible cause of this error can be outdated Microsoft .NET Framework fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-bridging-platforms-posting-igtv-on-facebook-efficiently/"><u>[New] 2024 Approved Bridging Platforms Posting IGTV on Facebook Efficiently</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-from-novice-to-vlogger-top-tips-to-enhance-your-tiktok-videos/"><u>[New] From Novice to Vlogger Top Tips to Enhance Your TikTok Videos</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-tuneful-images-the-apple-fusion-method/"><u>[Updated] 2024 Approved Tuneful Images The Apple Fusion Method</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-top-picks-superior-iphone-tone-creators/"><u>[Updated] Top Picks Superior iPhone Tone Creators</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-protecting-melodies-on-instagram/"><u>2024 Approved Protecting Melodies on Instagram</u></a></li>
-<li><a href="https://win-workspace.techidaily.com/april-2024-windows-updates-causing-trouble-identifying-how-they-affect-your-vpn-service-insights-from-microsoft/"><u>April 2024 Windows Updates Causing Trouble: Identifying How They Affect Your VPN Service - Insights From Microsoft</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/creating-a-captivating-instagram-cover-for-your-topics-highlight-for-2024/"><u>Creating a Captivating Instagram Cover for Your Topics Highlight for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/from-strangers-to-community-your-facebook-onboarding-journey-for-2024/"><u>From Strangers to Community Your Facebook Onboarding Journey for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/gionee-f3-pro-not-connecting-to-wi-fi-12-quick-ways-to-fix-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Gionee F3 Pro Not Connecting to Wi-Fi? 12 Quick Ways to Fix | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-old-call-logs-from-your-oppo-a2-by-fonelab-android-recover-call-logs/"><u>How to recover old call logs from your Oppo A2?</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-detailed-guide-on-removing-apple-iphone-15-plus-activation-lock-without-previous-owner-by-drfone-ios/"><u>In 2024, Detailed Guide on Removing Apple iPhone 15 Plus Activation Lock without Previous Owner?</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-leave-a-life360-group-on-lava-yuva-2-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How To Leave a Life360 Group On Lava Yuva 2 Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-illuminate-images-top-3-methods-for-captivating-comments/"><u>In 2024, Illuminate Images Top 3 Methods for Captivating Comments</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-instagram-video-editor-how-to-edit-instagram-videos/"><u>In 2024, Instagram Video Editor How to Edit Instagram Videos</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-melodies-that-matter-instagram-music-guide/"><u>In 2024, Melodies that Matter Instagram Music Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-how-to-create-animated-bouncing-text/"><u>[New] 2024 Approved How to Create Animated Bouncing Text</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-from-reel-to-share-creating-perfect-vt-videos-in-fcpx-for-2024/"><u>[New] From Reel to Share Creating Perfect VT Videos in FCPX for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-streamlining-video-uploads-tips-for-transforming-h-vids-for-igtv/"><u>[New] In 2024, Streamlining Video Uploads Tips for Transforming H-Vids for IGTV</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-top-5-ios-emulators-that-bring-your-favorite-psp-worlds-to-life-for-2024/"><u>[New] Top 5 iOS Emulators That Bring Your Favorite PSP Worlds to Life for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-elevate-your-craft-canvas-hidden-design-secrets/"><u>[Updated] 2024 Approved Elevate Your Craft Canva's Hidden Design Secrets</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-stealthy-content-consumption-top-5-apps/"><u>[Updated] 2024 Approved Stealthy Content Consumption - Top 5 Apps</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-elevate-your-feed-quality-with-these-tags-for-2024/"><u>[Updated] Elevate Your Feed Quality with These Tags for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-expressive-mac-screenshot-recorder-with-soundtrack/"><u>[Updated] Expressive Mac Screenshot Recorder with Soundtrack</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-maximize-impact-strategies-for-successful-instagram/"><u>[Updated] In 2024, Maximize Impact Strategies for Successful Instagram</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-step-forward-leveraging-live-talks-in-the-instagram-world/"><u>[Updated] Step Forward Leveraging Live Talks in the Instagram World</u></a></li>
+<li><a href="https://techtrends.techidaily.com/1-best-manycam-alternatives-top-live-streaming-apps-and-online-cam-options/"><u>1. Best ManyCam Alternatives: Top Live Streaming Apps & Online Cam Options</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-instagrams-media-mastery-pro-level-tips-for-pcmac-downloading/"><u>2024 Approved Instagram's Media Mastery Pro-Level Tips for PC/Mac Downloading</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/crafting-engaging-live-streamed-gaming-experiences/"><u>Crafting Engaging Live-Streamed Gaming Experiences</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1813711-9781583949467-moonlight-leaning-against-an-old-rail-fence/"><u>Moonlight Leaning Against an Old Rail Fence | Free Book</u></a></li>
+<li><a href="https://extra-information.techidaily.com/nine-leading-iphone-image-watermarking-tools-analysis/"><u>Nine Leading iPhone Image Watermarking Tools Analysis</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Building Immersive Thumbnails for IGTV Videos"
-date: 2024-11-08T01:35:24.640Z
-updated: 2024-11-12T07:14:57.084Z
+date: 2024-11-20T22:53:42.539Z
+updated: 2024-11-21T17:12:46.719Z
 tags:
   - ai video
   - ai instagram
@@ -31,6 +31,10 @@ There are so many different things you need to pay attention to when sharing new
 * Part 2: How to Create a Cover Photo for Your IGTV Channel?
 * Part 3: Bonus! Edit Your IGTV Video with Filmora
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Dimensions and Specifications for Cover Photos on IGTV
 
 IGTV is centered around the idea that people hold their phones vertically while watching videos, and for that reason, all videos on this platform are in the **9:16 aspect ratio**. Hence the cover photos you can add to your IGTV videos have to be **vertically oriented** as well, and if you would like to prevent IGTV from cropping your cover photo, you need to make sure that the picture matches the platform’s specifications. If you follow these specifications the cover photos for your IGTV videos are going to look equally good inside the IGTV app, the Instagram.com website, Instagram app search grid or Instagram app search feed.
@@ -43,13 +47,14 @@ The images you use as cover photos for your videos will be displayed in differen
 
 ![IGTV Cover Photo Safe Zone ](https://images.wondershare.com/filmora/article-images/igtv-cover-photo-dimensions.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 While creating a cover photo for an IGTV video you need to keep in mind that different graphics and text overlays are going to be displayed over the picture once you upload it to your channel. During the process of uploading IGTV video’s cover photo, you will be able to add text to it, but the **Title Safe Area** suggests where you can place the text without the risk of it being cropped while being viewed from different devices won’t be shown. So, make sure that all text you add to your IGTV video cover photo is **placed in the central area of the image** in order for it to be clearly visible on all devices.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to Create a Cover Photo for Your IGTV Channel?
@@ -60,13 +65,6 @@ Adding a cover photo to your IGTV video is easy since you just have **to upload 
 
 Learn more details about [How to edit IGTV videos with best app on mobile](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3: Bonus! Edit Your IGTV Video with Filmora
 
 Now that you have learned about how to create an attractive IGTV thumbnail, don't let it get wasted! Create a video that is as attractive as your thumbnail with Filmora.
@@ -76,10 +74,7 @@ Filmora is a video editing software for people at different levels. Should you b
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
-  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Conclusion**
@@ -89,10 +84,7 @@ A small and seemingly insignificant detail like a cover photo of an IGTV video c
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -110,18 +102,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-resources.techidaily.com/new-2023s-leading-vr-game-development-tools/"><u>[New] 2023'S Leading VR Game Development Tools</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-becoming-an-expert-in-igtv-a-complete-overview/"><u>[New] 2024 Approved Becoming an Expert in IGTV A Complete Overview</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-crafting-impressive-instagram-story-bokeh-art/"><u>[New] Crafting Impressive Instagram Story Bokeh Art</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-unleash-your-creativity-seamless-video-scaling-techniques-on-a-mac/"><u>2024 Approved Unleash Your Creativity Seamless Video Scaling Techniques on a Mac</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/4-things-you-must-know-about-apple-iphone-14-pro-activation-lock-by-drfone-ios/"><u>4 Things You Must Know About Apple iPhone 14 Pro Activation Lock</u></a></li>
-<li><a href="https://win-help.techidaily.com/comprehensive-guide-and-visual-aid-mastering-crossplay-between-pc-and-android-systems-for-gaming-enthusiasts/"><u>Comprehensive Guide & Visual Aid: Mastering Crossplay Between PC and Android Systems for Gaming Enthusiasts</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/crafting-engaging-narratives-a-compreehensive-guide-to-adding-emojis-to-instagram-stories-for-2024/"><u>Crafting Engaging Narratives A Compreehensive Guide to Adding Emojis to Instagram Stories for 2024</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/godfall-critique-underwhelming-narrative-and-gameplay-as-ps5-exclusive-debut/"><u>Godfall Critique: Underwhelming Narrative and Gameplay as PS5 Exclusive Debut</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-oneplus-11r-location-on-skout-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change OnePlus 11R Location on Skout | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/key-metrics-to-track-igtv-video-analytics-for-2024/"><u>Key Metrics to Track IGTV Video Analytics for 2024</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138576652-9781450236812-miraculous-wonders/"><u>Miraculous Wonders | Free Book</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/rtisans-guide-to-animation-enchantment/"><u>The Artisan's Guide to Animation Enchantment</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/top-11-free-apps-to-check-imei-on-samsung-galaxy-m14-5g-phones-by-drfone-android/"><u>Top 11 Free Apps to Check IMEI on Samsung Galaxy M14 5G Phones</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-unleash-creativity-professional-insights-into-shooting-and-editing-stunning-slow-motion-content-for-instagram/"><u>[New] In 2024, Unleash Creativity Professional Insights Into Shooting and Editing Stunning Slow Motion Content for Instagram</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-unlocking-the-power-of-instagrams-visual-storytelling-covers-edition-for-2024/"><u>[New] Unlocking the Power of Instagram's Visual Storytelling Covers Edition for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-verifying-online-self-portraits-on-insta-for-2024/"><u>[New] Verifying Online Self-Portraits on Insta for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-top-tips-for-effective-story-emoji-integration-on-instagram/"><u>[Updated] 2024 Approved Top Tips for Effective Story Emoji Integration on Instagram</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-augmenting-creativity-with-the-best-ai-for-podcast-names/"><u>[Updated] Augmenting Creativity with the Best AI for Podcast Names</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-guard-against-gimmicky-validations-instagrams-hidden-hazard-for-2024/"><u>[Updated] Guard Against Gimmicky Validations Instagram's Hidden Hazard for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-step-by-step-diving-into-the-world-of-igtv/"><u>[Updated] In 2024, Step-by-Step Diving Into the World of IGTV</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-strategic-visual-marketing-top-10-ideas-to-amplify-your-instagram-presence/"><u>[Updated] In 2024, Strategic Visual Marketing Top 10 Ideas to Amplify Your Instagram Presence</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-top-secret-instagram-stories-viewer-apps-for-2024/"><u>[Updated] Top Secret Instagram Stories Viewer Apps for 2024</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-twitter-highlights-top-viewership/"><u>[Updated] Twitter Highlights Top Viewership</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-action-packed-angling-best-fishing-cameras-ranked/"><u>2024 Approved Action-Packed Angling Best Fishing Cameras Ranked</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/3d-video-production-made-easy-top-free-and-paid-tools/"><u>3D Video Production Made Easy Top Free and Paid Tools</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/a-step-by-step-journey-to-revamping-your-win11-look-for-2024/"><u>A Step-by-Step Journey to Revamping Your Win11 Look for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/advanced-tips-for-professionally-changing-image-hues-for-2024/"><u>Advanced Tips for Professionally Changing Image Hues for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/how-to-update-dell-xps-15-drivers-in-windows/"><u>How To Update Dell XPS 15 Drivers In Windows</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-fix-oem-unlock-missing-on-samsung-galaxy-m14-5g-by-drfone-android/"><u>In 2024, How To Fix OEM Unlock Missing on Samsung Galaxy M14 5G?</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-interpreting-instagrams-per-video-timeframe-rule/"><u>In 2024, Interpreting Instagram's Per-Video Timeframe Rule</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolve-high-cpu-usage-by-svchostexe-on-your-windows-10-system-effectively/"><u>Resolve High CPU Usage by svchost.exe on Your Windows 10 System Effectively</u></a></li>
+<li><a href="https://win-help.techidaily.com/understanding-pups-identification-and-removal-strategies-a-comprehensive-guide-by-malwarefox/"><u>Understanding PUPs: Identification & Removal Strategies - A Comprehensive Guide by MalwareFox</u></a></li>
 </ul></div>
 

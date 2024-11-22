@@ -1,7 +1,7 @@
 ---
 title: "[New] The Ultimate List for Capturing Instagram Vids (PC/Mac)"
-date: 2024-11-05T01:08:48.954Z
-updated: 2024-11-12T01:14:53.673Z
+date: 2024-11-16T17:49:48.012Z
+updated: 2024-11-21T20:51:51.519Z
 tags:
   - ai video
   - ai instagram
@@ -37,11 +37,19 @@ There are a few [different solutions to help you download Instagram videos on PC
 * [Method 2: Online solutions](#part2)
 * [Method 3: Add-ons](#part3)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Method 1: Source code
 
 Did you know that there's a way to inspect the source code of the Instagram video page? 'What the heck is source code?', we hear you cry. Well, it doesn't really matter what it is, and you don't need to understand it at all, because all you're looking for here is a little link that will let you download the video directly to your computer. Here's how you do it:
 
 ![Source code](https://images.wondershare.com/filmora/article-images/2023/04/how-to-download-instagram-videos-on-pc-and-mac-01.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Open the video you'd like to download on Instagram
 * Right-click (or on a Mac, ⌘+click) and choose 'inspect element' or 'view page source', depending on the specific browser that you're using.
@@ -54,6 +62,10 @@ Did you know that there's a way to inspect the source code of the Instagram vide
 This might sound all a bit cumbersome, but once you've had a couple of goes you'll find it's not as hard as it looks. If you're not used to keyboard shortcuts you might have a bit of a learning curve to traverse, but overall, it's a tried and tested method to download Instagram videos on PC and Mac that is popular with many users.
 
 Please check this video to know more details:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Method 2: Online solutions
 
@@ -70,13 +82,6 @@ If you'd prefer a more elegant way to download Instagram videos on PC or Mac, th
 
 We've tried DreDown with Instagram, YouTube, Vimeo, and Vine, and it works smoothly and quickly without any issues on all of them. On the website, it states it also works with Facebook, Keek, Twitter, Twitch, Vevo, and many more too, so if you're wondering how to download Instagram videos or any other type of video, this is the website to trust.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Method 3: Add-ons
 
 The one last method we wanted to share with you is to use a browser extension to facilitate your download. There are a few different downloaders out there, so feel free to explore your own solutions, but for the purposes of this tutorial, we've picked Instag Downloader as an easy option. Here's how you use it:
@@ -89,35 +94,18 @@ The one last method we wanted to share with you is to use a browser extension to
 ![Add-ons](https://images.wondershare.com/filmora/article-images/2023/04/how-to-download-instagram-videos-on-pc-and-mac-03.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 It really is that easy.
 
 Once you've downloaded your selected video to your computer, you can choose to transfer them to your iPhone or iPad either using iTunes or without. Find out how here. (internal link to our article “How to download Instagram video/photo on iPhone”)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
-  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### The last word
 
 Now you know how to download Instagram videos, do make sure you are doing so responsibly. Instagram takes copyright and privacy very seriously, so if you did not create the content, you must not share or redistribute it without the permission of the owner. If you do share it, make sure you clearly attribute the content creator in your work.
 
 You can now download Instagram videos on PC and Mac and can transfer them to any of your mobile devices too. Let us know which method worked best for you, or if you know of another way we've not yet mentioned.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Edit Your Instagram Video with [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -128,6 +116,10 @@ If you are looking for a desktop video editing software to [edit videos](https:/
 For Win 7 or later (64-bit)
 
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -157,20 +149,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-the-social-media-analysts-toolkit-making-sense-of-instagram-stats/"><u>[New] 2024 Approved The Social Media Analyst's Toolkit Making Sense of Instagram Stats</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-capturing-the-essence-of-your-facebook-live-spontaneity/"><u>[New] Capturing the Essence of Your Facebook Live Spontaneity</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-x-media-converter-desktop-version/"><u>[New] In 2024, X-Media Converter Desktop Version</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-photo-finesse-leading-edits-for-social-media-savvy/"><u>[New] Photo Finesse Leading Edits for Social Media Savvy</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/new-strategies-to-attain-facebooks-prestige-blue-icon-for-2024/"><u>[New] Strategies to Attain Facebook’s Prestige Blue Icon for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-leveraging-hashtags-and-collaborations-for-1k-insta-following/"><u>[Updated] 2024 Approved Leveraging Hashtags & Collaborations for 1K Insta Following</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-dive-into-fixes-for-your-troublesome-instagram-video/"><u>[Updated] In 2024, Dive Into Fixes for Your Troublesome Instagram Video</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/harnessing-instagram-video-power-strategizing-for-impact-for-2024/"><u>Harnessing Instagram Video Power Strategizing for Impact for 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-samsung-galaxy-s24-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Samsung Galaxy S24 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-nokia-g310-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Nokia G310 | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-mastering-mobile-videography-the-10-best-phones/"><u>In 2024, Mastering Mobile Videography - The 10 Best Phones</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-unleash-your-photo-flair-insta-covers-for-tech-giants/"><u>In 2024, Unleash Your Photo Flair Insta Covers for Tech Giants</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-kids-app-named-one-of-google-plays-best-apps-of-2017/"><u>Mondly Kids App Named One Of Google Play's Best Apps Of 2017</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/precision-based-adjustments-for-maximum-impact-on-instagram-tv-for-2024/"><u>Precision-Based Adjustments for Maximum Impact on Instagram TV for 2024</u></a></li>
-<li><a href="https://win-premium.techidaily.com/windows-11-subscription-model-on-the-horizon-microsoft-considers-paid-updates-from-next-year-zdnet-exclusive-insight/"><u>Windows 11 Subscription Model on the Horizon? Microsoft Considers Paid Updates From Next Year | ZDNET Exclusive Insight</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-shoot-exceptional-igtv-video-content-with-mobile-and-professional-cameras/"><u>[New] 2024 Approved Shoot Exceptional IGTV Video Content with Mobile & Professional Cameras</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ismantling-youtube-ranks-factors-and-their-effects-for-2024/"><u>[New] Dismantling YouTube Ranks Factors and Their Effects for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-hidden-insta-story-accessibility-step-by-step-for-tech-savvy/"><u>[New] Hidden Insta Story Accessibility - Step-by-Step for Tech Savvy</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-revealing-10-hidden-viewers-of-stories-for-2024/"><u>[New] Revealing 10 Hidden Viewers of Stories for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-simplified-guide-efficient-screen-recording-for-dell-users-for-2024/"><u>[New] Simplified Guide Efficient Screen Recording for Dell Users for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-social-medias-best-video-enhancing-programs-2023/"><u>[New] Social Media's Best Video Enhancing Programs, 2023</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-enhancing-selfie-impact-on-instagram-the-zoom-guide/"><u>[Updated] In 2024, Enhancing Selfie Impact on Instagram The Zoom Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-navigating-youtube-sharing-on-insta-stories-for-2024/"><u>[Updated] Navigating YouTube Sharing on Insta Stories for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-streamline-your-workflow-with-hp-screen-recordings/"><u>[Updated] Streamline Your Workflow with HP Screen Recordings</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-ultimate-guide-to-negative-time-videos-on-instagram-for-2024/"><u>[Updated] The Ultimate Guide to Negative-Time Videos on Instagram for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/10-pro-ways-to-upgrade-your-twitch-broadcast-experience/"><u>10 Pro Ways to Upgrade Your Twitch Broadcast Experience</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-mastering-the-art-of-storytelling-on-ig-for-higher-engagement/"><u>2024 Approved Mastering the Art of Storytelling on IG for Higher Engagement</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youtube-video-creation-secrets-of-the-professionals-unveiled/"><u>2024 Approved YouTube Video Creation Secrets of the Professionals Unveiled</u></a></li>
+<li><a href="https://games-able.techidaily.com/expedite-boredom-20plus-high-speed-online-games/"><u>Expedite Boredom: 20+ High-Speed Online Games</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-find-peace-and-power-the-10-greatest-yoga-channels-online/"><u>In 2024, Find Peace & Power The 10 Greatest Yoga Channels Online</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/premiere-experts-exceptional-instagram-highlight-craftsmen-for-2024/"><u>Premiere Experts Exceptional Instagram Highlight Craftsmen for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-vivo-x100-pro-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Vivo X100 Pro | Dr.fone</u></a></li>
 </ul></div>
 

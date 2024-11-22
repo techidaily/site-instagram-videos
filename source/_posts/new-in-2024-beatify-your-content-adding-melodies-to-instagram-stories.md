@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Beatify Your Content  Adding Melodies to Instagram Stories\""
-date: 2024-10-29T19:06:19.794Z
-updated: 2024-11-03T06:14:59.098Z
+date: 2024-11-17T21:19:36.331Z
+updated: 2024-11-22T00:22:02.438Z
 tags:
   - ai video
   - ai instagram
@@ -31,6 +31,10 @@ If you are also an avid Instagram user who would like to post stories on the app
 
 ![ Instagram Logo](https://images.wondershare.com/filmora/article-images/ig-logo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## A Step-by-step Guide for Adding Music to IG Story
 
 To make it easier for us to post interesting stories, Instagram has come up with the Music feature. Using it, we can look for tons of popular songs in different languages and add our favorite snippets to our story. Presently, the feature of Instagram Music is available for English, German, French, Hindi, and a few other local languages. Also, you can post a snippet of at most 15 seconds since that is the maximum duration of an Instagram story. To learn how to add music to the IG story, you can follow these simple steps right away:
@@ -51,6 +55,10 @@ As of now, Instagram music has an extensive catalog with millions of songs in di
 
 ![ Select Taylor Swift Songs](https://images.wondershare.com/filmora/article-images/select-taylor-swift-songs.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Once you find the song of your choice, just tap on it and it will be loaded on the Instagram Story interface. Although the entire song would be loaded, you would now have to clip a snippet of at most 15 seconds from it. There is a slider at the bottom that you can move and adjust to clip the specific part and even view its lyrics sliding as you move.
 
 ![ View Lyrics](https://images.wondershare.com/filmora/article-images/view-lyrics.jpg)
@@ -65,6 +73,10 @@ After when you add music to IG story, you can further change how it looks. You c
 
 ![ Customize IG Story](https://images.wondershare.com/filmora/article-images/customize-story.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 If you don’t want to display the lyrics, then just swipe the text options at the bottom and select the sticker feature. This will only display the sticker of the track on the story. You can also tap on the sticker to get different display options for it.
 
 ![ Display Options of IG Story Music](https://images.wondershare.com/filmora/article-images/display-options-of-music.jpg)
@@ -76,16 +88,7 @@ That’s it! In this way, you can learn how to add music to IG story and customi
 ![ Share Your IG Story](https://images.wondershare.com/filmora/article-images/share-your-ig-story.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1155462">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Create Stunning IG Stories to Captivate Your Audience?
@@ -110,13 +113,6 @@ Apart from adding music, Instagram also lets us add tons of other things to our 
 
 ![ Add Polls and More](https://images.wondershare.com/filmora/article-images/add-polls-challenges.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
-  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### Ask questions to interact with your audience
 
 Polls and Questions are some of the best ways to increase interaction in your story. Just tap on the “Questions” option and type what you wish to ask your viewers (or vice versa). If you are a brand, then you can even ask for feedback from your audience as well. You can later share their answers as your story by tagging the user.
@@ -127,22 +123,12 @@ If you plan to add video content to your Instagram stories, then consider using 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 There you go! Now when you know how to add music to IG Story, you can easily post impressive content on your Instagram profile. For your convenience, I have come up with a stepwise guide on how to put music on IG story that you can easily follow. Besides that, I have also listed some expert tips that you can implement to post visually stunning stories. Go ahead and try these tips and share this guide with your friends to help them add music to IG story as well.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -160,22 +146,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-the-soundscape-of-influence-altering-voice-on-stories-and-reels/"><u>[New] 2024 Approved The Soundscape of Influence Altering Voice on Stories & Reels</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-conquering-instagram-reels-like-an-elite-creator/"><u>[New] In 2024, Conquering Instagram Reels Like an Elite Creator</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-linux-screenshot-solutions-the-ultimate-guide/"><u>[New] Linux Screenshot Solutions The Ultimate Guide</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-soundscape-strategies-making-tamil-tracks-your-phones-chime/"><u>[New] SoundScape Strategies Making Tamil Tracks Your Phone's Chime</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-dissecting-video-self-presentation-uncovering-truthfulness-needs/"><u>[Updated] Dissecting Video Self-Presentation Uncovering Truthfulness Needs</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-enhancing-instagram-presence-with-picture-borders/"><u>[Updated] In 2024, Enhancing Instagram Presence with Picture Borders</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-the-prime-editor-shortlist-top-10-for-instagram-reel-brilliance/"><u>[Updated] The Prime Editor Shortlist Top 10 for Instagram Reel Brilliance</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-xiaomi-redmi-note-12-pro-5g-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Xiaomi Redmi Note 12 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/how-to-factory-reset-honor-100-pro-if-i-forgot-security-code-or-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Honor 100 Pro If I Forgot Security Code or Password? | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-open-your-apple-iphone-7-plus-without-a-home-button-drfone-by-drfone-ios/"><u>How To Open Your Apple iPhone 7 Plus Without a Home Button | Dr.fone</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-generate-official-travel-ready-portraits-download-10-free-photos-today/"><u>In 2024, Generate Official Travel-Ready Portraits – Download 10 FREE Photos Today</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-tips-for-retro-revival-using-instagram-filters-on-previous-imagesvideos/"><u>In 2024, Tips for Retro Revival Using Instagram Filters on Previous Images/Videos</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-visioncapture-prox-briefing/"><u>In 2024, VisionCapture ProX Briefing</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/mastering-instagram-profit-the-ultimate-strategy-blueprint-for-2024/"><u>Mastering Instagram Profit The Ultimate Strategy Blueprint for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/perfect-your-video-cropping-technique-for-instagram-sharing/"><u>Perfect Your Video Cropping Technique for Instagram Sharing</u></a></li>
-<li><a href="https://win-able.techidaily.com/solve-the-issue-of-internet-explorer-not-working-easy-fixes-to-try-first/"><u>Solve the Issue of Internet Explorer Not Working - Easy Fixes to Try First</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/the-ultimate-list-of-must-have-tv-streaming-platforms/"><u>The Ultimate List of Must-Have TV Streaming Platforms</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-enhance-visibility-editing-igtv-video-texts/"><u>[New] 2024 Approved Enhance Visibility Editing IGTV Video Texts</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-immersive-recording-enhancing-your-gaming-with-windows-11-for-2024/"><u>[New] Immersive Recording Enhancing Your Gaming with Windows 11 for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-discovering-bargains-inexpensive-gopro-purchasing-guide/"><u>[New] In 2024, Discovering Bargains Inexpensive GoPro Purchasing Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-mastering-multimedia-posts-multiphotograph-and-video-uploads-on-instagram-for-2024/"><u>[New] Mastering Multimedia Posts Multiphotograph & Video Uploads on Instagram for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-turbocharge-fb-video-speed-selective-extensions-and-apps-guidebook/"><u>[New] Turbocharge FB Video Speed Selective Extensions & Apps Guidebook</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-foundations-of-fluid-graphics-a-primer/"><u>[Updated] Foundations of Fluid Graphics A Primer</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-boundless-treasure-tales-of-instagram-flair/"><u>[Updated] In 2024, Boundless Treasure Tales of Instagram Flair</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-instagrams-guide-to-real-photo-verification/"><u>[Updated] In 2024, Instagram's Guide to Real Photo Verification</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-snapshot-excellence-the-finest-software-on-market-for-2024/"><u>[Updated] Snapshot Excellence The Finest Software on Market for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-instagram-strategists-toolkit-understanding-metrics-trends-and-user-insights-for-2024/"><u>[Updated] The Instagram Strategist’s Toolkit Understanding Metrics, Trends & User Insights for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-professional-posting-hacks-for-instagram-tv/"><u>2024 Approved Professional Posting Hacks for Instagram TV</u></a></li>
+<li><a href="https://techidaily.com/all-things-you-need-to-know-about-wipe-datafactory-reset-for-vivo-x-flip-drfone-by-drfone-reset-android-reset-android/"><u>All Things You Need to Know about Wipe Data/Factory Reset For Vivo X Flip | Dr.fone</u></a></li>
+<li><a href="https://article-files.techidaily.com/bring-your-text-to-life-techniques-for-3d-design-in-ps/"><u>Bring Your Text to Life Techniques for 3D Design in PS</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/capture-the-moment-in-squares-mastering-imovie-for-instagram-video/"><u>Capture the Moment in Squares Mastering iMovie for Instagram Video</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/gratuit-online-konvertereen-van-png-naar-tiff-met-movavi-volledige-processiegids/"><u>Gratuit Online Konvertereen Van PNG Naar TIFF Met Movavi - Volledige Processiegids</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-begin-the-stream-an-introduction-to-instagram-lives/"><u>In 2024, Begin the Stream An Introduction to Instagram Lives</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/master-the-art-of-email-recall-a-comprehensive-tutorial-for-microsoft-outlook-users/"><u>Master the Art of Email Recall: A Comprehensive Tutorial for Microsoft Outlook Users</u></a></li>
 </ul></div>
 

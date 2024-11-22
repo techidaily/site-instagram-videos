@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Crafting Memes  Perfecting Social Media Videos on FB & Insta\""
-date: 2024-11-08T20:50:12.763Z
-updated: 2024-11-11T20:09:26.490Z
+date: 2024-11-16T21:34:39.220Z
+updated: 2024-11-22T00:35:12.106Z
 tags:
   - ai video
   - ai instagram
@@ -32,16 +32,13 @@ thumbnail: https://thmb.techidaily.com/a6de986a3fdb94c7142abb7e1738397c8994a30f4
 * [**Part1: Facebook and Instagram specs**](#part1)
 * [**Part2: How to make a video meme for Facebook and Instagram**](#part2)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook and Instagram specs
 
  Before knowing how to make a video meme for Instagram/Facebook, how about understanding their specs on both the platforms and get the best out of it? It is of utmost importance to know the social media specs before venturing into video marketing in these platforms.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Facebook
 
@@ -65,13 +62,6 @@ thumbnail: https://thmb.techidaily.com/a6de986a3fdb94c7142abb7e1738397c8994a30f4
 * Maximum word count is 2,200 characters but 90 characters is recommended for links.
 * Link description is 30 characters max with 25 characters long headline.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027176/19272" target="_top" id="2027176">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027176" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027176/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Instagram
 
  When it comes to Instagram, it has [71% of brands with it that reach to their audience](https://sproutsocial.com/insights/instagram-stats/). Due to the high visibility rate over the internet, brand-created Instagram videos are worth investing. It has three different video formats, such as landscape, vertical, and square. Mobile being an indispensable device nowadays, accessing social networking platforms has grown tremendously. This in turn made Instagram videos a big hit, though, organic reach is comparatively less.
@@ -94,10 +84,7 @@ thumbnail: https://thmb.techidaily.com/a6de986a3fdb94c7142abb7e1738397c8994a30f4
 ![import meme](https://images.wondershare.com/filmora/article-images/drag-memes-filmora-meme-maker.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 2**: Go to the meme editor page. Click the tools from left and customize the meme. The preview window shows the changes. Try playing with fonts and texts with funny content.
@@ -106,15 +93,20 @@ thumbnail: https://thmb.techidaily.com/a6de986a3fdb94c7142abb7e1738397c8994a30f4
 
 ![edit meme](https://images.wondershare.com/filmora/article-images/edit-memes-filmroa-meme-maker.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3**: Finally, click ‘CREATE’ and let the changes take effect. Press the ‘DOWNLOAD’ button once you are happy with the changes. You can share now on your Facebook and Instagram accounts.
 
 ![export meme](https://images.wondershare.com/filmora/article-images/export-memes-filmora-meme-maker.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Bottom Line
@@ -138,21 +130,24 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-boost-your-brand-on-instagram-monthly-growth-from-1k-followers/"><u>[New] Boost Your Brand on Instagram Monthly Growth From 1K Followers</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/he-key-to-successful-collaborations-in-the-digital-age/"><u>[New] The Key to Successful Collaborations in the Digital Age</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-15-advanced-tips-for-sports-broadcasting-nba/"><u>[Updated] In 2024, 15 Advanced Tips for Sports Broadcasting (NBA)</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-speech-recognition-a-game-changer-for-visual-presentations/"><u>[Updated] Speech Recognition A Game Changer for Visual Presentations</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-color-connoisseurs-compendium-theory-and-technique/"><u>2024 Approved Color Connoisseur's Compendium Theory & Technique</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-mastering-instagram-reverse-video-tutorials/"><u>2024 Approved Mastering Instagram Reverse Video Tutorials</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-nine-crucial-strategies-to-elevate-your-youtube-presence/"><u>2024 Approved Nine Crucial Strategies to Elevate Your Youtube Presence</u></a></li>
-<li><a href="https://win-rankings.techidaily.com/extend-the-life-of-your-aging-computer-top-5-tricks-for-preparing-it-for-windows-11-no-cost-required-zdnet-solutions/"><u>Extend the Life of Your Aging Computer: Top 5 Tricks for Preparing It for Windows 11 (No Cost Required) | ZDNet Solutions</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/from-followers-to-brand-ambassadors-the-five-pillars-of-influencer-success/"><u>From Followers to Brand Ambassadors The Five Pillars of Influencer Success</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-enhance-engagement-top-12-tactics-for-youtube-success/"><u>In 2024, Enhance Engagement Top 12 Tactics for YouTube Success</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-essential-tips-for-mastering-instagram-reels/"><u>In 2024, Essential Tips for Mastering Instagram Reels</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-understanding-the-invisible-aspects-of-stories/"><u>In 2024, Understanding the Invisible Aspects of Stories</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-unveiling-the-instagram-success-script/"><u>In 2024, Unveiling the Instagram Success Script</u></a></li>
-<li><a href="https://android-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-oppo-f23-5g-phone-frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Oppo F23 5G Phone FRP Lock</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/navigating-the-route-to-social-stardom-a-quick-overview-of-6-key-steps-on-instagram-for-2024/"><u>Navigating the Route to Social Stardom A Quick Overview of 6 Key Steps on Instagram for 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-vivo-y100i-power-5g-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Vivo Y100i Power 5G? | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-easy-steps-to-deactivate-igtv/"><u>[New] 2024 Approved Easy Steps to Deactivate IGTV</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-master-iphone-and-ipad-best-free-video-editors-guide/"><u>[New] 2024 Approved Master iPhone & iPad Best Free Video Editors Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-navigating-the-world-of-instagram-filters-a-comprehensive-guide-to-2023/"><u>[New] 2024 Approved Navigating the World of Instagram Filters A Comprehensive Guide to 2023</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-are-video-selfies-on-instagram-really-genuine-in-2024/"><u>[New] Are Video Selfies on Instagram Really Genuine, In 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-essential-haul-editing-skills-making-every-purchase-memorable/"><u>[New] In 2024, Essential Haul Editing Skills Making Every Purchase Memorable</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-the-compreenasional-path-to-post-perfection-instagram-video-upload-from-pcmac-for-2024/"><u>[New] The Compreenasional Path to Post-Perfection Instagram Video Upload From PC/Mac for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-best-hd-cameras-for-comprehensive-social-media-broadcasts/"><u>[Updated] 2024 Approved Best HD Cameras for Comprehensive Social Media Broadcasts</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-from-production-to-publication-streamlining-video-submission/"><u>[Updated] 2024 Approved From Production to Publication Streamlining Video Submission</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-enhancing-visuals-tips-for-shooting-and-editing-slow-motion-content-on-instagram/"><u>[Updated] Enhancing Visuals Tips for Shooting and Editing Slow Motion Content on Instagram</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-recmaster-screen-recorder-review/"><u>[Updated] In 2024, Recmaster Screen Recorder Review</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-secrets-for-hd-streaming-on-the-worlds-largest-social-network/"><u>[Updated] In 2024, Secrets for HD Streaming on the World's Largest Social Network</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-unleashing-vintage-charm-filters-for-existing-media-on-ig/"><u>[Updated] In 2024, Unleashing Vintage Charm Filters for Existing Media on IG</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-streaming-success-recording-roblox-on-apple-devices-for-2024/"><u>[Updated] Streaming Success Recording Roblox on Apple Devices for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-from-front-to-back-a-step-by-step-guide-for-instagram-video-angles/"><u>2024 Approved From Front to Back A Step-by-Step Guide for Instagram Video Angles</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-the-ultimate-guide-to-instagram-filters/"><u>2024 Approved The Ultimate Guide to Instagram Filters</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-unveiling-secrets-for-converting-instagram-vids-into-high-quality-mp4/"><u>2024 Approved Unveiling Secrets for Converting Instagram Vids Into High-Quality MP4</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-scribes-summit-selection-top-8/"><u>In 2024, Scribe's Summit Selection - Top 8</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/quick-mac-mastering-screen-recording-via-shortcuts-for-2024/"><u>Quick Mac Mastering Screen Recording via Shortcuts for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/snappy-solution-seconds-for-ssgnature-bg-purge/"><u>Snappy Solution Seconds for Ssgnature BG Purge</u></a></li>
 </ul></div>
 

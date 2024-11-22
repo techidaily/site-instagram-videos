@@ -1,7 +1,7 @@
 ---
 title: AirPods Not Playing Audio? Solve the Problems in Windows 11 and 10 Systems!
-date: 2024-10-30T02:41:55.932Z
-updated: 2024-11-02T22:28:16.296Z
+date: 2024-11-14T22:56:06.629Z
+updated: 2024-11-21T16:57:50.959Z
 tags:
   - win11
   - win10
@@ -31,6 +31,10 @@ The headphone jack is not working on Windows 10 after an upgrade or performing a
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Fix 1: Plug the headphone in and restart your computer
 
  Simple as this fix seems, it did help many people out. Only two steps are required:
@@ -51,18 +55,19 @@ The headphone jack is not working on Windows 10 after an upgrade or performing a
 
 2) Right-click the speaker icon ![](https://images.drivereasy.com/wp-content/uploads/2016/08/2019-11-26_14-41-05.jpg) in the notification area of your taskbar, and then click **Sounds** .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/image-101.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  3) If your headphone is not listed n the**Playback** tab, right-click the blank area and select**Show Disabled Devices** . Then your device should show up.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/02/image-22.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  4) Right-click your headphone and select**Enabled** .
 
@@ -71,6 +76,10 @@ The headphone jack is not working on Windows 10 after an upgrade or performing a
  Once complete, check to see if your headphone problem goes away. In case it still remains, please head over to Fix 3.
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Fix 3: Set your headphone as the default device**
 
@@ -83,10 +92,7 @@ The headphone jack is not working on Windows 10 after an upgrade or performing a
 ![Control Panel Windows 10](https://images.drivereasy.com/wp-content/uploads/2016/08/img_57a1b750ef792.png)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  3) Change your view to Category and click   **Hardware and Sound.**
@@ -94,10 +100,7 @@ The headphone jack is not working on Windows 10 after an upgrade or performing a
 ![](https://images.drivereasy.com/wp-content/uploads/2018/04/img_5adee837b737e.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  4) Click **Sound** .
@@ -108,6 +111,10 @@ The headphone jack is not working on Windows 10 after an upgrade or performing a
 
 ![Headphones](https://images.drivereasy.com/wp-content/uploads/2016/08/img_57a1b8408bb79.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Note** : You may see  “Speaker/Headphones” instead of just “Headphones”. If that’s the case, select**Speakers/Headphones** and click**Set Default** .
 
 ![Speakders/Headphones](https://images.drivereasy.com/wp-content/uploads/2016/08/img_57a1b917ae4b4.png)
@@ -117,13 +124,6 @@ The headphone jack is not working on Windows 10 after an upgrade or performing a
  Still no luck? Don’t panic, let’s take a stab at the next fix.
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Fix 4: Update your audio driver**
 
@@ -138,6 +138,10 @@ The headphone jack is not working on Windows 10 after an upgrade or performing a
  2) Run Driver Easy and click the **Scan Now** button. Driver Easy will then scan your computer and detect any problem drivers.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/image-504.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  3)Click **Update All**  to automatically download and install the correct versions of all the drivers that are missing or out of date on your system. (Or you can update your drivers one at a time by clicking the Update button next to each driver.)
 
@@ -167,13 +171,6 @@ The headphone jack is not working on Windows 10 after an upgrade or performing a
 
 ![Disable front panel jack detection](https://images.drivereasy.com/wp-content/uploads/2016/08/img_57a1c10cd4f32.png)
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  4) Click**OK** .
 
 If this fix didn’t help, proceed to the next one.
@@ -190,35 +187,9 @@ If this fix didn’t help, proceed to the next one.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/04/img_5adee74b8283b.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  3) Change your view to **Large icons** and click **Programs and Features**  .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/04/img_5adee88ed0afe.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  4) Locate**IDT Audio Driver** in the list, right-click on it, and choose**Uninstall** .
 
@@ -229,13 +200,6 @@ If this fix didn’t help, proceed to the next one.
 ## Fix 7: Switch to ChromeOS
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/03/ChromeOSDesktop.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Windows is a very old technology. Sure, Windows 10 is relatively new, but it’s still just the latest iteration of a decades-old operating system, designed for a bygone era (pre-internet).
 
@@ -281,18 +245,24 @@ And that’s just the start of the benefits…
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-the-ultimate-toolkit-for-youtube-marketers-banner-mastery-guide/"><u>[New] 2024 Approved The Ultimate Toolkit for YouTube Marketers Banner Mastery Guide</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-amplify-your-influence-the-ultimate-list-of-instagram-apps-for-2024/"><u>[New] Amplify Your Influence The Ultimate List of Instagram Apps for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-driveease-expert-review/"><u>[New] DriveEase Expert Review</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-essential-techniques-for-insta-photo-cover-highlights/"><u>[New] Essential Techniques for Insta Photo Cover Highlights</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-democracy-dynamics-leading-electoral-simulators/"><u>[New] In 2024, Democracy Dynamics Leading Electoral Simulators</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-top-converter-mp4-to-facebook-social-media-pro/"><u>[New] Top Converter MP4 to Facebook (Social Media Pro)</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-improve-instagram-video-loading-times-effectively/"><u>[Updated] 2024 Approved Improve Instagram Video Loading Times Effectively</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-join-the-visual-speech-the-simple-guide-to-posting-and-uploading-gifs-on-instagram-for-2024/"><u>[Updated] Join the Visual Speech The Simple Guide to Posting and Uploading GIFs on Instagram for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-the-art-of-sound-in-visual-storytelling-on-instagram/"><u>[Updated] The Art of Sound in Visual Storytelling on Instagram</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/all-you-need-to-know-about-oneplus-10-release-forecasts-cost-estimations-and-expected-innovations/"><u>All You Need to Know About OnePlus 10: Release Forecasts, Cost Estimations, and Expected Innovations</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/easy-steps-download-and-setup-bcm20702a0-windows-drivers-quickly/"><u>Easy Steps: Download & Setup BCM20702A0 Windows Drivers Quickly</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/leading-apps-to-monitor-facebook-twitter-and-instagram-tags-for-2024/"><u>Leading Apps to Monitor Facebook, Twitter and Instagram Tags for 2024</u></a></li>
-<li><a href="https://win-docs.techidaily.com/mastering-on-page-seo-techniques-and-insights-for-enhanced-rankings-webmaster-toolkit/"><u>Mastering On-Page SEO Techniques & Insights for Enhanced Rankings | Webmaster Toolkit</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-enhancing-instagram-video-performance-desktop-for-2024/"><u>[New] Enhancing Instagram Video Performance (Desktop) for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-prime-hash-monitoring-apps-for-social-media-giants-fb-tweetinsta-for-2024/"><u>[New] Prime Hash Monitoring Apps for Social Media Giants (FB, Tweet/Insta) for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-unrivaled-tag-analyzers-your-key-to-hashtag-success-fbtwitterinsta/"><u>[Updated] 2024 Approved Unrivaled Tag Analyzers Your Key to Hashtag Success (FB/Twitter/Insta)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-channeling-musical-charm-crafting-custom-playlists-on-youtube-for-2024/"><u>[Updated] Channeling Musical Charm Crafting Custom Playlists on Youtube for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-essential-insights-best-instagram-editors-for-mobile-and-pc/"><u>[Updated] Essential Insights Best Instagram Editors for Mobile and PC</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-navigating-the-markets-youtubes-top-picks/"><u>[Updated] In 2024, Navigating the Markets YouTube's Top Picks</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-integrating-youtube-videos-into-your-instagram-story/"><u>[Updated] Integrating YouTube Videos Into Your Instagram Story</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-ultimate-selection-of-superior-hexadrones-for-2024/"><u>[Updated] Ultimate Selection of Superior HexaDrones for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-effortless-guide-to-going-live-on-instagram/"><u>2024 Approved Effortless Guide to Going Live on Instagram</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-glacial-glory-celebrating-olympic-champions-and-their-epic-slopesideshow-22/"><u>2024 Approved Glacial Glory Celebrating Olympic Champions & Their Epic Slopesideshow '22</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-navigating-the-world-of-srt-extensions-for-audible-enjoyment/"><u>2024 Approved Navigating the World of SRT Extensions for Audible Enjoyment</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-ultimate-tutorial-for-setting-up-an-online-livestream/"><u>2024 Approved The Ultimate Tutorial for Setting Up an Online Livestream</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/4-things-you-must-know-about-iphone-6s-plus-activation-lock-by-drfone-ios/"><u>4 Things You Must Know About iPhone 6s Plus Activation Lock</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/download-now-top-20-premiere-pro-title-templates-for-2024/"><u>Download Now Top 20 Premiere Pro Title Templates for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-androidprocessmedia-has-stopped-on-oneplus-ace-3-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android.Process.Media Has Stopped on OnePlus Ace 3 | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/immediate-flagging-of-insta-de-following-events/"><u>Immediate Flagging of Insta De-Following Events</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/posting-photos-and-vids-to-twitter-from-your-phone-not-as-a-retweet-for-2024/"><u>Posting Photos and Vids to Twitter From Your Phone, Not as a Retweet for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/revel-in-richness-of-ranks-the-top-25-instagram-titans-unveiled/"><u>Revel in Richness of Ranks The Top 25 Instagram Titans Unveiled</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/secure-story-spectatorship-techniques-for-desktopandroidios-devices-at-no-cost-for-2024/"><u>Secure Story Spectatorship Techniques for Desktop/Android/iOS Devices (At No Cost) for 2024</u></a></li>
 </ul></div>
 

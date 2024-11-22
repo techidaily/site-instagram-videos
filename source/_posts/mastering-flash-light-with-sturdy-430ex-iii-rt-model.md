@@ -1,7 +1,7 @@
 ---
 title: Mastering Flash Light with Sturdy 430EX III-RT Model
-date: 2024-11-05T01:50:28.836Z
-updated: 2024-11-12T02:33:30.232Z
+date: 2024-11-16T17:38:10.983Z
+updated: 2024-11-21T23:32:40.227Z
 categories:
   - BestProducts
 description: This Article Describes Mastering Flash Light with Sturdy 430EX III-RT Model
@@ -13,9 +13,17 @@ thumbnail: https://www.lifewire.com/thmb/5taQkbn_ks7zo2LZcB9Gq8aAQmw=/400x300/fi
 
 4.8
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Motorola MG7700 Cable Modem and Router
 
 ![Motorola MG7700](https://www.lifewire.com/thmb/wUfud-dw3x-fQBAILjgQYd_Srx4=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/hero-4082541-3-2-5c8fadb846e0fb00014a9735.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Claire Cohen
 
@@ -37,6 +45,10 @@ Lifewire / Claire Cohen
 [View On Walmart $249](https://www.walmart.com/ip/652216495) [View On Best Buy $36](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2F6298663.p)
 
 4.8
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Motorola MG7700 Cable Modem and Router
 
@@ -66,13 +78,6 @@ Lifewire / Claire Cohen
 
  We recently reviewed the MG7700 to examine just how well it would perform in an average home environment by evaluating the design, ease of setup, network speeds, and software features.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Design: Simple and functional
 
  The Motorola MG7700 is fairly compact at 9.1 x 2.6 x 2.6 inches with a gray finish and a black stand. On the front of the device, you’ll find several indicator lights that tell you if it’s powered up, whether any traffic is flowing through your network, and if people are connected to your wireless network. The light indicators are easy to see and understand — something you don’t typically find in a modem from your cable company.
@@ -80,6 +85,10 @@ Lifewire / Claire Cohen
  The MG7700 has a power port on the back, as well as a coaxial port for connecting your service provider’s cable to the device. There are also four[local area network](https://www.lifewire.com/what-is-lan-4684071) (LAN) ports if you want to directly plug your computers and other devices into the modem using an Ethernet cable.
 
 ![Motorola MG7700](https://www.lifewire.com/thmb/djrbmUe-WrBQ_Tx-xD6258JjBmU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-3-4-5c8faefcc9e77c0001a926be.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Claire Cohen
 
@@ -99,11 +108,19 @@ Lifewire / Claire Cohen
 
 ![Motorola 7700](https://www.lifewire.com/thmb/RfuGGYo_UZvzWOQw8Rb7KZnMkhs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-3-1-5c8faf2dc9e77c00014a9db2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Claire Cohen
 
  A last but vital thing to know: Motorola’s branding for the device makes clear that it’s designed for Comcast Xfinity, Cox, and Spectrum. If you don’t use one of those ISP carriers, your modem won’t work on the network.
 
  Information about approved third-party equipment can usually be found on your cable provider’s website. If not, it’s best to call and ask before you buy. We were able to set it up on Spectrum without any trouble.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Connectivity: The latest standards
 
@@ -137,23 +154,9 @@ Lifewire / Claire Cohen
 
  Overall, if you live in a large apartment or a modestly-sized home, you won’t be disappointed by the performance of the MG7700.
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Software: User-friendly options
 
  The MG7700’s built-in software is customizable, too. Once your router is set up, you can go to a specified IP address (the instructions will tell you which one) in your Web browser to change settings, including the name of the default network, enabling password protection, toggling the channels your router will communicate on, and more. There’s also an Advanced page that allows you to set up a[firewall](https://www.lifewire.com/definition-of-firewall-817568) or enable parental controls. Overall, the settings are well laid out, easy to understand, and simple to change.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Price: Good value for the speed
 
@@ -162,13 +165,6 @@ Lifewire / Claire Cohen
  Overall, if you live in a large apartment or a modestly-sized home, you won’t be disappointed by the performance of the MG7700.
 
  Taking into account the fact that your service providers rental fees can run to $10 to $12 a month, the MG7700 could pay for itself in a little over the year. And the price isn’t unusual for the market, other bestselling modem and router units such as the $199.99 TP-Link Archer CR1900 will cost you about the same for a similar set of capabilities.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Motorola MG7700 vs. TP-Link Archer CR1900
 
@@ -183,13 +179,6 @@ Lifewire / Claire Cohen
  **Fast and easy to use, this modem/router combo is a must-buy.**
 
  The Motorola MG 7700 boasts four gigabit-ready LAN ports, delivered blazing fast 100Mbps speeds over dual-band Wi-Fi in our testing, and has outstanding user controls that are easy for anyone to use. It does best in homes of 2,000 square feet and can handle a dozen devices or more. That said, if you’re someone with a larger home or higher bandwidth requirements for a large number of devices, you may be better served by a tri-band router.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -232,18 +221,24 @@ Lifewire / Claire Cohen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-efficiently-posting-videos-instagram-upload-on-desktop/"><u>[New] 2024 Approved Efficiently Posting Videos Instagram Upload on Desktop</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-dynamic-discussion-drivers-in-instagram-social-media-surveys/"><u>[New] Dynamic Discussion Drivers in Instagram Social Media Surveys</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-scholarly-streams-10-best-ed-tutorials-yt/"><u>[Updated] 2024 Approved Scholarly Streams 10 Best Ed Tutorials YT</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-anatomy-of-an-anti-viewer-cutting-edge-strategies-for-reversed-youtube-videos-for-2024/"><u>[Updated] Anatomy of an Anti-Viewer Cutting Edge Strategies for Reversed YouTube Videos for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-unlock-the-potential-of-your-fb-cover-image-with-these-top-11-websites/"><u>[Updated] In 2024, Unlock the Potential of Your FB Cover Image with These Top 11 Websites</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-hilarity-unleashed-top-7-amusing-youtube-channel-skits/"><u>2024 Approved Hilarity Unleashed Top 7 Amusing YouTube Channel Skits</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-retrieve-lost-pictures-from-honor-by-fonelab-android-recover-pictures/"><u>Best Android Data Recovery - Retrieve Lost Pictures from Honor .</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/earn-big-on-ig-ranking-the-most-effective-posts-for-2024/"><u>Earn Big on IG Ranking the Most Effective Posts for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/fixing-stuck-feeds-on-instagram-videos-for-2024/"><u>Fixing Stuck Feeds on Instagram Videos for 2024</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-network-locked-sim-card-inserted-on-your-xiaomi-civi-3-phone-unlock-it-now-by-drfone-android/"><u>In 2024, Network Locked SIM Card Inserted On Your Xiaomi Civi 3 Phone? Unlock It Now</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-overlooked-masterpieces-unique-free-speech-to-text-apps-for-mac/"><u>In 2024, Overlooked Masterpieces Unique Free Speech-to-Text Apps for Mac</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-verifying-realness-in-instagrams-visual-identity-expressions/"><u>In 2024, Verifying Realness in Instagram's Visual Identity Expressions</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/navigating-the-hottest-templates-in-igs-vfx-community/"><u>Navigating the Hottest Templates in IG's VFX Community</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-facebook-story-complete-guide/"><u>[New] 2024 Approved Facebook Story Complete Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-thumbnail-scaling-techniques-for-youtube/"><u>[New] 2024 Approved Thumbnail Scaling Techniques for YouTube</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-a-step-by-step-guide-to-updating-photos-and-videos-on-instagram-for-2024/"><u>[New] A Step-by-Step Guide to Updating Photos and Videos on Instagram for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-from-followers-to-fans-a-guide-to-thriving-instagram-presence-for-2024/"><u>[New] From Followers to Fans A Guide to Thriving Instagram Presence for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-how-to-watermark-instagram-photos-for-2024/"><u>[New] How to Watermark Instagram Photos for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-quick-easy-fun-4-steps-to-showcasing-your-favorite-gifs-on-instagram/"><u>[New] Quick, Easy, Fun 4 Steps to Showcasing Your Favorite GIFs on Instagram</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-identifying-instagrams-newly-disconnected-for-2024/"><u>[Updated] Identifying Instagram's Newly Disconnected for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-master-the-art-of-repeating-iphones-videos/"><u>[Updated] In 2024, Master the Art of Repeating iPhones Videos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-unite-your-photos-cross-platform-instagram-collage-for-2024/"><u>[Updated] Unite Your Photos Cross-Platform Instagram Collage for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-unlocking-the-power-of-cross-platform-social-media-with-youtube-and-instagram-stories-for-2024/"><u>[Updated] Unlocking the Power of Cross-Platform Social Media with YouTube & Instagram Stories for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/comprehensive-guide-acquiring-and-installing-epson-xp-400-drivers-for-seamless-printing-experience/"><u>Comprehensive Guide: Acquiring and Installing Epson XP 400 Drivers for Seamless Printing Experience</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/exploring-asmrs-role-in-better-sleep-cycles/"><u>Exploring ASMR's Role in Better Sleep Cycles</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-comparing-profits-from-high-ranking-youtube-videos/"><u>In 2024, Comparing Profits From High-Ranking YouTube Videos</u></a></li>
+<li><a href="https://win-forum.techidaily.com/movavis-top-free-flv-to-mp4-video-format-converter-convert-online-in-just-one-click/"><u>Movavi's Top Free FLV to MP4 Video Format Converter - Convert Online in Just One Click!</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211209326-9781608684694-reclaiming-your-body/"><u>Reclaiming Your Body | Free Book</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/top-6-ways-to-transfer-text-messages-from-tecno-pova-5-pro-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 6 Ways to Transfer Text Messages from Tecno Pova 5 Pro to Other Android Devices | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/trailblazing-towards-top-instagram-minds-a-niche-journey-for-2024/"><u>Trailblazing Towards Top Instagram Minds A Niche Journey for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/understanding-instagrams-chord-of-musical-law-for-2024/"><u>Understanding Instagram’s Chord of Musical Law for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761876-9781591799030-what-to-do-when-you-cant-decide/"><u>What to Do When You Can't Decide | Free Book</u></a></li>
 </ul></div>
 
