@@ -1,7 +1,7 @@
 ---
 title: "The Ultimate Soundtrack for IG Story Posts Unveiled"
-date: 2024-11-15T23:16:43.627Z
-updated: 2024-11-21T19:40:07.863Z
+date: 2024-11-26T03:40:02.067Z
+updated: 2024-11-30T06:41:18.758Z
 tags:
   - ai video
   - ai instagram
@@ -31,6 +31,10 @@ If you are also an avid Instagram user who would like to post stories on the app
 
 ![ Instagram Logo](https://images.wondershare.com/filmora/article-images/ig-logo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## A Step-by-step Guide for Adding Music to IG Story
 
 To make it easier for us to post interesting stories, Instagram has come up with the Music feature. Using it, we can look for tons of popular songs in different languages and add our favorite snippets to our story. Presently, the feature of Instagram Music is available for English, German, French, Hindi, and a few other local languages. Also, you can post a snippet of at most 15 seconds since that is the maximum duration of an Instagram story. To learn how to add music to the IG story, you can follow these simple steps right away:
@@ -55,15 +59,15 @@ Once you find the song of your choice, just tap on it and it will be loaded on t
 
 ![ View Lyrics](https://images.wondershare.com/filmora/article-images/view-lyrics.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 3. Make optional edits to customize the story
 
 If you want, you can just post the song right away after learning how to put music on IG story. Though, a lot of people would like to make changes in the story to make it look presentable. For instance, you can see a timer (that is set to 15 seconds by default) at the bottom-left panel. Just tap on it and adjust the duration for your story that can be anywhere from 2 to 15 seconds.
 
 ![ Edit IG Story](https://images.wondershare.com/filmora/article-images/edit-story.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 After when you add music to IG story, you can further change how it looks. You can see different ways to display the lyrics right above the snippet selection. If you want, you can zoom in or out the text and move it to display it the way you like. Furthermore, there is a color radiant option on the top that you can select to change the text color and background.
 
@@ -80,11 +84,11 @@ That’s it! In this way, you can learn how to add music to IG story and customi
 ![ Share Your IG Story](https://images.wondershare.com/filmora/article-images/share-your-ig-story.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Create Stunning IG Stories to Captivate Your Audience?
@@ -97,25 +101,21 @@ Boomerangs are extremely popular in Instagram stories due to their quick yet int
 
 ![ Boomerangs & Layouts](https://images.wondershare.com/filmora/article-images/boomerangs-layouts.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### Use inbuilt Instagram filters
 
 Instagram also keeps rotating different filters that we can add to our stories. You can explore them from the bottom panel and make your stories look visually appealing. There are tons of gradients and stickers here that you can explore and easily add to your story.
 
 ![ Inbuilt IG Filters](https://images.wondershare.com/filmora/article-images/inbuilt-ig-filters.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### Add polls, challenges, countdowns, and more
 
 Apart from adding music, Instagram also lets us add tons of other things to our story. You can mention any other user in your story or add a location to get more views. There are also options to add a hashtag or create a poll. You can also find different challenges to explore (like the ice bucket challenge) to post your story under a specific category.
 
 ![ Add Polls and More](https://images.wondershare.com/filmora/article-images/add-polls-challenges.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Ask questions to interact with your audience
 
@@ -146,19 +146,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-exploring-the-unspoken-rules-of-instagram-mastery/"><u>[New] 2024 Approved Exploring the Unspoken Rules of Instagram Mastery</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-navigating-instagrams-repost-policy/"><u>[New] 2024 Approved Navigating Instagram's Repost Policy</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-discover-the-best-video-recording-tools-of-2024-expert-opinions/"><u>[New] Discover the Best Video Recording Tools of 2024 – Expert Opinions</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-the-insta-audio-handbook-choosing-music-wisely/"><u>[New] The Insta-Audio Handbook Choosing Music Wisely</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-navigate-through-settings-enabledisable-video-comments/"><u>[Updated] In 2024, Navigate Through Settings Enable/Disable Video Comments</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-momentum-in-motion-top-20-instagram-ideas-for-mentoring-the-masses-for-2024/"><u>[Updated] Momentum in Motion Top 20 Instagram Ideas for Mentoring the Masses for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-transforming-your-photos-on-instagram-green-screen/"><u>[Updated] Transforming Your Photos on Instagram Green Screen</u></a></li>
-<li><a href="https://some-tips.techidaily.com/updated-unlocking-the-secret-to-a-streamlined-tiktok-bio-with-linktree/"><u>[Updated] Unlocking the Secret to a Streamlined TikTok Bio with Linktree</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-leading-mac-gif-recorders-the-ultimate-list/"><u>2024 Approved Leading Mac GIF Recorders The Ultimate List</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/camera-buff-writers-choice-the-ultimate-list-of-5-low-frame-rate-cams-for-2024/"><u>Camera Buff' Writers Choice The Ultimate List of 5 Low Frame Rate Cams for 2024</u></a></li>
-<li><a href="https://techidaily.com/complete-tutorial-for-infinix-smart-7-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Complete Tutorial for Infinix Smart 7 Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/discover-superior-18-webcams-high-definition-at-your-fingertips/"><u>Discover Superior 18 Webcams – High-Definition at Your Fingertips</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-poco-c55-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Poco C55 Mirror Screen to PC? | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/vhs-classic-check-goofy-and-his-gangs-joke-time/"><u>VHS Classic Check Goofy and His Gang's Joke Time</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-the-secrets-of-successfully-posting-imovie-videos-on-vimeo/"><u>[New] 2024 Approved The Secrets of Successfully Posting iMovie Videos on Vimeo</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-bulk-posting-made-easy-a-comprehensive-instagram-tutorial/"><u>[New] Bulk Posting Made Easy A Comprehensive Instagram Tutorial</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-finding-your-audio-voice-match-the-perfect-mic-to-your-channels-character-for-2024/"><u>[New] Finding Your Audio Voice Match the Perfect Mic to Your Channel's Character for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-from-social-media-giant-to-premium-format-mastering-insta-to-mp4-2-ways/"><u>[New] From Social Media Giant to Premium Format Mastering Insta-to-MP4 2 Ways</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-unveiling-the-best-practices-in-recording-games-on-steam/"><u>[New] In 2024, Unveiling the Best Practices in Recording Games on Steam</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-spark-conversation-with-personalized-instagram-story-queries-for-2024/"><u>[New] Spark Conversation with Personalized Instagram Story Queries for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-art-of-photo-refreshment-how-to-tidy-up-images-on-canva/"><u>[New] The Art of Photo Refreshment How to Tidy Up Images on Canva</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-the-secrets-to-compelling-instagram-video-descriptions-for-2024/"><u>[New] The Secrets to Compelling Instagram Video Descriptions for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-eye-catchers-of-tomorrow-discovering-6-future-oriented-genres/"><u>[Updated] Eye Catchers of Tomorrow Discovering 6 Future-Oriented Genres</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-inspirational-images-a-top-20-guide-for-insta-gratification/"><u>[Updated] Inspirational Images A Top 20 Guide for Insta Gratification</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/4k-durable-laptop-vs-dell-latitude-a-comprehensive-torture-test-showdown/"><u>$4K Durable Laptop Vs. Dell Latitude: A Comprehensive Torture Test Showdown!</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-elevating-instagram-presence-through-bigger-video-content/"><u>2024 Approved Elevating Instagram Presence Through Bigger Video Content</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-making-audio-files-out-of-instagram-videos/"><u>2024 Approved Making Audio Files Out of Instagram Videos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-mastering-the-art-of-backwards-videos-on-instagram/"><u>2024 Approved Mastering the Art of Backwards Videos on Instagram</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-pricing-strategies-for-youtube-video-promotions/"><u>2024 Approved Pricing Strategies for YouTube Video Promotions</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-guide-to-share-igtv-with-minimal-hassle/"><u>In 2024, Guide to Share IGTV with Minimal Hassle</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-vivo-x90s-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Vivo X90S to New Android? | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-iphone-11-pro-apples-new-iphone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 11 Pro, Apples New iPhone</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/transferer-des-donnees-en-toute-securite-clonage-de-hdd-et-ssd-vers-un-nouveau-disque-a-vitesse-nvme/"><u>Transférer Des Données en Toute Sécurité : Clonage De HDD Et SSD Vers Un Nouveau Disque À Vitesse NVMe</u></a></li>
 </ul></div>
 

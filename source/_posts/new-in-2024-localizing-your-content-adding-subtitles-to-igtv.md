@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Localizing Your Content  Adding Subtitles to IGTV\""
-date: 2024-11-14T18:36:55.148Z
-updated: 2024-11-21T16:11:26.809Z
+date: 2024-11-25T04:03:08.162Z
+updated: 2024-11-29T21:26:52.616Z
 tags:
   - ai video
   - ai instagram
@@ -33,17 +33,25 @@ IGTV videos are vertically oriented, so you can’t just create an SRT file that
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 We are going to show you how to add subtitles to videos in Filmora because you don’t have to be an experienced filmmaker in order to use this video editing software. After installing Filmora on your Mac or PC computer, double-click on its desktop icon to launch it. The welcome window will appear on the screen asking you if you want to continue working on a **recent project** or if you want to create a **new project**.
 
 ![ Filmora0 Create New Project](https://images.wondershare.com/filmora/article-images/new-project-9.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Choose the **New Project** option and then once the project opens, head over to **File menu** and select **Project Settings** from the list. The **Project Settings window** will pop up on the screen and you should change the resolution to **1080x1920 (9:16)** and increase the **Frame Rate to 30fps**.
 
 ![ Filmora0 Create New Project](https://images.wondershare.com/filmora/article-images/filmora9-4k-project-settings.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Click on the **OK button** to confirm the changes, and then go to the **Media panel** to import the video you would like to edit. The fastest way to add media files to your project is to just drag them from the folder in which they are stored and drop them to the Media panel. You can also click on the **Import** drop-down menu and select the **Import Media Files** option from the list.
 
@@ -60,7 +68,7 @@ Once you have all the text ready, you should go to the **Titles panel** and clic
 ![ Filmora0 Create New Project](https://images.wondershare.com/filmora/article-images/add-titles-text.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You can choose from a variety of preset text styles, and you can select the font, color or the size of the text. Click on the **Advanced button** if you would like to customize the text and create as many text layers as you need to cover all the dialogues or the narration in the video.
@@ -71,17 +79,9 @@ Adding subtitles to a video can be a painstakingly long process if you’re work
 
 Once you’re done adding the subtitles you should click on the **Photo Camera icon** to take a snapshot of the video, you can use as a **cover photo for your IGTV video**. Export the video and proceed to upload it to IGTV from your web browser or from your phone.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Add Text to IGTV Videos with the Quik App For iOS and Android Devices
 
 In case you like editing IGTV videos from your phone, you can try adding subtitles to your IGTV videos with the Quik app. After you’ve completed all other video editing tasks, you should tap on the **Text icon** and type in the text you’d like to add to the video. Hit the **OK button** after you’ve added the text and that’s it you’ve successfully created the subtitles for your IGTV video. How long the process of creating hardcoded subtitles is going to last depends on the duration of the video and the amount of narration or dialogue in the video.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Tips for Adding Subtitles to IGTV Videos
 
@@ -94,7 +94,7 @@ Even though adding subtitles to videos can require a lot of precision and attent
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -112,22 +112,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-exploring-facebooks-2023-video-revolution-the-rise-of-compact-clips/"><u>[New] 2024 Approved Exploring Facebook's 2023 Video Revolution The Rise of Compact Clips</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-how-to-add-music-or-voiceover-to-instagram-reels-in-2024/"><u>[New] How to Add Music or Voiceover to Instagram Reels, In 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-unlocking-potential-innovative-strategies-for-better-insta-content/"><u>[New] In 2024, Unlocking Potential Innovative Strategies for Better Insta Content</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-strategies-for-effective-screen-sharing-via-skype-at-home-for-2024/"><u>[New] Strategies for Effective Screen Sharing via Skype at Home for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-demystifying-igtv-for-a-comprehensive-social-media-experience/"><u>[Updated] Demystifying IGTV For a Comprehensive Social Media Experience</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-mastering-virality-in-instagram-clips/"><u>[Updated] In 2024, Mastering Virality in Instagram Clips</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-instavideo-magic-crafting-a-plan-to-capture-your-audiences-attention/"><u>[Updated] InstaVideo Magic Crafting a Plan to Capture Your Audience's Attention</u></a></li>
-<li><a href="https://howto.techidaily.com/8-ultimate-fixes-for-google-play-your-honor-magic-5-lite-isnt-compatible-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Ultimate Fixes for Google Play Your Honor Magic 5 Lite Isnt Compatible | Dr.fone</u></a></li>
-<li><a href="https://driver-download.techidaily.com/fix-hp-envy-4520-printer-driver-issues-in-windows/"><u>Fix HP Envy 4520 Printer Driver Issues in Windows</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/in-2024-compact-movie-story-proposal/"><u>In 2024, Compact Movie Story Proposal</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-fabricating-temporal-anomaly-illusions/"><u>In 2024, Fabricating Temporal Anomaly Illusions</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-upside-down-up-in-popularity-the-instagram-way/"><u>In 2024, Upside Down, Up in Popularity The Instagram Way</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/insta-videography-dimensions-for-the-ultimate-visual-impact-for-2024/"><u>Insta Videography Dimensions for the Ultimate Visual Impact for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/invisible-audiences-viewing-instagram-stories-privately-from-pcandroidios-screens-for-2024/"><u>Invisible Audiences Viewing Instagram Stories Privately From PC/Android/iOS Screens for 2024</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/new-top-16-best-free-movie-makers-easy-to-use/"><u>New Top 16 Best Free Movie Makers Easy to Use</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/toms-guide-to-high-performance-gadgets-and-components-expert-reviews/"><u>Tom's Guide to High-Performance Gadgets and Components - Expert Reviews!</u></a></li>
-<li><a href="https://ai-video-editing.techidaily.com/updated-2024-approved-so-without-wasting-time-let-me-show-you-how-to-mask-a-video-in-wondershare-filmora-lets-get-started/"><u>Updated 2024 Approved So, without Wasting Time, Let Me Show You How to Mask a Video in Wondershare Filmora. Lets Get Started</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-best-student-focused-historical-yt-series/"><u>[New] 2024 Approved Best Student-Focused Historical YT Series</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-innovative-techniques-improve-your-hp-laptop-screen-recordings/"><u>[New] 2024 Approved Innovative Techniques Improve Your HP Laptop Screen Recordings</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-building-an-impressive-instagram-network-for-2024/"><u>[New] Building an Impressive Instagram Network for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-how-to-make-slow-motion-videos-on-instagram-reels-for-2024/"><u>[New] How to Make Slow Motion Videos on Instagram Reels for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/aster-control-over-your-youtube-viewing-rhythm-for-2024/"><u>[New] Master Control Over Your YouTube Viewing Rhythm for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-5-premium-ps1-game-simulators-for-pc-gamers/"><u>[Updated] 2024 Approved 5 Premium PS1 Game Simulators for PC Gamers</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-breaking-down-the-three-stages-of-snapchat-calls-and-chats/"><u>[Updated] 2024 Approved Breaking Down the Three Stages of Snapchat Calls and Chats</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-free-limit-breakers-for-every-story-lover-for-2024/"><u>[Updated] Free Limit Breakers for Every Story Lover for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-guidelines-for-legally-reposting-on-insta/"><u>[Updated] Guidelines for Legally Reposting on Insta</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-harmonizing-with-instagram-a-songwriters-legal-framework/"><u>[Updated] Harmonizing with Instagram A Songwriter’s Legal Framework</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-boost-your-videos-best-editing-apps-for-android-pc-users/"><u>[Updated] In 2024, Boost Your Videos Best Editing Apps for Android, PC Users</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-infuse-vibes-into-photos-via-ig-sounds/"><u>[Updated] Infuse Vibes Into Photos via IG Sounds</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-chucklechief-meme-masterclass-online/"><u>2024 Approved ChuckleChief Meme Masterclass Online</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/amplify-your-brands-voice-with-these-pivotal-promotion-tactics-for-2024/"><u>Amplify Your Brand's Voice with These Pivotal Promotion Tactics for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/eternal-memory-keepsake-blend-free-cloud-services-with-elite-charged-spaces/"><u>Eternal Memory Keepsake Blend Free Cloud Services with Elite Charged Spaces</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/gratuito-converter-de-aviso-video-para-formato-ogg-online-por-movavi/"><u>Gratuito Converter De Aviso Vídeo Para Formato Ogg - Online Por Movavi</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-google-frp-lock-on-sony-xperia-5-v-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock on Sony Xperia 5 V Devices</u></a></li>
+<li><a href="https://solve-info.techidaily.com/how-to-troubleshoot-unrecognized-media-on-your-scanner-expert-tips-from-yl-computing/"><u>How to Troubleshoot Unrecognized Media on Your Scanner: Expert Tips From YL Computing</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/leveraging-instagrams-newest-filters-techniques-and-trends-for-2024/"><u>Leveraging Instagram's Newest Filters - Techniques and Trends for 2024</u></a></li>
 </ul></div>
 

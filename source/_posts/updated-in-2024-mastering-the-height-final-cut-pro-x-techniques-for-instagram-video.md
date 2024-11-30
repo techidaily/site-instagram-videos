@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Mastering the Height  Final Cut Pro X Techniques for Instagram Video\""
-date: 2024-11-15T20:37:29.991Z
-updated: 2024-11-21T23:27:00.502Z
+date: 2024-11-25T05:01:28.367Z
+updated: 2024-11-30T00:08:36.913Z
 tags:
   - ai video
   - ai instagram
@@ -35,6 +35,10 @@ You may also like: [How to Get 90-day Free Trial of FCPX](https://tools.techidai
 
 ![Instagram-video](https://images.wondershare.com/filmora/images/final-cut-pro/Instagram-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Introduction to Vertical Videos for Instagram
 
 Before entering the nitty-gritty on how to edit vertical videos with FCPX, you should first know certain specifications regarding vertical videos for Instagram. Yes, when it comes to Instagram IGTV videos or stories, vertical or portrait orientated videos are preferable. Thus, knowing the below technical specs can help you.
@@ -51,7 +55,7 @@ Before entering the nitty-gritty on how to edit vertical videos with FCPX, you s
 | **Audio codecs supported**       | 128 kbps, Vorbis                                         |
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to Edit and Export Vertical Videos for Instagram in Final Cut Pro X?
@@ -93,11 +97,7 @@ Too many steps? Then try a **beginner-friendly editing tool**, Filmora!
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: Tips on Editing Vertical Videos for Instagram
@@ -117,7 +117,7 @@ Is the video already shot horizontally on your camera or smartphone? No worries,
 Vertical video is a great option to showcase wide and tall subjects where you can place close-ups and show off details to get up close and personal. It could be a product or fabric. You can showcase enticing minor elements that attract an audience in such landscape shots.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -127,7 +127,7 @@ Hence, I am sure you found new tactics to create vertical videos for Instagram. 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -145,18 +145,22 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-instagrams-edge-transforming-your-videography-with-precision-cropping/"><u>[New] Instagram's Edge Transforming Your Videography with Precision Cropping</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-premier-tools-for-video-creation-on-android-and-desktop-oses-for-2024/"><u>[New] Premier Tools for Video Creation on Android & Desktop OSes for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-seek-and-succeed-hunt-down-instagrams-top-thinkers-in-your-space/"><u>[New] Seek and Succeed Hunt Down Instagram's Top Thinkers in Your Space</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-ultimate-list-of-10-online-free-jpg-to-gif-conversion-programs/"><u>[New] Ultimate List of 10 Online, Free JPG to GIF Conversion Programs</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-spark-conversation-with-personalized-instagram-story-queries/"><u>2024 Approved Spark Conversation with Personalized Instagram Story Queries</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-top-5-ios-podcast-apps-your-ultimate-listing/"><u>2024 Approved Top 5 iOS Podcast Apps Your Ultimate Listing</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-video-files-on-vivo-by-fonelab-android-recover-video/"><u>Complete guide for recovering video files on Vivo</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/elevate-your-social-media-presence-with-personalized-instagram-icons-for-2024/"><u>Elevate Your Social Media Presence with Personalized Instagram Icons for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/how-to-share-twitch-stream-on-facebook-for-2024/"><u>How to Share Twitch Stream on Facebook for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-an-odyssey-through-time-unexplored-worlds-in-classic-books/"><u>In 2024, An Odyssey Through Time Unexplored Worlds in Classic Books</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-can-i-use-a-fake-gps-without-mock-location-on-vivo-v29-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Use a Fake GPS Without Mock Location On Vivo V29? | Dr.fone</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/maximizing-online-privacy-the-ultimate-guide-to-using-opera-vpn-insights-from-zdnet/"><u>Maximizing Online Privacy: The Ultimate Guide to Using Opera VPN | Insights From ZDNet</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/xiaomi-11-series-capture-life-in-high-definition-for-2024/"><u>Xiaomi 11 Series Capture Life in High Definition for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-crafting-captivating-captions-a-triad-of-tips-for-insta-videos/"><u>[New] Crafting Captivating Captions A Triad of Tips for Insta Videos</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-what-youre-really-earning-as-a-podcaster/"><u>[New] In 2024, What You're Really Earning as a Podcaster</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-quickstart-to-flawless-nft-artistry-for-beginners/"><u>[New] Quickstart to Flawless NFT Artistry for Beginners</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-crafting-sound-saturated-instagram-visuals/"><u>[Updated] 2024 Approved Crafting Sound-Saturated Instagram Visuals</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-capture-attention-yt-imagery-and-its-dimension-magic/"><u>[Updated] Capture Attention YT Imagery and Its Dimension Magic</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-desktop-and-mobile-solutions-how-to-rotate-videos-for-instagram/"><u>[Updated] In 2024, [Desktop & Mobile Solutions] How to Rotate Videos for Instagram?</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-the-music-law-guide-for-instagram-users/"><u>[Updated] In 2024, The Music Law Guide for Instagram Users</u></a></li>
+<li><a href="https://location-fake.techidaily.com/10-best-fake-gps-location-spoofers-for-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>10 Best Fake GPS Location Spoofers for Apple iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/automated-consent-management-how-cookiebot-streamlines-compliance/"><u>Automated Consent Management: How Cookiebot Streamlines Compliance</u></a></li>
+<li><a href="https://win-info.techidaily.com/convertir-archivos-aifc-a-formatos-mp4-libremente-en-la-red-soluciones-faciles-y-sin-costo/"><u>Convertir Archivos AIFC a Formatos MP4 Libremente en La Red: Soluciones Fáciles Y Sin Costo</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/fast-and-free-strategies-for-authenticity-in-insta-circles-for-2024/"><u>Fast & Free Strategies for Authenticity in Insta Circles for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/gaining-heavy-followers-and-verification-status-a-quick-guide-with-top-6-insights-for-2024/"><u>Gaining Heavy Followers & Verification Status A Quick Guide with Top 6 Insights for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/harness-the-power-of-instagram-best-free-video-converter-apps-for-windowsmacos-for-2024/"><u>Harness the Power of Instagram Best Free Video Converter Apps for Windows/macOS for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-lock-apps-on-samsung-galaxy-xcover-6-pro-tactical-edition-to-protect-your-individual-information-by-drfone-android/"><u>How to Lock Apps on Samsung Galaxy XCover 6 Pro Tactical Edition to Protect Your Individual Information</u></a></li>
+<li><a href="https://win-ratings.techidaily.com/optimal-techniques-for-incremental-pst-file-backups-a-comprehensive-guide/"><u>Optimal Techniques for Incremental PST File Backups: A Comprehensive Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/unveiling-the-secrets-of-instagrams-musical-emoji-usage/"><u>Unveiling the Secrets of Instagram's Musical Emoji Usage</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210809562-9780983938798-when-spirits-speak-2nd-ed/"><u>When Spirits Speak (2nd ed.) | Free Book</u></a></li>
 </ul></div>
 
