@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Step-by-Step  Adding a Flurry of Images & Videos to Your IG Story\""
-date: 2024-11-23T03:48:17.318Z
-updated: 2024-11-29T23:02:51.304Z
+date: 2024-12-06T16:20:30.225Z
+updated: 2024-12-08T16:18:28.016Z
 tags:
   - ai video
   - ai instagram
@@ -27,10 +27,6 @@ thumbnail: https://thmb.techidaily.com/46c850237c04863ff656e578f32b008a00b71b463
 
  We often wonder how great would that be if you can upload multiple photos or video to Instagram, right? Well, we understand your situation. Obviously, if you have to upload your photos or videos one at a time, it may feel quite boring and frustrating, especially when you have dozens of them lined up in the queue. But here's the good news!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Introducing Carousel
 
  Instagram's update 10.9 for Android and iOS allows its users to upload upto 10 photos and videos in one go. This new feature is called 'Carousel'. Basically, when you upload multiple photos via carousel, they appear in a single post in the feed. There will be a row of blue dots underneath the pictures to let others know that they can swipe left and right through the slideshow to view the photos.
@@ -38,7 +34,7 @@ thumbnail: https://thmb.techidaily.com/46c850237c04863ff656e578f32b008a00b71b463
  You can now organize and post your photos about an expedition or some memorable event etc. in one single post and boast about your experiences in a more sequential and connective way to efficiently capture your audience's attention. Since this feature lets you add a series of videos as well, you can incorporate up to 10 videos in a single post and hence post a video content for up to 10 minutes.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Upload Multiple Videos and Photos to Instagram
@@ -49,13 +45,13 @@ thumbnail: https://thmb.techidaily.com/46c850237c04863ff656e578f32b008a00b71b463
 
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-1.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * As soon as you tap it, you will be able to see the recent photos and videos in your phone. Tap and hold, on any of the preferred image or video which you wish to upload, until you sense a slight vibration. Now, you have enabled the 'Select Multiple', scroll through the gallery and select rest 9 photos or videos that you wish to upload.
 
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-2.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Alternatively, if you have upgraded your Instagram app, you can simply tap the 'Select Multiple' option, represented by an icon of 'stacked squares', and select up to 10 photos/videos.
 
@@ -67,6 +63,10 @@ thumbnail: https://thmb.techidaily.com/46c850237c04863ff656e578f32b008a00b71b463
 
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-3.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * (Optional) If you've selected less than 10 photos and want to add more, tap '<' or go back to the previous screen or tap '+' displayed on the right side of the photos/videos. Tapping '<' or going back to the previous screen can also be used to deselect a photo/video.
 
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-4.png)
@@ -75,16 +75,16 @@ thumbnail: https://thmb.techidaily.com/46c850237c04863ff656e578f32b008a00b71b463
 
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-5.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Lastly, hit on 'Share' to publish your post with multiple photos/videos in it.
 
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-6.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -108,20 +108,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-broadcast-your-music-mp3-conversion-and-upload-on-youtube-for-2024/"><u>[New] Broadcast Your Music MP3 Conversion and Upload on YouTube for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-foodie-frenzy-top-10-viral-eats-on-tiktok/"><u>[New] Foodie Frenzy Top 10 Viral Eats on TikTok</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-highlight-harmony-the-top-business-tactics-for-insta/"><u>[New] Highlight Harmony The Top Business Tactics for Insta</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-recordwise-gettingmaximumoutofyourcam-for-2024/"><u>[New] RecordWise GettingMaximumOutOfYourCam for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-video-formats-that-thrive-on-instagram-whats-best/"><u>[Updated] 2024 Approved Video Formats That Thrive on Instagram - What's Best?</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-easy-ways-to-screen-record-instagram-story-for-2024/"><u>[Updated] Easy Ways to Screen Record Instagram Story for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-innovate-visual-signatures-for-free-using-graphic-patterns/"><u>[Updated] In 2024, Innovate Visual Signatures for Free Using Graphic Patterns</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-in-2024-top-15-gopro-mounts-and-tripods/"><u>[Updated] In 2024, Top 15 GoPro Mounts and Tripods</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-techniques-to-amplify-engagement-on-instagram-content-for-2024/"><u>[Updated] Techniques to Amplify Engagement on Instagram Content for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-uncovering-the-value-of-true-representations-in-insta-selfies-for-2024/"><u>[Updated] Uncovering the Value of True Representations in Insta-Selfies for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-maintaining-the-right-video-aspect-on-twitters/"><u>2024 Approved Maintaining the Right Video Aspect on Twitters</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/in-2024-expert-analysis-which-editing-tool-trumps-the-other-filmora-or-democreator/"><u>In 2024, Expert Analysis Which Editing Tool Trumps the Other, Filmora or Democreator?</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/innovative-templates-for-stellar-youtube-video-decks/"><u>Innovative Templates for Stellar YouTube Video Decks</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/nailing-the-perfect-shot-a-guide-to-instagram-videos-for-2024/"><u>Nailing the Perfect Shot A Guide to Instagram Videos for 2024</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/reveal-clear-imagery-for-twitch-streamers/"><u>Reveal Clear Imagery for Twitch Streamers</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-picture-perfect-instagram-carousel/"><u>[Updated] 2024 Approved Picture-Perfect Instagram Carousel</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-the-essence-of-insta-bokeh-a-step-by-step-guide/"><u>[Updated] In 2024, The Essence of Insta Bokeh - A Step-by-Step Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-insta-reversal-unlock-the-power-of-video-rotation/"><u>[Updated] Insta-Reversal Unlock the Power of Video Rotation</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-instagrams-sequential-visual-showcase-for-2024/"><u>[Updated] Instagram's Sequential Visual Showcase for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-step-by-step-guide-turning-your-insta-videos-into-top-notch-mp4/"><u>[Updated] Step-by-Step Guide Turning Your Insta Videos Into Top-Notch MP4</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-content-crafting-top-smartphone-picks-in-ranking/"><u>2024 Approved Content Crafting Top Smartphone Picks in Ranking</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-insights-on-the-recent-upgrades-of-sonys-s6500-player/"><u>2024 Approved Insights on the Recent Upgrades of Sony’s S6500 Player</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-master-the-basics-of-windows-10-effortlessly/"><u>2024 Approved Master the Basics of Windows 10 Effortlessly</u></a></li>
+<li><a href="https://techidaily.com/how-to-easily-hard-reset-my-samsung-galaxy-z-flip-5-drfone-by-drfone-reset-android-reset-android/"><u>How to Easily Hard reset my Samsung Galaxy Z Flip 5 | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-vivo-y17s-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Vivo Y17s | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-how-to-increase-followers-on-instagram-ultimate-guide/"><u>In 2024, How to Increase Followers on Instagram - Ultimate Guide</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/navigating-the-zoom-interface-a-focus-on-windows-10-for-2024/"><u>Navigating the Zoom Interface A Focus on Windows 10 for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-chroma-keying-mastery-advanced-fcp-x-tutorials-for-professionals/"><u>New In 2024, Chroma Keying Mastery Advanced FCP X Tutorials for Professionals</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/the-ultimate-blueprint-to-dominate-instagram-with-puzzles-for-2024/"><u>The Ultimate Blueprint to Dominate Instagram With Puzzles for 2024</u></a></li>
 </ul></div>
 

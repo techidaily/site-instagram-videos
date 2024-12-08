@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] SnapSizeSecrets  Perfecting Photo and Video Sizes in Instagram\""
-date: 2024-11-27T18:09:24.899Z
-updated: 2024-11-30T07:15:14.066Z
+date: 2024-12-06T16:08:10.914Z
+updated: 2024-12-08T16:05:25.218Z
 tags:
   - ai video
   - ai instagram
@@ -30,7 +30,7 @@ Taking photos with iPhones and Android Smartphones and posting them to Instagram
 Troubles begin when you want to upload photos and videos that weren't captured with a Smartphone to Instagram. In most cases, the photos and videos produced by DSLR cameras and other semi-professional and professional equipment are much larger than the sizes supported by Instagram. That is the reason why we created this guide that will help you post visual content that is perfectly adjusted to Instagram in 2021.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Types of Files Accepted by Instagram
@@ -50,7 +50,7 @@ Duration of Videos on Instagram
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Best Image Sizes for Instagram Posts
@@ -62,7 +62,7 @@ A couple of years ago, Instagram has finally allowed its users to upload images 
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
@@ -90,7 +90,7 @@ The profile pictures on Instagram are tiny, and the optimum size for them is 160
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -108,14 +108,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-the-ultimate-list-of-instagram-downloaders/"><u>[New] 2024 Approved The Ultimate List of Instagram Downloaders</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-top-10-online-video-editing-software-for-improved-content/"><u>[New] 2024 Approved Top 10 Online Video Editing Software for Improved Content</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-swipe-right-on-virality-blend-tiktok-trends-into-insta-reels-for-2024/"><u>[New] Swipe Right on Virality Blend TikTok Trends Into Insta Reels for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-capturing-magic-in-motion-a-guide-to-hero5-timelapses/"><u>[Updated] Capturing Magic in Motion A Guide to Hero5 Timelapses</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-elite-road-warriors-game-list/"><u>[Updated] Elite Road Warriors' Game List</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-instagram-video-timing-what-you-need-to-know-for-2024/"><u>[Updated] Instagram Video Timing What You Need To Know for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/diagnosing-and-repairing-continuous-halt-issues-in-computers-a-users-handbook/"><u>Diagnosing & Repairing Continuous Halt Issues in Computers – A User's Handbook</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-immersive-stories-that-keep-you-watching-within-limit/"><u>In 2024, Immersive Stories That Keep You Watching (Within Limit)</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-the-best-vlc-trimmer-for-mac-zero-quality-loss-every-time/"><u>New In 2024, The Best VLC Trimmer for Mac Zero Quality Loss, Every Time</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-capture-king-review-the-screen-recorder-showdown-for-2024/"><u>[New] Capture King Review The Screen Recorder Showdown for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ssential-video-equipment-for-successful-youtube-channels-for-2024/"><u>[New] Essential Video Equipment for Successful YouTube Channels for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-instagrams-best-practices-video-sizes-and-formats-for-2024/"><u>[New] Instagram's Best Practices Video Sizes and Formats for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-from-individual-to-institutional-growth-in-youtube-space-for-2024/"><u>[Updated] From Individual to Institutional Growth in YouTube Space for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-how-to-add-music-or-voiceover-to-instagram-reels-in-2024/"><u>[Updated] How to Add Music or Voiceover to Instagram Reels, In 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-collagecraft-stitching-videos-for-instagram-on-iosandroid/"><u>[Updated] In 2024, CollageCraft Stitching Videos for Instagram on iOS/Android</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-the-essential-guide-for-adding-depth-and-style-in-instagram-stories/"><u>2024 Approved The Essential Guide for Adding Depth & Style in Instagram Stories</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/dvdwinxwinxvideoai/"><u>高效率的DVD擦版软件：WinX与WinxvideoAI，互联网商店提供专业帮助</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/a-thorough-introduction-to-gdocs-speech-to-text-capabilities/"><u>A Thorough Introduction to GDoc's Speech-to-Text Capabilities</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-vs-french-usability-in-international-business/"><u>German Vs French Usability in International Business</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/how-to-craft-contagious-instagram-visuals/"><u>How to Craft Contagious Instagram Visuals</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-music-from-oppo-reno-10-5g-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Music from Oppo Reno 10 5G to iPod | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-converting-your-clips-into-perfect-instagram-stories/"><u>In 2024, Converting Your Clips Into Perfect Instagram Stories</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-frp-hijacker-by-hagard-download-and-bypass-your-poco-c65-frp-locks-by-drfone-android/"><u>In 2024, FRP Hijacker by Hagard Download and Bypass your Poco C65 FRP Locks</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-mastering-instagrams-musical-licensing-landscape/"><u>In 2024, Mastering Instagram's Musical Licensing Landscape</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-revamping-imagery-leading-insta-edits-explored/"><u>In 2024, Revamping Imagery Leading Insta Edits Explored</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/nebula-accountancy-support-guide/"><u>Nebula Accountancy Support Guide</u></a></li>
+<li><a href="https://android-frp.techidaily.com/top-5-asus-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 Asus Bypass FRP Tools for PC That Actually Work</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/vocalizing-video-content-tunes-for-instagram-stories/"><u>Vocalizing Video Content Tunes for Instagram Stories</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, From Screens to Stories  Vertical Video Mastery with FCPX\""
-date: 2024-11-27T01:25:08.191Z
-updated: 2024-11-29T23:39:39.558Z
+date: 2024-12-06T16:11:42.870Z
+updated: 2024-12-08T16:07:23.550Z
 tags:
   - ai video
   - ai instagram
@@ -36,7 +36,7 @@ You may also like: [How to Get 90-day Free Trial of FCPX](https://tools.techidai
 ![Instagram-video](https://images.wondershare.com/filmora/images/final-cut-pro/Instagram-video.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: Introduction to Vertical Videos for Instagram
@@ -55,7 +55,7 @@ Before entering the nitty-gritty on how to edit vertical videos with FCPX, you s
 | **Audio codecs supported**       | 128 kbps, Vorbis                                         |
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to Edit and Export Vertical Videos for Instagram in Final Cut Pro X?
@@ -97,11 +97,7 @@ Too many steps? Then try a **beginner-friendly editing tool**, Filmora!
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: Tips on Editing Vertical Videos for Instagram
@@ -120,6 +116,10 @@ Is the video already shot horizontally on your camera or smartphone? No worries,
 
 Vertical video is a great option to showcase wide and tall subjects where you can place close-ups and show off details to get up close and personal. It could be a product or fabric. You can showcase enticing minor elements that attract an audience in such landscape shots.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Hence, I am sure you found new tactics to create vertical videos for Instagram. Therefore, put them into practice the next time you make your vertical video for a story or IGTV. Is your video shot or recorded horizontal by mistake? No more worry, as you can edit vertical video for Instagram in the Final Cut Pro. Finally, with a complete guide on how to edit vertical videos with FCPX, our blog for the day is over.
@@ -127,7 +127,7 @@ Hence, I am sure you found new tactics to create vertical videos for Instagram. 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -145,18 +145,18 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-action-camera-face-off-comparing-pro-3-models-on-market-for-2024/"><u>[New] Action Camera Face-Off Comparing Pro 3 Models on Market for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-unlocking-instagram-success-4-looping-video-strategies/"><u>[New] In 2024, Unlocking Instagram Success 4 Looping Video Strategies</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-mastering-background-replacement-on-instagrams-platform/"><u>[Updated] 2024 Approved Mastering Background Replacement on Instagram's Platform</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-deciphering-the-differences-between-youtubes-and-dailymentions-for-2024/"><u>[Updated] Deciphering the Differences Between YouTubes & DailyMentions for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-in-2024-seamless-volume-reduction-for-apple-and-microsoft-systems/"><u>[Updated] In 2024, Seamless Volume Reduction for Apple and Microsoft Systems</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-navigating-through-your-instagram-post-eye-balls-for-2024/"><u>[Updated] Navigating Through Your Instagram Post Eye-Balls for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-virtual-world-laughter-excavating-the-best-metaverse-jokes/"><u>2024 Approved Virtual World Laughter Excavating the Best Metaverse Jokes</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/are-affordable-ssl-options-valid-choices/"><u>Are Affordable SSL Options Valid Choices?</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/boost-engagement-the-art-of-adding-borders-on-insta-for-2024/"><u>Boost Engagement The Art of Adding Borders on Insta for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/how-to-optimize-your-instagram-stories-for-engagement/"><u>How to Optimize Your Instagram Stories for Engagement</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-unbrick-a-dead-xiaomi-redmi-note-13-proplus-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Unbrick a Dead Xiaomi Redmi Note 13 Pro+ 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-that.techidaily.com/step-by-step-guide-repairing-the-dark-screen-glitch-on-iphones/"><u>Step-by-Step Guide: Repairing the Dark Screen Glitch on iPhones</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/the-power-of-niche-hashtags-for-targeted-instagram-reach/"><u>The Power of Niche Hashtags for Targeted Instagram Reach</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-enhancing-slideshow-impact-with-webcam-integration/"><u>[New] In 2024, Enhancing Slideshow Impact with Webcam Integration</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-mastering-iphone-ringtone-updates/"><u>[Updated] 2024 Approved Mastering iPhone Ringtone Updates</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-instagram-film-techniques-flawless-virtual-backdrops-integration-for-2024/"><u>[Updated] Instagram Film Techniques Flawless Virtual Backdrops Integration for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-understanding-your-youtube-revenue-adsense-rates-per-1k-viewer/"><u>[Updated] Understanding Your YouTube Revenue AdSense Rates Per 1K Viewer</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-use-google-assistant-on-your-lock-screen-of-tecno-camon-20-pro-5g-phone-by-drfone-android/"><u>In 2024, How to Use Google Assistant on Your Lock Screen Of Tecno Camon 20 Pro 5G Phone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-instagram-reels-unlocking-the-ninja-mindset/"><u>In 2024, Instagram Reels Unlocking the Ninja Mindset</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-mastering-privacy-stopping-followers-on-ig/"><u>In 2024, Mastering Privacy Stopping Followers on IG</u></a></li>
+<li><a href="https://techtrends.techidaily.com/navigating-a-booking-with-apple-support-the-genius-bar-experience/"><u>Navigating a Booking with Apple Support - The Genius Bar Experience</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/quick-and-free-method-to-spot-fibs-on-your-insta-circle-for-2024/"><u>Quick & Free Method to Spot Fibs on Your Insta Circle for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/reel-into-reality-how-boomers-keep-ig-audiene-hooked-for-2024/"><u>Reel Into Reality How Boomers Keep IG Audiene Hooked for 2024</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/the-ultimate-guide-to-parental-supervision-routers-of-the-year-2024/"><u>The Ultimate Guide to Parental Supervision Routers of the Year 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/the-zoomers-guide-to-instagram-story-clarity-for-2024/"><u>The Zoomer’s Guide to Instagram Story Clarity for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-your-nokia-c12-plus-auto-does-not-work-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do if Your Nokia C12 Plus Auto Does Not Work | Dr.fone</u></a></li>
 </ul></div>
 
