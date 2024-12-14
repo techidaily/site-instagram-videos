@@ -1,7 +1,7 @@
 ---
 title: Day One Patches Brings Optimized Experience to 'Days Gone' On PC
-date: 2024-12-04T16:14:34.129Z
-updated: 2024-12-08T16:15:51.590Z
+date: 2024-12-07T16:41:34.193Z
+updated: 2024-12-14T16:06:06.539Z
 tags:
   - win11
   - win10
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/e849b3433ae861a98a41e422ed19bb8502406c236
 
 Battlefield 2042 is one of the most awaited games. Now players can dive into the thrilling gameplay. However, some performance issues such as**insane stutters and crazy FPS drops** just ruin the gaming experience. For some players, the mouse input lag caused stutters and FPS drops. If you’re on the same boat, don’t worry. We’ve put together some fixes.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Try these fixes
 
  You may not need to try them all; simply work your way down the list until you find the one that works for you.
@@ -30,14 +34,6 @@ Battlefield 2042 is one of the most awaited games. Now players can dive into the
 
 ![how to fix Battlefield 2042 stuttering and FPS drops](https://images.drivereasy.com/wp-content/uploads/2021/10/2042-1200x675.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. Enable game mode
 
  If you have the latest Windows version, you should enable the Game Mode. Windows game mode is a feature that is designed to optimize Windows 10 for gaming. It can deactivate background activities to help you boost in-game FPS. To enable this feature, follow the instructions below.
@@ -48,13 +44,17 @@ Battlefield 2042 is one of the most awaited games. Now players can dive into the
 ![](https://images.drivereasy.com/wp-content/uploads/2021/08/gaming.png)
 3. Select **Game Mode**  from the left panel. Then toggle **On**  Game Mode.  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2021/08/turn-on-game-mode.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Now launch Battlefield 2042\. If your game still stutters a lot or it’s showing pretty low FPS, try the next fix below.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. Disable overlays
 
@@ -70,6 +70,10 @@ Below are a few common overlays and how to disable them.
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/7-2-1-1.jpg)
 3. Select the **Game Overlay** on the navigation bar and switch **Enable in-game overlay** .  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2021/09/discord-overlay.png)
 
 #### Twitch
@@ -78,10 +82,6 @@ Below are a few common overlays and how to disable them.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/10/Twitch-settings.png)
 2. Click on**In-Game Overlay** on the left hand side of the screen. Then click the toggle**off** the In-Game Overlay.  
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/10/Twitch-in-game-overlay.png)
 
@@ -96,7 +96,7 @@ Below are a few common overlays and how to disable them.
  There are mainly two ways you can update your graphics driver:[manually](https://tools.techidaily.com/drivereasy/download/) and **[automatically](https://tools.techidaily.com/drivereasy/download/)**  .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Option 1 – Manually update your graphics driver
@@ -119,9 +119,17 @@ Below are a few common overlays and how to disable them.
 ![](https://images.drivereasy.com/wp-content/uploads/2021/08/scan-now-v5_7_0.jpg)
 3. Click **Update All** . Driver Easy will then download and update all your outdated and missing device drivers, giving you the latest version of each, direct from the device manufacturer.  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  which comes with full support and a 30-day money-back guarantee. You’ll be prompted to upgrade when you click Update All. If you don’t want to upgrade to the Pro version, you can also update your drivers with the FREE version. All you need to do is to download them one at a time and manually install them.  
 
 ![Download & Update NVIDIA GeForce RTX 3080 Ti driver](https://images.drivereasy.com/wp-content/uploads/2021/06/Download-Update-NVIDIA-GeForce-RTX-3080-Ti-driver.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **The Pro version of Driver Easy** comes with _full technical support_ . If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
 
@@ -139,10 +147,6 @@ Below are a few common overlays and how to disable them.
 ![](https://images.drivereasy.com/wp-content/uploads/2021/07/graphics-settings-1.jpg)
 3. Toggle**On** Hardware-accelerated GPU scheduling.  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![enable hardware-acceleration GPU scheduling](https://images.drivereasy.com/wp-content/uploads/2021/08/turn-on-hardware-accelerated-GPU-scheduling.png)
 4. Also make sure you’ve selected**Desktop app** . Then click on the**Browse** button.  
 
@@ -155,25 +159,13 @@ Below are a few common overlays and how to disable them.
 ![](https://images.drivereasy.com/wp-content/uploads/2021/10/options-button.png)
 7. Select**High Performance** .  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2021/10/high-performance.png)
 
  Tips: If you’re not sure how to locate your game’s installation folder, head to Steam. Under LIBRARY, right-click your game title and select**Manage > Browse local files** .  
   
 ![](https://images.drivereasy.com/wp-content/uploads/2021/10/browse-local-file.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  After this, restart your computer to make sure it’s applied. Then test your gameplay. If disabling hardware-accelerated GPU scheduling doesn’t make any difference, proceed to the next fix.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 5\. Delete the cache for the game
 
@@ -183,6 +175,10 @@ Below are a few common overlays and how to disable them.
 2. Open the**Cache** folder. Press**Ctrl + A** keys simultaneously to select all the files. Then right-click and select Delete to delete all the files.  
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/10/delete-cache.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 If this doesn’t do the trick, try the next fix below.
 
@@ -194,6 +190,10 @@ If this doesn’t do the trick, try the next fix below.
 * Vertical sync:**OFF**
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/10/disable-vertical-sync-and-future-frame-rendering.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  After applying the changes, relaunch your game and you should be able to gain a better performance without noticeable FPS drops and stutters.
 
@@ -216,22 +216,18 @@ If this doesn’t do the trick, try the next fix below.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-how-to-download-igtv-videos-on-iphone-and-android-5-ways/"><u>[New] How to Download IGTV Videos on iPhone & Android [5 Ways]</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-instagram-video-frustrations-find-solutions-now/"><u>[New] In 2024, Instagram Video Frustrations? Find Solutions Now</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-optimizing-engagement-on-instagram-with-youtube-story-features/"><u>[New] In 2024, Optimizing Engagement on Instagram with YouTube Story Features</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-iphotovidsyncer-seamless-imageplusvideo-playback/"><u>[New] IPhotoVidSyncer Seamless Image+Video Playback</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-melodies-for-millions-insta-music-secrets-for-2024/"><u>[New] Melodies for Millions Insta Music Secrets for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-storystitcher-compelling-collage-for-instagram-users/"><u>[New] StoryStitcher Compelling Collage for Instagram Users</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-expert-strategies-for-effective-instagram-video-interactions/"><u>[Updated] 2024 Approved Expert Strategies for Effective Instagram Video Interactions</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-25-groundbreaking-metaverse-initiatives-for-comprehension/"><u>[Updated] 25 Groundbreaking Metaverse Initiatives for Comprehension</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-rethinking-content-strategy-with-instagrams-new-order/"><u>[Updated] In 2024, Rethinking Content Strategy with Instagram's New Order</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/clear-path-for-your-instagram-videos-now/"><u>Clear Path for Your Instagram Videos Now</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/elevate-your-gameplay-with-sony-pulse-explore-top-tier-wireless-gaming-headphones-reviewed/"><u>Elevate Your Gameplay with Sony Pulse Explore: Top-Tier Wireless Gaming Headphones Reviewed</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/enhancing-exposure-do-buy-views-accelerate-channel-growth-for-2024/"><u>Enhancing Exposure Do Buy Views Accelerate Channel Growth for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/how-to-fix-microsoft-compatibility-telemetry-excessive-storage-use-in-windows-10/"><u>How to Fix Microsoft Compatibility Telemetry Excessive Storage Use in Windows 10</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/in-2024-the-art-of-keeping-tiktok-content-safe-on-devices/"><u>In 2024, The Art of Keeping TikTok Content Safe on Devices</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-the-complete-guide-to-mastering-polarrs-image-precision/"><u>In 2024, The Complete Guide to Mastering Polarr's Image Precision</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/prime-video-streamers-camera-picks-for-quality-content-for-2024/"><u>Prime Video Streamers' Camera Picks for Quality Content for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/ultimate-compact-hub-for-your-macbook-air-a-lighter-way-to-connect-zdnet/"><u>Ultimate Compact Hub for Your MacBook Air - A Lighter Way to Connect (ZDNet)</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-nailing-the-technique-for-snapchat-screen-time-lapses/"><u>[New] 2024 Approved Nailing the Technique for Snapchat Screen Time-Lapses</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-social-media-magic-techniques-to-share-your-computer-screen-online/"><u>[New] 2024 Approved Social Media Magic Techniques to Share Your Computer Screen Online</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-streamline-your-content-with-these-4-instagram-looping-hacks/"><u>[New] In 2024, Streamline Your Content with These 4 Instagram Looping Hacks</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-boosting-instagram-video-speed-onlinemobile/"><u>[Updated] 2024 Approved Boosting Instagram Video Speed Online/Mobile</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-becoming-a-pro-at-using-igtv-for-business-and-personal-growth/"><u>[Updated] Becoming a Pro at Using IGTV for Business and Personal Growth</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-best-bike-racing-games-that-you-should-play-for-2024/"><u>[Updated] Best Bike Racing Games That You Should Play for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-from-zero-to-million-in-minutes-rapidly-rise-as-an-instagram-influencer-with-these-top-tips/"><u>[Updated] From Zero to Million in Minutes Rapidly Rise as an Instagram Influencer with These Top Tips</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/1716184097735-updated-in-2024-how-to-use-the-instagram-green-screen-effect/"><u>[Updated] In 2024, How to Use the Instagram Green Screen Effect</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-the-instagram-strategists-toolkit-understanding-metrics-trends-and-user-insights/"><u>[Updated] In 2024, The Instagram Strategist’s Toolkit Understanding Metrics, Trends & User Insights</u></a></li>
+<li><a href="https://discover-community.techidaily.com/convertir-rapidement-une-image-iso-en-mp4-en-moins-de-5-minutes-guide-simple/"><u>Convertir Rapidement Une Image ISO en MP4 en Moins De 5 Minutes - Guide Simple</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-guide-to-mirror-your-itel-a70-to-other-android-devices-drfone-by-drfone-android/"><u>In 2024, Guide to Mirror Your Itel A70 to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-map-masters-reveal-top-five-for-gold-collection/"><u>In 2024, Map Masters Reveal Top Five For Gold Collection</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/instagram-mastery-in-recreating-visual-stories/"><u>Instagram Mastery in Recreating Visual Stories</u></a></li>
 </ul></div>
 

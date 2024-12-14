@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Final Cut Pro X  The Ultimate Guide for Vertical Video Posts\""
-date: 2024-12-03T16:00:53.669Z
-updated: 2024-12-08T16:08:58.615Z
+date: 2024-12-10T16:57:22.859Z
+updated: 2024-12-14T16:07:09.897Z
 tags:
   - ai video
   - ai instagram
@@ -36,7 +36,7 @@ You may also like: [How to Get 90-day Free Trial of FCPX](https://tools.techidai
 ![Instagram-video](https://images.wondershare.com/filmora/images/final-cut-pro/Instagram-video.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: Introduction to Vertical Videos for Instagram
@@ -53,10 +53,6 @@ Before entering the nitty-gritty on how to edit vertical videos with FCPX, you s
 | **Video length**                 | Minimum: 15 seconds Maximum: 60 minutes                  |
 | **Video codecs supported**       | VP8                                                      |
 | **Audio codecs supported**       | 128 kbps, Vorbis                                         |
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: How to Edit and Export Vertical Videos for Instagram in Final Cut Pro X?
 
@@ -97,11 +93,11 @@ Too many steps? Then try a **beginner-friendly editing tool**, Filmora!
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: Tips on Editing Vertical Videos for Instagram
@@ -121,7 +117,7 @@ Is the video already shot horizontally on your camera or smartphone? No worries,
 Vertical video is a great option to showcase wide and tall subjects where you can place close-ups and show off details to get up close and personal. It could be a product or fabric. You can showcase enticing minor elements that attract an audience in such landscape shots.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -129,6 +125,10 @@ Vertical video is a great option to showcase wide and tall subjects where you ca
 Hence, I am sure you found new tactics to create vertical videos for Instagram. Therefore, put them into practice the next time you make your vertical video for a story or IGTV. Is your video shot or recorded horizontal by mistake? No more worry, as you can edit vertical video for Instagram in the Final Cut Pro. Finally, with a complete guide on how to edit vertical videos with FCPX, our blog for the day is over.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -145,17 +145,18 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-the-veiled-side-of-instagram-stories-what-youre-not-seeing/"><u>[New] The Veiled Side of Instagram Stories What You're Not Seeing</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-top-instagram-hidden-tips-and-tricks/"><u>[New] Top Instagram Hidden Tips and Tricks</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-a-melodic-guide-navigating-copyright-with-instagram/"><u>[Updated] A Melodic Guide Navigating Copyright with Instagram</u></a></li>
-<li><a href="https://common-error.techidaily.com/effective-fixes-for-when-your-windows-10-system-crashes/"><u>Effective Fixes for When Your Windows 10 System Crashes</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-exit-recovery-mode-on-iphone-13-pro-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Exit Recovery Mode on iPhone 13 Pro? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-realme-c53-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Realme C53 | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-oppo-find-x7-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your Oppo Find X7 Is Unlocked</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/perfecting-slow-motion-cinematography-for-social-media-engagement-on-instagram-for-2024/"><u>Perfecting Slow Motion Cinematography for Social Media Engagement on Instagram for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/quick-guide-sharing-multiple-images-and-movies-on-instagram/"><u>Quick Guide Sharing Multiple Images & Movies on Instagram</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/the-ultimate-guide-to-vivo-y100a-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>The Ultimate Guide to Vivo Y100A Pattern Lock Screen Everything You Need to Know</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-tier-examination-pathways-for-elite-language-professionals/"><u>Top-Tier Examination Pathways for Elite Language Professionals</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/unlock-sony-xperia-10-v-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>Unlock Sony Xperia 10 V Phone Password Without Factory Reset Full Guide Here</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-navigating-free-floating-vr-without-nausea/"><u>[New] Navigating Free-Floating VR without Nausea</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-the-ultimate-guide-to-instagram-video-descriptions/"><u>[New] The Ultimate Guide to Instagram Video Descriptions</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-top-tier-drones-for-sale-today/"><u>[Updated] 2024 Approved Top-Tier Drones for Sale Today</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-hastyhit-freezevidsnapshot/"><u>[Updated] HastyHit FreezeVidSnapshot</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-behind-the-scenes-top-storytelling-channels-on-yt-2023/"><u>2024 Approved Behind-the-Scenes Top Storytelling Channels on YT, 2023</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/enhancing-your-youtube-content-basic-premiere-pro-edits/"><u>Enhancing Your YouTube Content Basic Premiere Pro Edits</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/hands-on-crafting-unique-movie-closures-for-pennies/"><u>Hands-On Crafting Unique Movie Closures for Pennies</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-solutions-to-spy-on-samsung-galaxy-s23-ultra-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>In 2024, Solutions to Spy on Samsung Galaxy S23 Ultra with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-triumph-over-triviality-amass-a-million-ish-followers-on-ig/"><u>In 2024, Triumph Over Triviality Amass a Million-Ish Followers on IG</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/insta-gone-locating-the-disappeared-fans-for-2024/"><u>Insta Gone? Locating the Disappeared Fans for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/instas-tunes-ownership-and-legalities-for-2024/"><u>Insta's Tunes Ownership & Legalities for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/instagrams-peak-performance-with-these-top-8-planning-tools-for-2024/"><u>Instagram's Peak Performance with These Top 8 Planning Tools for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/rectifying-problematic-chrome-file-uploaddownload-on-windows/"><u>Rectifying Problematic Chrome File Upload/Download on Windows</u></a></li>
 </ul></div>
 

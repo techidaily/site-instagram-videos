@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Tall Tales Reimagined  Edits for VT Videos on FCPX\""
-date: 2024-10-27T20:13:08.612Z
-updated: 2024-11-03T04:31:29.418Z
+date: 2024-12-07T17:23:33.417Z
+updated: 2024-12-14T17:13:54.198Z
 tags:
   - ai video
   - ai instagram
@@ -35,6 +35,10 @@ You may also like: [How to Get 90-day Free Trial of FCPX](https://tools.techidai
 
 ![Instagram-video](https://images.wondershare.com/filmora/images/final-cut-pro/Instagram-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Introduction to Vertical Videos for Instagram
 
 Before entering the nitty-gritty on how to edit vertical videos with FCPX, you should first know certain specifications regarding vertical videos for Instagram. Yes, when it comes to Instagram IGTV videos or stories, vertical or portrait orientated videos are preferable. Thus, knowing the below technical specs can help you.
@@ -51,10 +55,7 @@ Before entering the nitty-gritty on how to edit vertical videos with FCPX, you s
 | **Audio codecs supported**       | 128 kbps, Vorbis                                         |
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to Edit and Export Vertical Videos for Instagram in Final Cut Pro X?
@@ -96,17 +97,7 @@ Too many steps? Then try a **beginner-friendly editing tool**, Filmora!
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068432/7443" target="_top" id="2068432">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068432" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068432/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: Tips on Editing Vertical Videos for Instagram
@@ -126,10 +117,7 @@ Is the video already shot horizontally on your camera or smartphone? No worries,
 Vertical video is a great option to showcase wide and tall subjects where you can place close-ups and show off details to get up close and personal. It could be a product or fabric. You can showcase enticing minor elements that attract an audience in such landscape shots.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -137,6 +125,10 @@ Vertical video is a great option to showcase wide and tall subjects where you ca
 Hence, I am sure you found new tactics to create vertical videos for Instagram. Therefore, put them into practice the next time you make your vertical video for a story or IGTV. Is your video shot or recorded horizontal by mistake? No more worry, as you can edit vertical video for Instagram in the Final Cut Pro. Finally, with a complete guide on how to edit vertical videos with FCPX, our blog for the day is over.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -153,14 +145,17 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-from-still-screens-to-mp3-beats-insta-video-tips/"><u>[New] In 2024, From Still Screens to MP3 Beats - Insta Video Tips</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-capture-clarity-top-10-photo-lens-selections/"><u>[Updated] 2024 Approved Capture Clarity Top 10 Photo Lens Selections</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-renowned-crafters-exquisite-instagram-hlv-designers-online/"><u>[Updated] Renowned Crafters Exquisite Instagram HLV Designers Online</u></a></li>
-<li><a href="https://program-issues.techidaily.com/beat-the-challenge-of-error-code-103003-in-your-arma-tarkov-gameplay/"><u>Beat the Challenge of Error Code 103003 in Your ARMA Tarkov Gameplay</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/1722978559855-download-nvidia-geforce-gtx-980-ti-drivers-latest-version/"><u>Download Nvidia GeForce GTX 980 Ti Drivers - Latest Version</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/instagram-who-unfollowed-you-quick-guide/"><u>Instagram Who Unfollowed You? Quick Guide</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/list-of-pokemon-go-joysticks-on-motorola-moto-g84-5g-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Motorola Moto G84 5G | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/mastering-instagram-stories-step-by-step-recording-guide/"><u>Mastering Instagram Stories Step-by-Step Recording Guide</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/unlocking-hidden-potential-of-instagrams-question-marker-for-2024/"><u>Unlocking Hidden Potential of Instagram’s Question Marker for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-privacy-focused-tools-for-unseen-story-watching/"><u>[New] 2024 Approved Privacy-Focused Tools for Unseen Story Watching</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-streamlined-social-media-management-our-picks-of-the-best-8-planners/"><u>[New] 2024 Approved Streamlined Social Media Management Our Picks of the Best 8 Planners</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-a-guide-to-gauging-igtv-video-impressions-for-2024/"><u>[New] A Guide to Gauging IGTV Video Impressions for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-cameras-that-complement-best-hats-for-capturing-motorcycle-adventures-for-2024/"><u>[Updated] Cameras That Complement Best Hats for Capturing Motorcycle Adventures for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-seamless-addition-youtube-videos-into-google-slides/"><u>[Updated] Seamless Addition YouTube Videos Into Google Slides</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-mastering-instagram-rising-video-view-counts/"><u>2024 Approved Mastering Instagram Rising Video View Counts</u></a></li>
+<li><a href="https://extra-information.techidaily.com/ease-into-listening-apple-podcasts-on-your-device/"><u>Ease Into Listening Apple Podcasts on Your Device</u></a></li>
+<li><a href="https://win-wonderful.techidaily.com/how-to-create-physical-music-compilations-from-spotify-playlists-with-ease-burning-songs-to-cds/"><u>How To Create Physical Music Compilations From Spotify Playlists with Ease - Burning Songs to CDs</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-elevate-your-creativity-6-aplus-apps-for-instagram-reels/"><u>In 2024, Elevate Your Creativity 6 A+ Apps for Instagram Reels</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-vivo-v29-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Vivo V29? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/pokemon-go-cooldown-chart-on-samsung-galaxy-m14-4g-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Samsung Galaxy M14 4G | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-itel-s23plus-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Itel S23+ Location | Dr.fone</u></a></li>
 </ul></div>
 

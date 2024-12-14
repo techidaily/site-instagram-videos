@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, PictureProfessional  Expert Guide to Adjusting IG Content Sizes\""
-date: 2024-10-28T20:34:41.452Z
-updated: 2024-11-03T01:23:02.531Z
+date: 2024-12-08T16:06:20.187Z
+updated: 2024-12-14T16:32:17.997Z
 tags:
   - ai video
   - ai instagram
@@ -29,6 +29,10 @@ Taking photos with iPhones and Android Smartphones and posting them to Instagram
 
 Troubles begin when you want to upload photos and videos that weren't captured with a Smartphone to Instagram. In most cases, the photos and videos produced by DSLR cameras and other semi-professional and professional equipment are much larger than the sizes supported by Instagram. That is the reason why we created this guide that will help you post visual content that is perfectly adjusted to Instagram in 2021.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Types of Files Accepted by Instagram
 
 The first thing you need to pay attention to when uploading images and videos to Instagram is that the files you are uploading are in one of the photo or video formats that Instagram supports.
@@ -46,10 +50,7 @@ Duration of Videos on Instagram
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Best Image Sizes for Instagram Posts
@@ -61,10 +62,7 @@ A couple of years ago, Instagram has finally allowed its users to upload images 
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
@@ -92,10 +90,7 @@ The profile pictures on Instagram are tiny, and the optimum size for them is 160
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -113,18 +108,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-disabling-igtv-on-instagram/"><u>[New] 2024 Approved Disabling IGTV on Instagram</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-easy-replay-on-iphone-set-videos-cycling/"><u>[New] 2024 Approved Easy Replay on iPhone Set Videos Cycling</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-audio-alchemy-transforming-instagram-videos-with-sound/"><u>[Updated] Audio Alchemy Transforming Instagram Videos with Sound</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-from-passive-to-active-earnings-with-instagram-expertise-for-2024/"><u>[Updated] From Passive to Active Earnings with Instagram Expertise for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-maximizing-media-iphoneipad-download-youtube-videos-step-by-step/"><u>[Updated] Maximizing Media IPhone/iPad - Download Youtube Videos Step-by-Step</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/best-source-to-find-and-download-nvidias-quadro-drivers-specifically-for-windows-11/"><u>Best Source to Find and Download Nvidia's Quadro Drivers Specifically for Windows 11</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/bypassing-edge-academy-video-free-study-strategies-for-2024/"><u>Bypassing EDGE Academy Video-Free Study Strategies for 2024</u></a></li>
-<li><a href="https://driver-error.techidaily.com/dma-engine-stability-after-kernel-update/"><u>DMA Engine Stability After Kernel Update</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/efficient-strategies-to-log-facetime-discussions/"><u>Efficient Strategies to Log FaceTime Discussions</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-track-imei-number-of-oppo-a1x-5g-through-google-earth-by-drfone-android/"><u>How To Track IMEI Number Of Oppo A1x 5G Through Google Earth?</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/leveraging-url-posts-for-maximum-impact-on-insta-storypost/"><u>Leveraging URL Posts for Maximum Impact on Insta Story/Post</u></a></li>
-<li><a href="https://windows11.techidaily.com/stay-ahead-of-the-game-with-w11-pro-special-deals/"><u>Stay Ahead of the Game with W11 Pro Special Deals</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/step-by-step-guide-extracting-subtitles-from-dvds-using-both-windows-and-macos/"><u>Step-by-Step Guide: Extracting Subtitles From DVDs Using Both Windows & macOS</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-instagram-tv-essentials-step-by-step-upload-guide/"><u>[New] 2024 Approved Instagram TV Essentials Step-by-Step Upload Guide</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-enhanced-4k-viewing-with-our-best-8-free-player-picks/"><u>[New] In 2024, Enhanced 4K Viewing with Our Best 8 Free Player Picks</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-journey-to-seamless-entertainment-free-for-both-pcmacos/"><u>[New] In 2024, Journey to Seamless Entertainment, Free for Both PC/MacOS</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-sculpt-satirical-scenes-with-giphy/"><u>[Updated] In 2024, Sculpt Satirical Scenes with Giphy</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-enhancing-engagement-on-igtv-with-well-oriented-videos/"><u>2024 Approved Enhancing Engagement on IGTV with Well-Oriented Videos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-master-the-art-of-audible-social-media-posts-without/"><u>2024 Approved Master the Art of Audible Social Media Posts (Without)</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-photography-elite-line-up-best-6-4k-dslr-options-reviewed/"><u>2024 Approved Photography Elite Line-Up Best 6 4K DSLR Options Reviewed</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/amd-rx-6700-xt-windows-11107-drivers-get-your-downloads-here/"><u>AMD RX ‌6700 XT Windows 11/10/7 Drivers: Get Your Downloads Here</u></a></li>
+<li><a href="https://win-web3.techidaily.com/best-computer-systems-for-djs-and-video-mix-engineers-a-comprehensive-guide-to-optimal-performance/"><u>Best Computer Systems for DJs & Video Mix Engineers: A Comprehensive Guide to Optimal Performance</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/decoding-and-manipulating-gender-presentation-online-a-step-by-step-approach-for-2024/"><u>Decoding and Manipulating Gender Presentation Online A Step-by-Step Approach for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/elevate-your-instagram-game-scouting-the-8-top-post-schedulers/"><u>Elevate Your Instagram Game Scouting the 8 Top Post Schedulers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/scripts-to-screens-your-ultimate-youtube-production-plan-for-2024/"><u>From Scripts to Screens Your Ultimate YouTube Production Plan for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-a-comprehensive-guide-to-instagrams-music-copyright-rules/"><u>In 2024, A Comprehensive Guide to Instagram's Music Copyright Rules</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-capture-and-captivate-creating-incredible-slow-motion-video-masterpieces-on-instagram/"><u>In 2024, Capture and Captivate Creating Incredible Slow-Motion Video Masterpieces on Instagram</u></a></li>
+<li><a href="https://win-ratings.techidaily.com/repair-steps-restoring-the-partition-table-on-windows-os-versions-7-8-10-and-11/"><u>Repair Steps: Restoring the Partition Table on Windows OS (Versions 7, 8, 10 & 11)</u></a></li>
+<li><a href="https://win-exceptional.techidaily.com/trasforma-video-vob-in-formato-m4v-on-demand-e-gratuito-utilizzando-movavi/"><u>Trasforma Video VOB in Formato M4V On-Demand E Gratuito Utilizzando Movavi</u></a></li>
 </ul></div>
 

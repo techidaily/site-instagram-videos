@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Optimal Video Sizes on Instagram Explained"
-date: 2024-12-04T16:09:45.368Z
-updated: 2024-12-08T16:08:50.270Z
+date: 2024-12-10T16:14:03.852Z
+updated: 2024-12-14T16:08:50.059Z
 tags:
   - ai video
   - ai instagram
@@ -40,6 +40,10 @@ Because you want many people to watch the video, comment or like your story, thi
 
 You may also like: [Creative Video Marketing Ideas for Business](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Why Instagram Post Size Matters?
 
 Knowing Instagram’ supported file formats, sizes, resolutions and frame rates helps maintain the original quality of your videos and images. If you upload large images, Instagram will crop them while publishing small images will make them be enlarged.
@@ -58,6 +62,10 @@ Before getting into the nitty-gritty of this article, it is prudent to understan
 
 Since you can now interpret video dimensions and photo sizes like a pro, do you know the recommended video dimensions for Instagram for each format?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Best Instagram Video Dimensions Specifications for a Post
 
 Even though MP4 is the only supported Instagram video format, you can set the videos different orientations and forms. The main orientations are square, landscape (horizontal) and Portrait (vertical).
@@ -71,7 +79,7 @@ Other than just uploading ordinary videos and sharing photos, you can also **tel
 To realize the real importance of Instagram, start using the **video ads feature** , uploading **IGTV videos**  and **streaming live videos** . As you explore all these features, remember to use the specified Max Instagram video dimensions in this article.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### #1 - Instagram Video Dimensions And Sizes
@@ -81,10 +89,6 @@ To optimize these Instagram video orientations, here are the dimensional specifi
 #### Instagram Square Videos
 
 ![best video dimensions for instagram](https://images.wondershare.com/filmora/instagram-square-videos.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Since the launch of Instagram video sharing feature, square videos are the most successful orientation. To occupy a larger space to attract more attention, we recommend square videos. Use the following Instagram square video dimensions to produce high-quality videos.
 
@@ -97,10 +101,6 @@ Since the launch of Instagram video sharing feature, square videos are the most 
 
 ![instagram video format](https://images.wondershare.com/filmora/instagram-horizontal-videos.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Even though recording Instagram videos in a landscape form is a lot much easier, the majority of Instagram enthusiasts despise. It is the least used orientation mostly because it occupies a small space and the quality appears distorted.
 
 To recorded landscape videos, set the dimensions in the aspect ratio of 16:9 or 1.91:1\. In a situation where shooting videos in the landscape is necessary, we recommend the 16:9 Instagram size ratio. The maximum dimensions should be set at 1080px by 607px, which is the set cinematic standard.
@@ -110,7 +110,7 @@ To recorded landscape videos, set the dimensions in the aspect ratio of 16:9 or 
 ![instagram vertical video dimensions](https://images.wondershare.com/filmora/instagram-vertical-videos.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Vertical videos differ from square videos by very small margins. For your portrait videos to attract many viewers, ensure it is of the highest quality and has an aspect ratio of 4:5\. This ratio has to coincide with a 1080px by 1350px dimension.
@@ -217,6 +217,10 @@ You are permitted to upload photos with a high aspect ratio as 16:9\. However, t
 
 If you want to upload horizontal photos and maintain their original quality, the right Instagram image size is 1080px by 608px.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Well Prepare Your Instagram Videos and Photos with the Best Editing Software
 
 The best method to publish high-quality Instagram videos and photos is to edit them before publishing.
@@ -232,16 +236,12 @@ It's free to use and click the below link to download now.
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Since you will probably use a mobile phone for Instagram than a computer, download the free mobile video editor – **[Filmora](https://tools.techidaily.com/wondershare/filmora/download/).** There is every effect, transition, filters, texts, and themes to make your Instagram live videos and photos cinematic.
 
 **You may also like:** [How to Post/Share a Video From YouTube on Instagram >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -268,22 +268,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-global-audiences-local-stories-crafting-engaging-instagramcaptions/"><u>[New] 2024 Approved Global Audiences, Local Stories - Crafting Engaging #InstagramCaptions</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-unlock-potential-innovating-with-effective-instagram-video-loops/"><u>[New] 2024 Approved Unlock Potential Innovating with Effective Instagram Video Loops</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/arn-big-on-youtube-strategies-for-successful-creators-for-2024/"><u>[New] Earn Big on YouTube Strategies for Successful Creators for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-10-most-advanced-hashtag-monitors-on-social-media-sites-fbtweetinsta-for-2024/"><u>[Updated] 10 Most Advanced Hashtag Monitors on Social Media Sites (FB/Tweet/Insta) for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-conquering-social-media-with-ig-videos-planning-an-optimal-strategy/"><u>[Updated] 2024 Approved Conquering Social Media with IG Videos Planning an Optimal Strategy</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-bridge-the-gap-between-viewers-and-wide-angles-posting-on-facebook-for-2024/"><u>[Updated] Bridge the Gap Between Viewers and Wide Angles Posting on Facebook for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-flip-the-script-instagrams-video-trick/"><u>[Updated] Flip the Script Instagram's Video Trick</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-iphoneandroid-choose-great-focus-shots/"><u>[Updated] IPhone/Android Choose Great Focus Shots</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-mastering-slow-motion-instagram-a-reel-guide-for-2024/"><u>[Updated] Mastering Slow-Motion Instagram A Reel Guide for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-stepwise-tutorial-adding-professional-edges-to-ig-content/"><u>[Updated] Stepwise Tutorial Adding Professional Edges to IG Content</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-create-the-loop-instagrams-boomerang-mastery/"><u>2024 Approved Create the Loop Instagram's Boomerang Mastery</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-photo-and-video-flair-the-art-of-distorted-messages/"><u>2024 Approved Photo & Video Flair The Art of Distorted Messages</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/3-steps-for-perfect-instagram-video-margins-for-2024/"><u>3 Steps for Perfect Instagram Video Margins for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-apple-iphone-14-plus-to-ipad-drfone-by-drfone-ios/"><u>How to Mirror Apple iPhone 14 Plus to iPad? | Dr.fone</u></a></li>
-<li><a href="https://fox-access.techidaily.com/in-2024-leading-meaningful-conversations-an-interviewers-journey/"><u>In 2024, Leading Meaningful Conversations An Interviewer's Journey</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-cartoonize-your-videos-the-ultimate-conversion-tutorial-for-2024/"><u>Updated Cartoonize Your Videos The Ultimate Conversion Tutorial for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/xsplits-prowess-in-streaming-the-obs-counterargument/"><u>XSplit's Prowess in Streaming? The OBS Counterargument</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-the-artisans-guide-to-zen-like-zoom-backgrounds/"><u>[New] 2024 Approved The Artisan's Guide to Zen-Like Zoom Backgrounds</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-mastering-privacy-stopping-followers-on-ig/"><u>[New] In 2024, Mastering Privacy Stopping Followers on IG</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-the-functionality-of-instagram-story-features/"><u>[Updated] 2024 Approved The Functionality of Instagram Story Features</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-dominate-igtv-with-follower-growth-essential-techniques-reviewed/"><u>[Updated] In 2024, Dominate IGTV With Follower Growth Essential Techniques Reviewed</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-insightful-pricing-comparison-for-cloud-platforms/"><u>[Updated] In 2024, Insightful Pricing Comparison for Cloud Platforms</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-brilliance-in-4k-comprehensive-guide-to-the-lg-um7e9-thin-q-led-smart-tv/"><u>Budget-Friendly Brilliance in 4K: Comprehensive Guide to the LG UM7e9 Thin Q LED Smart TV</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/constructing-unique-instagram-story-panels-for-2024/"><u>Constructing Unique Instagram Story Panels for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/crafting-beautiful-image-arrangements-with-iphone/"><u>Crafting Beautiful Image Arrangements with iPhone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/essential-mario-bros-saga-a-guide-to-the-top-1220-best-pc-editions-you-must-play/"><u>Essential Mario Bros Saga: A Guide to the Top 12/20 Best PC Editions You Must Play</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/greatest-war-themed-games-the-7-finest-total-war-experiences/"><u>Greatest War-Themed Games The 7 Finest Total War Experiences</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-honor-100-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Honor 100? | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/instagram-and-youtube-synergy-sharing-video-links-in-stories-for-2024/"><u>Instagram and YouTube Synergy Sharing Video Links in Stories for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/minds-on-trial-best-general-knowledge-channels/"><u>Minds on Trial Best General Knowledge Channels</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sensible-spending-on-pet-cameras/"><u>Sensible Spending on Pet Cameras</u></a></li>
 </ul></div>
 

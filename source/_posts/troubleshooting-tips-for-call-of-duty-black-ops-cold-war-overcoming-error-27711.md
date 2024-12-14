@@ -1,7 +1,7 @@
 ---
 title: "Troubleshooting Tips for Call of Duty: Black Ops Cold War - Overcoming Error 27711"
-date: 2024-12-02T16:09:25.039Z
-updated: 2024-12-08T16:03:26.481Z
+date: 2024-12-07T16:52:00.146Z
+updated: 2024-12-14T17:02:41.415Z
 tags:
   - win11
   - win10
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/92459487433dd8191ecb6f79f9b025b7d93038fc1
 
 In the past couple days, many Cold War gamers are reporting a**UI error 27711** , a glitch that usually occurs during game loading. But fret not if you’re seeing this error. Below we’ve gathered some easy fixes for you, try them and get your game working right away.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Try these fixes
 
  You might not need to try all of them. Simply work your way down until you find the one that scores.
@@ -27,7 +31,7 @@ In the past couple days, many Cold War gamers are reporting a**UI error 27711** 
 4. **[Install all Windows updates](https://tools.techidaily.com/drivereasy/download/)**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Fix 1: Restart your PC
@@ -35,10 +39,6 @@ In the past couple days, many Cold War gamers are reporting a**UI error 27711** 
  Some gamers on[Reddit](https://www.reddit.com/r/blackopscoldwar/comments/kia139/get%5Fui%5Ferror%5F27711%5Fand%5Falso%5Fsomething%5Felse/) reported that the game went back to normal after a system restart. So before you try anything more complicated,**exit your game and do a normal reboot** . You’d be surprised how often this trick works.
 
  If the error persists after a reboot, you can take a look at the next fix.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 2: Scan and repair your game
 
@@ -83,10 +83,6 @@ To do so, first visit the website of your GPU manufacturer:
 ![](https://images.drivereasy.com/wp-content/uploads/2020/08/Scan-now.jpg)
 3. Click **Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system.(This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click Update All. If you don’t want to pay for the Pro version, you can still download and install all the drivers you need with the free version; you just have to download them one at a time, and manually install them, the normal Windows way.)  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/de-update-all-rtx-3080.jpg)
 
 **The Pro version of Driver Easy** comes with _full technical support_ . If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
@@ -105,21 +101,25 @@ Here’s how you can check for updates manually:
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/windows-10-start-menu-open-settings-gear-icon.jpg)
 2. Scroll down and select**Update & Security** .  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/windows-10-start-menu-open-settings-update.jpg)
 3. Click**Windows Update** .  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/windows-10-start-menu-open-settings-update-2.jpg)
 4. Click**Check for updates** . Then wait for the process to complete. After that, restart your PC.  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/windows-10-start-menu-open-settings-update-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  To make sure you’ve installed _all_  the system updates, **repeat these steps** until it prompts “You’re up to date” when you click **Check for updates** again.
 
@@ -144,18 +144,18 @@ Here’s how you can check for updates manually:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-make-every-instagram-story-a-visual-feast-multiply-your-images/"><u>[New] In 2024, Make Every Instagram Story a Visual Feast Multiply Your Images</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-maximize-style-with-premium-border-options-for-ig-posts/"><u>[New] Maximize Style with Premium Border Options for IG Posts</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-unlocking-full-image-potential-incorporating-luts-in-adobe-photoshop-cs6/"><u>[New] Unlocking Full Image Potential Incorporating LUTs in Adobe Photoshop CS6</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-liberate-your-video-files-free-online-tools-for-facebook-videos-in-1080phd/"><u>[Updated] 2024 Approved Liberate Your Video Files - Free Online Tools for Facebook Videos in 1080P/HD</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-imageinstinct-a-compreehensive-guide-for-instagram-size-control-for-2024/"><u>[Updated] ImageInstinct A Compreehensive Guide for Instagram Size Control for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-inspiring-podcast-artwork-essential-design-insights/"><u>[Updated] Inspiring Podcast Artwork Essential Design Insights</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-crafting-seamless-visuals-with-instagrams-chroma-key/"><u>2024 Approved Crafting Seamless Visuals with Instagram's Chroma Key</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/2024-approved-the-discoresponders-handbook-react-and-converse/"><u>2024 Approved The DiscoResponder's Handbook React and Converse</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/discover-the-leading-free-screen-recording-tools-for-mac-os/"><u>Discover the Leading Free Screen Recording Tools for Mac OS</u></a></li>
-<li><a href="https://games-able.techidaily.com/maximize-savings-the-ultimate-list-of-top-11-gaming-sites/"><u>Maximize Savings: The Ultimate List of Top 11 Gaming Sites</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/1723807949380-the-reynolds-number-is-a-dimensionless-quantity-that-helps-predict-flow-patterns-and-is-defined-as-re-rvdm-for-pipe-flow/"><u>The Reynolds Number Is a Dimensionless Quantity that Helps Predict Flow Patterns and Is Defined as Re = ρVD/Μ for Pipe Flow</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/unlock-your-creative-flow-sharing-hundreds-of-photos-and-vids-on-ig-for-2024/"><u>Unlock Your Creative Flow Sharing Hundreds of Photos and Vids on IG for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/al-victory-the-leading-ladies-of-gaming-for-2024/"><u>Virtual Victory The Leading Ladies of Gaming for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-boosting-your-contents-impact-on-instagram/"><u>[New] 2024 Approved Boosting Your Content's Impact on Instagram</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-easy-reduction-of-footage-for-instagram-on-a-mac/"><u>[New] 2024 Approved Easy Reduction of Footage for Instagram on a Mac</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-streamline-your-workflow-ultimate-convertor-list-1-8/"><u>[New] Streamline Your Workflow Ultimate Convertor List #1-8</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-techniques-for-steadying-your-motion-sensitive-gopro/"><u>[New] Techniques for Steadying Your Motion-Sensitive GoPro</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-quick-guide-archiving-your-insta-story-content/"><u>[Updated] 2024 Approved Quick Guide Archiving Your Insta Story Content</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-meme-mastery-strategies-for-engaging-audiences-with-fb-and-instagram-videos/"><u>[Updated] Meme Mastery Strategies for Engaging Audiences with FB & Instagram Videos</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-leveraging-imovies-power-for-youtube-presence-and-growth/"><u>2024 Approved Leveraging IMovie's Power for YouTube Presence and Growth</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-navigating-the-maze-of-stock-visual-acquisition/"><u>2024 Approved Navigating the Maze of Stock Visual Acquisition</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-stay-ahead-of-the-curve-with-these-10-must-use-tags/"><u>2024 Approved Stay Ahead of the Curve with These 10 Must-Use Tags</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/best-6-instagram-reels-downloaders-for-android-and-iphone-for-2024/"><u>Best 6 Instagram Reels Downloaders for Android and iPhone for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-expert-guide-to-crafting-immersive-experiences-through-instagram-vids/"><u>In 2024, Expert Guide to Crafting Immersive Experiences Through Instagram Vids</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-share-location-in-messenger-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share Location in Messenger On Google Pixel Fold? | Dr.fone</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-s-finest-the-ultimate-list-of-2d-animation-software-free-paid-and-everything-in-between/"><u>New 2024 Approved S Finest The Ultimate List of 2D Animation Software Free, Paid, and Everything In Between</u></a></li>
 </ul></div>
 
