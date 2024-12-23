@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] SnapSizeSecrets  Perfecting Photo and Video Sizes in Instagram\""
-date: 2024-12-13T16:20:48.339Z
-updated: 2024-12-14T16:09:16.450Z
+date: 2024-12-19T17:53:18.134Z
+updated: 2024-12-23T17:07:37.799Z
 tags:
   - ai video
   - ai instagram
@@ -30,7 +30,7 @@ Taking photos with iPhones and Android Smartphones and posting them to Instagram
 Troubles begin when you want to upload photos and videos that weren't captured with a Smartphone to Instagram. In most cases, the photos and videos produced by DSLR cameras and other semi-professional and professional equipment are much larger than the sizes supported by Instagram. That is the reason why we created this guide that will help you post visual content that is perfectly adjusted to Instagram in 2021.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Types of Files Accepted by Instagram
@@ -50,7 +50,7 @@ Duration of Videos on Instagram
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Best Image Sizes for Instagram Posts
@@ -62,7 +62,7 @@ A couple of years ago, Instagram has finally allowed its users to upload images 
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
@@ -90,7 +90,7 @@ The profile pictures on Instagram are tiny, and the optimum size for them is 160
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -108,16 +108,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-navigating-the-starscape-a-guide-to-influencers-for-your-needs/"><u>[New] 2024 Approved Navigating the Starscape A Guide to Influencers for Your Needs</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-achieve-perfection-on-instagram-with-right-video-dimensions/"><u>[New] Achieve Perfection on Instagram with Right Video Dimensions</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-discover-these-eight-handy-apps-to-upload-reels-on-instagram/"><u>[New] In 2024, Discover These Eight Handy Apps to Upload Reels on Instagram</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-the-invisible-scrutiny-unlocking-ig-selfie-verification-secrets-for-2024/"><u>[New] The Invisible Scrutiny Unlocking IG Selfie Verification Secrets for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-converting-zip-to-subrip-srt-format-a-step-by-step-guide/"><u>[Updated] 2024 Approved Converting ZIP to SubRip (SRT) Format A Step-by-Step Guide</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-stealthy-methods-to-watch-unseen-stories-for-2024/"><u>[Updated] Stealthy Methods to Watch Unseen Stories for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-break-the-monotony-with-these-6-captivating-videos/"><u>2024 Approved Break the Monotony with These 6 Captivating Videos</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-the-essential-blueprint-setting-up-your-first-xbox-recorder/"><u>2024 Approved The Essential Blueprint Setting Up Your First Xbox Recorder</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-oppo-find-x6-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Oppo Find X6 Pro | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/prime-streaming-services-ranked-a-comparison-analysis/"><u>Prime Streaming Services Ranked A Comparison Analysis</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/top-tier-audio-experience-exploring-the-best-non-bosenon-sonos-speakers-that-defy-expectations/"><u>Top-Tier Audio Experience: Exploring the Best Non-Bose/Non-Sonos Speakers That Defy Expectations</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-mastering-negative-space-reverse-video-tricks-for-instagram/"><u>[New] 2024 Approved Mastering Negative Space Reverse Video Tricks for Instagram</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-audiovisual-appeal-essential-tips-for-podcast-logos/"><u>[New] Audiovisual Appeal Essential Tips for Podcast Logos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-effortless-post-scheduling-our-list-of-top-8-apps-iosandroid-compatible-for-2024/"><u>[Updated] Effortless Post Scheduling Our List of Top 8 Apps, iOS/Android-Compatible for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-mastering-the-art-of-finding-influential-voices-in-your-space/"><u>[Updated] In 2024, Mastering the Art of Finding Influential Voices in Your Space</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-mastering-instagram-3-key-caption-techniques-for-videos-for-2024/"><u>[Updated] Mastering Instagram 3 Key Caption Techniques for Videos for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-step-by-step-instagram-filter-guide-keeping-up-with-2023-trends-for-2024/"><u>[Updated] Step-by-Step Instagram Filter Guide - Keeping Up with 2023 Trends for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-unlocking-igtvs-potential-secrets-to-attract-more-subscribers/"><u>[Updated] Unlocking IGTV's Potential Secrets to Attract More Subscribers</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-free-easy-and-fast-youtubes-best-subtitle-getters/"><u>2024 Approved Free, Easy and Fast YouTube's Best Subtitle Getters</u></a></li>
+<li><a href="https://blog-min.techidaily.com/mp4-avimov/"><u>最適化された無料MP4コンバーター: AVI/MOVファイルの簡単な変換方法</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/bend-and-shape-your-text-with-3d-effects-in-illustrator-for-2024/"><u>Bend and Shape Your Text with 3D Effects in Illustrator for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/facetime-on-windows-heres-how-you-can-set-it-up/"><u>FaceTime on Windows? Here's How You Can Set It Up!</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/get-your-pc-listening-to-you-not-too-x-recorder-for-2024/"><u>Get Your PC Listening to You, Not Too - X-Recorder for 2024</u></a></li>
+<li><a href="https://discover-docs.techidaily.com/guida-ai-superiori-convertitori-mp4-per-iphone-ideali-per-i-formati-mov-mkv-da-youtube-incluso/"><u>Guida Ai Superiori Convertitori MP4 per iPhone: Ideali per I Formati MOV, MKV Da YouTube Incluso</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/mobile-bibliophiles-unite-discover-kobo-clara-hds-features-in-our-in-depth-review/"><u>Mobile Bibliophiles Unite! Discover Kobo Clara HD's Features in Our In-Depth Review</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/vibrance-vortex-top-5-video-enhancement-tech/"><u>Vibrance Vortex Top 5 Video Enhancement Tech</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/vimeo-integration-for-professional-instagram-users/"><u>Vimeo Integration for Professional Instagram Users</u></a></li>
 </ul></div>
 

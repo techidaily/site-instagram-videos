@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Step-by-Step  Adding a Flurry of Images & Videos to Your IG Story\""
-date: 2024-12-11T17:09:24.155Z
-updated: 2024-12-14T16:53:09.324Z
+date: 2024-12-20T17:58:28.632Z
+updated: 2024-12-23T16:28:40.553Z
 tags:
   - ai video
   - ai instagram
@@ -27,6 +27,10 @@ thumbnail: https://thmb.techidaily.com/46c850237c04863ff656e578f32b008a00b71b463
 
  We often wonder how great would that be if you can upload multiple photos or video to Instagram, right? Well, we understand your situation. Obviously, if you have to upload your photos or videos one at a time, it may feel quite boring and frustrating, especially when you have dozens of them lined up in the queue. But here's the good news!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Introducing Carousel
 
  Instagram's update 10.9 for Android and iOS allows its users to upload upto 10 photos and videos in one go. This new feature is called 'Carousel'. Basically, when you upload multiple photos via carousel, they appear in a single post in the feed. There will be a row of blue dots underneath the pictures to let others know that they can swipe left and right through the slideshow to view the photos.
@@ -34,7 +38,7 @@ thumbnail: https://thmb.techidaily.com/46c850237c04863ff656e578f32b008a00b71b463
  You can now organize and post your photos about an expedition or some memorable event etc. in one single post and boast about your experiences in a more sequential and connective way to efficiently capture your audience's attention. Since this feature lets you add a series of videos as well, you can incorporate up to 10 videos in a single post and hence post a video content for up to 10 minutes.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Upload Multiple Videos and Photos to Instagram
@@ -46,7 +50,7 @@ thumbnail: https://thmb.techidaily.com/46c850237c04863ff656e578f32b008a00b71b463
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-1.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * As soon as you tap it, you will be able to see the recent photos and videos in your phone. Tap and hold, on any of the preferred image or video which you wish to upload, until you sense a slight vibration. Now, you have enabled the 'Select Multiple', scroll through the gallery and select rest 9 photos or videos that you wish to upload.
@@ -71,16 +75,12 @@ thumbnail: https://thmb.techidaily.com/46c850237c04863ff656e578f32b008a00b71b463
 
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-5.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Lastly, hit on 'Share' to publish your post with multiple photos/videos in it.
 
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-6.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -90,7 +90,7 @@ thumbnail: https://thmb.techidaily.com/46c850237c04863ff656e578f32b008a00b71b463
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -108,21 +108,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-unseen-story-access-top-anonymous-tools/"><u>[New] 2024 Approved Unseen Story Access Top Anonymous Tools</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-captivating-customer-revelation/"><u>[New] Captivating Customer Revelation</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-from-unknown-to-iconic-the-journey-of-viral-instagram-films/"><u>[New] In 2024, From Unknown to Iconic The Journey of Viral Instagram Films</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-unveiling-the-5-best-ways-to-download-igtv-for-tech-enthusiasts/"><u>[New] In 2024, Unveiling the 5 Best Ways to Download IGTV for Tech Enthusiasts</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-skyrocket-from-zero-reach-1k-on-instagram-monthly/"><u>[Updated] 2024 Approved Skyrocket From Zero Reach 1K on Instagram Monthly</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-mixing-music-into-your-instagram-visuals/"><u>[Updated] In 2024, Mixing Music Into Your Instagram Visuals</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-setting-up-zoom-meetings-a-comprehensible-android-methodology/"><u>[Updated] In 2024, Setting Up Zoom Meetings A Comprehensible Android Methodology</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-taking-igtv-viewership-to-new-peaks-5-innovative-approaches-for-2024/"><u>[Updated] Taking IGTV Viewership to New Peaks 5 Innovative Approaches for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-the-visual-markers-guide-customizing-instagram-photo-watermarks/"><u>[Updated] The Visual Marker's Guide Customizing Instagram Photo Watermarks</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-elevate-your-visual-presentations-implementing-title-overlays-in-windows-photos/"><u>2024 Approved Elevate Your Visual Presentations Implementing Title Overlays in Windows Photos</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-old-messages-from-your-nubia-by-fonelab-android-recover-messages/"><u>How to recover old messages from your Nubia</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-share-location-in-messenger-on-vivo-v27-pro-drfone-by-drfone-virtual-android/"><u>How to Share Location in Messenger On Vivo V27 Pro? | Dr.fone</u></a></li>
-<li><a href="https://win-community.techidaily.com/identifying-trustworthy-vs-fraudulent-digital-coins-insights-from-yl-computing-and-yl-software/"><u>Identifying Trustworthy Vs. Fraudulent Digital Coins: Insights From YL Computing and YL Software</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/integration-manual-connecting-officejet-8720-to-personal-computers/"><u>Integration Manual: Connecting OfficeJet 8720 to Personal Computers</u></a></li>
-<li><a href="https://win-guides.techidaily.com/page-unavailable-how-to-handle-a-404-error/"><u>Page Unavailable: How to Handle a 404 Error</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-photo-and-video-collage-software-top-picks-for-online-creators/"><u>Updated In 2024, Photo and Video Collage Software Top Picks for Online Creators</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-shoot-exceptional-igtv-video-content-with-mobile-and-professional-cameras/"><u>[New] 2024 Approved Shoot Exceptional IGTV Video Content with Mobile & Professional Cameras</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-hidden-insta-story-accessibility-step-by-step-for-tech-savvy/"><u>[New] Hidden Insta Story Accessibility - Step-by-Step for Tech Savvy</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-revealing-10-hidden-viewers-of-stories-for-2024/"><u>[New] Revealing 10 Hidden Viewers of Stories for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-lights-camera-action-mastering-fundamental-shots-first/"><u>[Updated] In 2024, Lights, Camera, Action! Mastering Fundamental Shots First</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-navigating-youtube-sharing-on-insta-stories-for-2024/"><u>[Updated] Navigating YouTube Sharing on Insta Stories for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-mastering-the-art-of-storytelling-on-ig-for-higher-engagement/"><u>2024 Approved Mastering the Art of Storytelling on IG for Higher Engagement</u></a></li>
+<li><a href="https://extra-support.techidaily.com/nighttime-captures-elevating-iphone-photos-for-2024/"><u>Nighttime Captures Elevating iPhone Photos for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/premiere-experts-exceptional-instagram-highlight-craftsmen-for-2024/"><u>Premiere Experts Exceptional Instagram Highlight Craftsmen for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-revolution-of-wake-up-lights-unpacking-the-philips-hf3505s-effectiveness-as-an-alarm-clock/"><u>The Revolution of Wake-Up Lights: Unpacking the Philips HF3505's Effectiveness as an Alarm Clock</u></a></li>
+<li><a href="https://article-tips.techidaily.com/ultimate-phone-filters-and-camera-cases/"><u>Ultimate Phone Filters & Camera Cases</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/unveiling-5-premier-slumber-assistance-applications-for-your-apple-watch/"><u>Unveiling 5 Premier Slumber Assistance Applications for Your Apple Watch</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/unveiling-top-notch-devices-with-toms-hardware-experts/"><u>Unveiling Top-Notch Devices with Tom's Hardware Experts</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-nubia-red-magic-8s-proplus-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On Nubia Red Magic 8S Pro+? | Dr.fone</u></a></li>
 </ul></div>
 

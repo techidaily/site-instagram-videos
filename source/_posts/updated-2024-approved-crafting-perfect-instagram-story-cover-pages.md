@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Crafting Perfect Instagram Story Cover Pages\""
-date: 2024-12-12T16:50:34.900Z
-updated: 2024-12-14T16:23:55.551Z
+date: 2024-12-18T17:31:17.935Z
+updated: 2024-12-23T18:01:24.162Z
 tags:
   - ai video
   - ai instagram
@@ -37,14 +37,10 @@ Generally, the Instagram highlight covers dimensions are the same as Insta stori
 
 ![Filmora Instagram highlight ](https://images.wondershare.com/filmora/article-images/filmora-instagram-highlight.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 When designing custom highlight covers on Canva, you will notice that the icon will be in the middle of a story-size rectangle. The overall aspect ratio to make highlight covers in Canva is 9:16\. However, ensure that that the illustration is centered when you add it as your Instagram highlight icon.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to Make Instagram Highlight Cover on Canva?
@@ -63,6 +59,10 @@ Once you are on the website, create your free account if you do not have one, an
 
 ![Canva create a highlight cover design](https://images.wondershare.com/filmora/article-images/canva-create-a-design-ins-story-highlight-cover.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 On the Canva homepage, click on **Create a design** tab at the right-hand upper corner. Now from the drop-down menu, you can type Instagram Story Highlight Cover in the search bar to locate it quickly, or you can scroll down to find it. The dimensions are automatically set as 1080 X 1920 pixels for Instagram story highlight in Canva, and if you don’t want to use this default size, you can click the Custom Size menu to identify the size, let’s say, 2000 \* 2000 pixels.
 
 **Step 3: Select a background color or photo**
@@ -78,16 +78,12 @@ On the design page, click on **Add Page** and then on the upper left side, you w
 ![Add background to Canva highlight cover](https://images.wondershare.com/filmora/article-images/add-background-highlight-cover.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 4: Choose an icon or add text**
 
 ![ Canva highlight cover elements](https://images.wondershare.com/filmora/article-images/canva-highlight-cover-elements-library.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Once you have a background color or photo, you can add an icon, emoji, or text. On the left-hand side of the page, click on Elements and then select Graphics. Scroll to check all the graphics or search for a specific one. Select the icon you want to use, and you can even change the color by clicking on the left-hand corner for the colors. To add text on your highlight covers, select the Text tab and add the one you want.
 
@@ -108,6 +104,10 @@ Before you upload the highlight covers on Instagram, ensure you turn on the Arch
 ![ upload  highlight cover to instagram ](https://images.wondershare.com/filmora/article-images/upload-highlight-cover-to-instagram.jpg)
 
 As we said before, you should transfer the created highlight cover photos from desktop to you phone, and then click on your Instagram profile and add a new highlight, follow the instructions on the screen to edit cover and then add the highlight cover photo you just created, give it a name, and click on Done. Your new Insta Story Highlight appears at the bottom of your Instagram bio.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 4: How to Change Existing Highlight Cover on Instagram?
 
@@ -140,7 +140,7 @@ Creating Instagram Highlight Covers is a quick and easy way to maintain your bra
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -158,22 +158,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-transform-your-igtv-visuals-with-updated-covers/"><u>[New] 2024 Approved Transform Your IGTV Visuals with Updated Covers</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-the-art-of-sharing-horizontals-in-igtvs-vertical-world/"><u>[New] The Art of Sharing Horizontals in IGTV's Vertical World</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-unmasking-falsified-follower-fabrications-on-feeds/"><u>[New] Unmasking Falsified Follower Fabrications on Feeds</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-straightforward-methods-to-save-insta-story-videos/"><u>[Updated] In 2024, Straightforward Methods to Save Insta Story Videos</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-transforming-video-tutorials-into-playable-animated-gifs-online/"><u>[Updated] In 2024, Transforming Video Tutorials Into Playable Animated GIFs Online</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-navigating-melodic-waters-a-legal-guide-on-instagram-for-2024/"><u>[Updated] Navigating Melodic Waters A Legal Guide on Instagram for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-proiphone-close-ups-techniques-for-captivating-images/"><u>[Updated] Proiphone Close-Ups Techniques for Captivating Images</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-lgs-ultrafine-vision-a-thorough-4k-screen-evaluation/"><u>2024 Approved LG's UltraFine Vision A Thorough 4K Screen Evaluation</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-navigating-the-complexities-of-youtube-copyright-claims/"><u>2024 Approved Navigating the Complexities of YouTube Copyright Claims</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-premium-commercial-cloud-vaulting-services/"><u>2024 Approved Premium Commercial Cloud Vaulting Services</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-unlocking-instagrams-monetization-secrets/"><u>2024 Approved Unlocking Instagram’s Monetization Secrets</u></a></li>
-<li><a href="https://driver-download.techidaily.com/canon-mg3600-driver-download-and-update/"><u>Canon MG3600 Driver Download & Update</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-elevating-your-ig-aesthetics-with-top-10-grid-builders/"><u>In 2024, Elevating Your IG Aesthetics with Top 10 Grid Builders</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-activation-lock-from-apple-iphone-12-pro-or-ipad-by-drfone-ios/"><u>In 2024, How to Bypass Activation Lock from Apple iPhone 12 Pro or iPad?</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-intercept-text-messages-on-xiaomi-civi-3-drfone-by-drfone-virtual-android/"><u>In 2024, How to Intercept Text Messages on Xiaomi Civi 3 | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-instagram-story-hacks-your-path-to-prominence/"><u>In 2024, Instagram Story Hacks Your Path to Prominence</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-still-using-pattern-locks-with-motorola-moto-g13-tips-tricks-and-helpful-advice-by-drfone-android/"><u>In 2024, Still Using Pattern Locks with Motorola Moto G13? Tips, Tricks and Helpful Advice</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-mastermind-your-marketing-surge-to-1000-insta-supporters-each-month/"><u>[New] 2024 Approved Mastermind Your Marketing Surge to 1,000 Insta Supporters Each Month</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-optimizing-igtv-video-success-metrics/"><u>[New] 2024 Approved Optimizing IGTV Video Success Metrics</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-revealing-instagram-lurkers-the-exit-list-for-2024/"><u>[New] Revealing Instagram Lurkers The Exit List for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-pro-level-editing-10-must-have-applications-for-insta-videos/"><u>[Updated] In 2024, Pro-Level Editing 10 Must-Have Applications for Insta Videos</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-stabilize-and-capture-find-the-best-tripods-for-gopro-for-2024/"><u>[Updated] Stabilize and Capture Find the Best Tripods for GoPro for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-final-cut-pro-x-for-instagram-optimizing-vertical-videos/"><u>2024 Approved Final Cut Pro X for Instagram Optimizing Vertical Videos</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-highest-rated-10-apps-to-watch-golf-and-soccer-in-the-moment/"><u>2024 Approved Highest Rated 10 Apps to Watch Golf & Soccer in the Moment</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-launchpad-logic-the-complete-framework-for-founders-of-a-reviews-channel/"><u>2024 Approved Launchpad Logic The Complete Framework for Founders of a Reviews Channel</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/how-to-master-the-art-of-instagram-videos-length-adjustments-for-2024/"><u>How to Master the Art of Instagram Videos' Length Adjustments for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-your-wayback-machine-facebooks-story-archives-at-your-service/"><u>In 2024, Your Wayback Machine Facebook’s Story Archives at Your Service</u></a></li>
+<li><a href="https://games-able.techidaily.com/mastering-steam-deck-keyboard-functionality/"><u>Mastering Steam Deck Keyboard Functionality</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/the-isolated-earbuds-fix-manual/"><u>The Isolated Earbuds Fix Manual</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-10-telegram-spy-tools-on-vivo-v29-for-parents-drfone-by-drfone-virtual-android/"><u>Top 10 Telegram Spy Tools On Vivo V29 for Parents | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/top-rated-samsung-smart-tv-applications-in-2/"><u>Top-Rated Samsung Smart TV Applications in 2</u></a></li>
 </ul></div>
 

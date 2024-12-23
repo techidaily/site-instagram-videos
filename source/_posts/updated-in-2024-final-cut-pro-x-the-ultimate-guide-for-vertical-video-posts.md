@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Final Cut Pro X  The Ultimate Guide for Vertical Video Posts\""
-date: 2024-12-10T16:57:22.859Z
-updated: 2024-12-14T16:07:09.897Z
+date: 2024-12-17T18:23:10.418Z
+updated: 2024-12-23T16:56:31.573Z
 tags:
   - ai video
   - ai instagram
@@ -36,7 +36,7 @@ You may also like: [How to Get 90-day Free Trial of FCPX](https://tools.techidai
 ![Instagram-video](https://images.wondershare.com/filmora/images/final-cut-pro/Instagram-video.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: Introduction to Vertical Videos for Instagram
@@ -53,6 +53,10 @@ Before entering the nitty-gritty on how to edit vertical videos with FCPX, you s
 | **Video length**                 | Minimum: 15 seconds Maximum: 60 minutes                  |
 | **Video codecs supported**       | VP8                                                      |
 | **Audio codecs supported**       | 128 kbps, Vorbis                                         |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to Edit and Export Vertical Videos for Instagram in Final Cut Pro X?
 
@@ -93,11 +97,11 @@ Too many steps? Then try a **beginner-friendly editing tool**, Filmora!
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: Tips on Editing Vertical Videos for Instagram
@@ -117,7 +121,7 @@ Is the video already shot horizontally on your camera or smartphone? No worries,
 Vertical video is a great option to showcase wide and tall subjects where you can place close-ups and show off details to get up close and personal. It could be a product or fabric. You can showcase enticing minor elements that attract an audience in such landscape shots.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -125,10 +129,6 @@ Vertical video is a great option to showcase wide and tall subjects where you ca
 Hence, I am sure you found new tactics to create vertical videos for Instagram. Therefore, put them into practice the next time you make your vertical video for a story or IGTV. Is your video shot or recorded horizontal by mistake? No more worry, as you can edit vertical video for Instagram in the Final Cut Pro. Finally, with a complete guide on how to edit vertical videos with FCPX, our blog for the day is over.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -145,18 +145,20 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-navigating-free-floating-vr-without-nausea/"><u>[New] Navigating Free-Floating VR without Nausea</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-the-ultimate-guide-to-instagram-video-descriptions/"><u>[New] The Ultimate Guide to Instagram Video Descriptions</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-2024-approved-top-tier-drones-for-sale-today/"><u>[Updated] 2024 Approved Top-Tier Drones for Sale Today</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-hastyhit-freezevidsnapshot/"><u>[Updated] HastyHit FreezeVidSnapshot</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-behind-the-scenes-top-storytelling-channels-on-yt-2023/"><u>2024 Approved Behind-the-Scenes Top Storytelling Channels on YT, 2023</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/enhancing-your-youtube-content-basic-premiere-pro-edits/"><u>Enhancing Your YouTube Content Basic Premiere Pro Edits</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/hands-on-crafting-unique-movie-closures-for-pennies/"><u>Hands-On Crafting Unique Movie Closures for Pennies</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-solutions-to-spy-on-samsung-galaxy-s23-ultra-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>In 2024, Solutions to Spy on Samsung Galaxy S23 Ultra with and without jailbreak | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-triumph-over-triviality-amass-a-million-ish-followers-on-ig/"><u>In 2024, Triumph Over Triviality Amass a Million-Ish Followers on IG</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/insta-gone-locating-the-disappeared-fans-for-2024/"><u>Insta Gone? Locating the Disappeared Fans for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/instas-tunes-ownership-and-legalities-for-2024/"><u>Insta's Tunes Ownership & Legalities for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/instagrams-peak-performance-with-these-top-8-planning-tools-for-2024/"><u>Instagram's Peak Performance with These Top 8 Planning Tools for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/rectifying-problematic-chrome-file-uploaddownload-on-windows/"><u>Rectifying Problematic Chrome File Upload/Download on Windows</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-honorable-5-quicktime-frame-recorder/"><u>[New] 2024 Approved Honorable 5 Quicktime Frame Recorder</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-the-powerhouse-guide-to-screen-recording-with-tunefab/"><u>[New] In 2024, The Powerhouse Guide to Screen Recording with Tunefab</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-pictureperfectionist-expert-guide-to-ig-size-settings-for-2024/"><u>[New] PicturePerfectionist Expert Guide to IG Size Settings for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-creative-couture-top-trendy-filters-on-ig/"><u>[Updated] 2024 Approved Creative Couture Top Trendy Filters on IG</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-mastery-of-instagram-videography-blueprint-for-robust-marketing-plans/"><u>[Updated] 2024 Approved Mastery of Instagram Videography Blueprint for Robust Marketing Plans</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-affordable-devices-customized-obs-tweaks-for-2024/"><u>[Updated] Affordable Devices Customized OBS Tweaks for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-understanding-and-managing-facebooks-hidden-history/"><u>[Updated] Understanding & Managing Facebook's Hidden History</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-building-brands-earning-dollars-a-comprehensive-guide-to-insta-sponsorships/"><u>2024 Approved Building Brands, Earning Dollars A Comprehensive Guide to Insta-Sponsorships</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/calculating-the-sequence-length-of-a-20mb-file-for-2024/"><u>Calculating the Sequence Length of a 20MB File for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-realme-gt-3-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Realme GT 3? | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-reel-your-best-footage-from-instagram-with-these-aids/"><u>In 2024, Reel Your Best Footage From Instagram With These Aids</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-taking-charge-stop-instagram-suggested-posts/"><u>In 2024, Taking Charge Stop Instagram Suggested Posts</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/navigating-the-best-instagram-performance-insight-platforms/"><u>Navigating the Best Instagram Performance Insight Platforms</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210936149-9780717158171-the-courage-to-love-surviving-and-thriving-in-your-relationship/"><u>The Courage to Love: Surviving and Thriving in Your Relationship | Free Book</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-persistent-errors-in-tormented-souls-installation-for-windows-users/"><u>Troubleshooting Persistent Errors in 'Tormented Souls' Installation for Windows Users</u></a></li>
 </ul></div>
 

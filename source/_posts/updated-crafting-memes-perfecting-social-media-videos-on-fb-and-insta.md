@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Crafting Memes  Perfecting Social Media Videos on FB & Insta\""
-date: 2024-12-12T16:00:12.189Z
-updated: 2024-12-14T17:02:38.230Z
+date: 2024-12-16T16:00:45.952Z
+updated: 2024-12-23T17:08:19.184Z
 tags:
   - ai video
   - ai instagram
@@ -32,17 +32,9 @@ thumbnail: https://thmb.techidaily.com/a6de986a3fdb94c7142abb7e1738397c8994a30f4
 * [**Part1: Facebook and Instagram specs**](#part1)
 * [**Part2: How to make a video meme for Facebook and Instagram**](#part2)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Facebook and Instagram specs
 
  Before knowing how to make a video meme for Instagram/Facebook, how about understanding their specs on both the platforms and get the best out of it? It is of utmost importance to know the social media specs before venturing into video marketing in these platforms.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Facebook
 
@@ -76,7 +68,7 @@ thumbnail: https://thmb.techidaily.com/a6de986a3fdb94c7142abb7e1738397c8994a30f4
 * Maximum caption and recommended are 2,200 and 125 characters respectively.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to make a video meme for Facebook and Instagram step by step
@@ -91,6 +83,10 @@ thumbnail: https://thmb.techidaily.com/a6de986a3fdb94c7142abb7e1738397c8994a30f4
 
 ![import meme](https://images.wondershare.com/filmora/article-images/drag-memes-filmora-meme-maker.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2**: Go to the meme editor page. Click the tools from left and customize the meme. The preview window shows the changes. Try playing with fonts and texts with funny content.
 
 **Tips**: Crafting quips can make your meme more popular on Facebook and Instagram.
@@ -102,7 +98,11 @@ thumbnail: https://thmb.techidaily.com/a6de986a3fdb94c7142abb7e1738397c8994a30f4
 ![export meme](https://images.wondershare.com/filmora/article-images/export-memes-filmora-meme-maker.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Bottom Line
@@ -112,7 +112,7 @@ thumbnail: https://thmb.techidaily.com/a6de986a3fdb94c7142abb7e1738397c8994a30f4
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -130,24 +130,19 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://win-amazing.techidaily.com/download-gigabyte-audio-driver-free/"><u>[Download] Gigabyte Audio Driver | Free</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/new-capturing-time-in-pixels-slomo-apps-full-review-2024/"><u>[New] Capturing Time in Pixels SloMo App's Full Review, 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-get-that-perfect-fit-resize-videos-to-instagram-standards-using-mac-for-2024/"><u>[New] Get That Perfect Fit Resize Videos to Instagram Standards Using Mac for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-enhancing-visual-impact-editing-videos-for-instagram/"><u>[New] In 2024, Enhancing Visual Impact Editing Videos for Instagram</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-enhancing-visual-storytelling-on-instagram-with-loops/"><u>[New] In 2024, Enhancing Visual Storytelling on Instagram With Loops</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-expressiveness-in-yt-adopting-emojis/"><u>[New] In 2024, Expressiveness in YT Adopting Emojis</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-the-ultimate-slow-motion-showcase-on-instagrams-trendy-reels-for-2024/"><u>[New] The Ultimate Slow Motion Showcase on Instagram's Trendy Reels for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-filmmaking-faceoff-hero-session-x-or-polaroid-cube/"><u>[Updated] 2024 Approved Filmmaking Faceoff Hero Session X or Polaroid Cube?</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-influence-unleashed-5-crucial-steps-to-thriving-on-instagram-marketing/"><u>[Updated] 2024 Approved Influence Unleashed 5 Crucial Steps to Thriving on Instagram Marketing</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-instagrams-best-captured-moments-made-available-to-iphone/"><u>[Updated] 2024 Approved Instagram's Best Captured Moments Made Available to iPhone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-instagram-reels-crafted-by-a-true-creative-genius-for-2024/"><u>[Updated] Instagram Reels Crafted by a True Creative Genius for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-youtube-snippets-for-captivating-ig-stories/"><u>[Updated] YouTube Snippets for Captivating IG Stories</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/create-the-ultimate-music-library-a-guide-to-effectively-combining-your-spotify-playlists/"><u>Create the Ultimate Music Library: A Guide to Effectively Combining Your Spotify Playlists</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-videos-from-nokia-c300-by-fonelab-android-recover-video/"><u>How to Rescue Lost Videos from Nokia C300</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-oneplus-nord-3-5g-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>How to Unlock OnePlus Nord 3 5G Pattern Lock if Forgotten? 6 Ways</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-crafting-stellar-instagram-content-for-maximum-influence/"><u>In 2024, Crafting Stellar Instagram Content for Maximum Influence</u></a></li>
-<li><a href="https://win-tricks.techidaily.com/mirillis-privacy-standards-and-user-consent-guidelines/"><u>Mirillis Privacy Standards & User Consent Guidelines</u></a></li>
-<li><a href="https://fake-location.techidaily.com/prevent-cross-site-tracking-on-tecno-phantom-v-fold-and-browser-drfone-by-drfone-virtual-android/"><u>Prevent Cross-Site Tracking on Tecno Phantom V Fold and Browser | Dr.fone</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/unlocking-the-potential-comprehensive-analysis-of-dji-phantom-4-for-2024/"><u>Unlocking the Potential Comprehensive Analysis of DJI Phantom 4 for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-ultimate-guide-top-8-tripods-for-4k-video-enthusiasts/"><u>[New] Ultimate Guide Top 8 Tripods for 4K Video Enthusiasts</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-unlock-the-secrets-of-instagrams-latest-filters/"><u>[New] Unlock the Secrets of Instagram's Latest Filters</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-examining-librevid-recorder-for-live-streaming/"><u>[Updated] Examining LibreVid Recorder for Live Streaming</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-pivot-to-popularity-mastering-video-flip-on-social/"><u>[Updated] Pivot to Popularity Mastering Video Flip on Social</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-mystery-of-youtubes-viewer-count-puzzle/"><u>[Updated] The Mystery of YouTube's Viewer Count Puzzle</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-deconstructing-the-limits-to-longer-instagram-videos/"><u>2024 Approved Deconstructing the Limits to Longer Instagram Videos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-the-only-guide-youll-need-to-know-about-instagram-reels/"><u>2024 Approved The Only Guide You'll Need to Know About Instagram Reels</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-unveiling-8-top-choices-your-go-to-templates-on-ig/"><u>2024 Approved Unveiling 8 Top Choices Your Go-To Templates on IG</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/echoes-and-whispers-africas-multilingual-echo-chamber/"><u>Echoes and Whispers: Africa's Multilingual Echo Chamber</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-revive-your-bricked-poco-x6-pro-in-minutes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Revive Your Bricked Poco X6 Pro in Minutes | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-how-to-duplicate-your-instagram-posts/"><u>In 2024, How to Duplicate Your Instagram Posts</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/new-2024-approved-latest-top-darth-vader-voice-generators-for-all-platforms/"><u>New 2024 Approved Latest Top Darth Vader Voice Generators for All Platforms</u></a></li>
+<li><a href="https://win-blog.techidaily.com/solution-steps-preventing-scavengers-game-from-freezing-on-pc/"><u>Solution Steps: Preventing 'Scavengers' Game From Freezing on PC</u></a></li>
+<li><a href="https://win-bits.techidaily.com/step-by-step-guide-how-to-download-open-cultures-movie-collection-educational-videos-and-music-lessons-in-high-quality/"><u>Step-by-Step Guide: How to Download Open Culture's Movie Collection, Educational Videos & Music Lessons in High Quality</u></a></li>
 </ul></div>
 

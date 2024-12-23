@@ -1,7 +1,7 @@
 ---
 title: "Resolved: Why Is Everspace 2 Experiencing Crashes on Windows Systems?"
-date: 2024-12-10T16:50:51.724Z
-updated: 2024-12-14T16:54:17.775Z
+date: 2024-12-16T16:53:19.055Z
+updated: 2024-12-23T16:00:17.700Z
 tags:
   - win11
   - win10
@@ -42,7 +42,7 @@ _Remnant: From the Ashes_ constantly crashes your PC? Don’t worry. After readi
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Fix 2:**Disable your antivirus temporarily**
@@ -64,10 +64,6 @@ _Remnant: From the Ashes_ constantly crashes your PC? Don’t worry. After readi
 **2)**  Right-click the **Steam icon** and select **Properties** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/09/image.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **3)**  Click the **Compatibility tab** and check the box next to **Run this program as an administrator** . Then, click **OK** .
 
@@ -95,6 +91,10 @@ _Remnant: From the Ashes_ constantly crashes your PC? Don’t worry. After readi
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/image-203.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **3)** Click the **Update button** next to the graphics driver to automatically download the correct version of that driver, then you can manually install it (you can do this with the FREE version).
 
  Or click **Update All** to automatically download and install the correct version of _all_  the drivers that are missing or out of date on your system (this requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  which comes with full support and a 30-day money back guarantee. You’ll be prompted to upgrade when you click Update All.)
@@ -110,10 +110,6 @@ _Remnant: From the Ashes_ constantly crashes your PC? Don’t worry. After readi
 If your problem persists, then move on to the next fix below.
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 5:**Install the latest game patch**
 
@@ -137,13 +133,13 @@ If your problem persists, then move on to the next fix below.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/09/image-84.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **4)**  Click the **LOCAL FILES**  tab, then click **VERIFY INTEGRITY OF GAME FILES** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/09/image-86.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **5)** Relaunch_Remnant_ to see if this has fixed your problem. If not, move on to the fix below.
 
@@ -166,7 +162,7 @@ If your problem persists, then move on to the next fix below.
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/image-591.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **4)** Copy and paste the following text at the bottom.
@@ -182,15 +178,15 @@ If your problem persists, then move on to the next fix below.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/10/image-176.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **6)** Relaunch your game to test your issue.
 
 If the game is still unplayable, read on and try the fix below.
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 8: Run your game in compatibility mode
 
@@ -202,10 +198,6 @@ If the game is still unplayable, read on and try the fix below.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/09/image-214.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **2)**  Click the **Compatibility**  tab. Then check the box next to **Run this program in compatibility mode for** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/09/image-607.png)
@@ -215,7 +207,7 @@ If the game is still unplayable, read on and try the fix below.
 ![](https://images.drivereasy.com/wp-content/uploads/2019/09/image-608.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **4)**  Relaunch your game to check if your issue had been resolved.
@@ -244,7 +236,7 @@ If the game is still unplayable, read on and try the fix below.
 ![](https://images.drivereasy.com/wp-content/uploads/2019/09/image-246.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **4)** Click**DELETE** .
@@ -271,9 +263,17 @@ If the game is still unplayable, read on and try the fix below.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/05/image-887.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **4)** Under **View by** , select **Category** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/05/image-888.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **5)** Select **Uninstall a program** .
 
@@ -293,13 +293,13 @@ If the game is still unplayable, read on and try the fix below.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/05/image-892.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **10)**  Move the backup **steamapps folder** to your current directory location.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/05/image-893.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **11)**  Restart Remnant.
 
@@ -326,21 +326,19 @@ If the game is still unplayable, read on and try the fix below.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-pinpointing-factors-that-influence-igtv-video-performance/"><u>[New] 2024 Approved Pinpointing Factors that Influence IGTV Video Performance</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-epic-escapades-in-playtime-paradise/"><u>[New] Epic Escapades in Playtime Paradise</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-elevate-with-these-top-10-igtv-experts/"><u>[New] In 2024, Elevate with These Top 10 IGTV Experts</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-essentials-of-creating-share-worthy-instagram-videos/"><u>[New] In 2024, Essentials of Creating Share-Worthy Instagram Videos</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-leveraging-the-power-of-windows-11s-auto-hdr-enhancement/"><u>[New] Leveraging the Power of Windows 11'S Auto HDR Enhancement</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-instavision-blend-androidplusios-video-tiles/"><u>[Updated] 2024 Approved InstaVision Blend Android+iOS Video Tiles</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/choreographing-pictures-and-tunes-in-video-for-2024/"><u>Choreographing Pictures & Tunes in Video for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-find-the-perfect-blend-of-joy-and-sorrow-in-these-meme-feeds/"><u>In 2024, Find the Perfect Blend of Joy and Sorrow in These Meme Feeds</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-full-tutorial-to-bypass-your-poco-x6-face-lock-by-drfone-android/"><u>In 2024, Full Tutorial to Bypass Your Poco X6 Face Lock?</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-lock-apps-on-xiaomi-redmi-a2-to-protect-your-individual-information-by-drfone-android/"><u>In 2024, How to Lock Apps on Xiaomi Redmi A2 to Protect Your Individual Information</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/ios-ipados-and-macos-integrate-apple-openais-chatgpt-technology-techzoomed/"><u>IOS, iPadOS & macOS Integrate Apple-OpenAI's ChatGPT Technology | TechZoomed</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/leveraging-text-overlays-for-engaging-visual-posts-for-2024/"><u>Leveraging Text Overlays for Engaging Visual Posts for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/quickfix-strategies-for-overcoming-wireless-hardware-hiccups-and-notifications/"><u>QuickFix Strategies for Overcoming Wireless Hardware Hiccups and Notifications</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/the-roadmap-to-an-influential-instagram-profile-six-simple-steps-for-following-and-verified-recognition/"><u>The Roadmap to an Influential Instagram Profile Six Simple Steps for Following and Verified Recognition</u></a></li>
-<li><a href="https://fox-that.techidaily.com/troubleshooting-iphone-connectivity-glitches-by-reinitializing-network-settings/"><u>Troubleshooting iPhone Connectivity Glitches by Reinitializing Network Settings</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/universal-unlock-pattern-for-poco-m6-pro-5g-by-drfone-android/"><u>Universal Unlock Pattern for Poco M6 Pro 5G</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-designing-dynamic-podcast-preambles-for-2024/"><u>[New] Designing Dynamic Podcast Preambles for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-how-to-amplify-and-modify-your-instagram-voice/"><u>[New] How to Amplify and Modify Your Instagram Voice</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-timing-and-frequency/"><u>[New] Timing and Frequency</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-from-video-to-song-instagrams-mp3-conversion-process-for-2024/"><u>[Updated] From Video to Song Instagram's Mp3 Conversion Process for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/dvd-ripper-winx-x-handbrake-una-comparazione-dettagliata-e-gratuita-dei-top-2-ripping-software/"><u>DVD Ripper WinX X Handbrake: Una Comparazione Dettagliata E Gratuita Dei Top 2 Ripping Software</u></a></li>
+<li><a href="https://win-dash.techidaily.com/how-to-download-and-keep-your-insignia-bluetooth-microphone-drivers-updated-in-windows-os/"><u>How to Download & Keep Your Insignia Bluetooth Microphone Drivers Updated in Windows OS</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/in-2024-visioncutting-software/"><u>In 2024, VisionCutting Software</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/maximizing-impact-strategies-for-going-viral-on-instagram/"><u>Maximizing Impact Strategies for Going Viral on Instagram</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/mobvoi-ticwatch-pro-4g-review-a-unique-choice-for-a-fully-connected-watch/"><u>Mobvoi Ticwatch Pro 4G Review: A Unique Choice for a Fully Connected Watch</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/navigating-through-instagrams-new-features-reels-and-stories/"><u>Navigating Through Instagram's New Features Reels & Stories</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/rhythm-revelations-mastering-music-for-visual-storytelling/"><u>Rhythm Revelations Mastering Music for Visual Storytelling</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/secrets-revealed-obtaining-control-over-trustedinstaller-on-windows-11/"><u>Secrets Revealed: Obtaining Control Over TrustedInstaller on Windows 11</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/unmasking-truthgpt-coins-credibility/"><u>Unmasking TruthGPT Coin's Credibility</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/win7-usb-printer-reset-problems-post-sleep-cycle/"><u>Win7 USB Printer Reset: Problems Post-Sleep Cycle</u></a></li>
 </ul></div>
 
