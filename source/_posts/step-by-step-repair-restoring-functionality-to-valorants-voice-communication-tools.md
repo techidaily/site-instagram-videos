@@ -1,7 +1,7 @@
 ---
 title: "Step by Step Repair: Restoring Functionality to Valorant's Voice Communication Tools"
-date: 2024-12-26T20:30:33.158Z
-updated: 2024-12-29T00:18:07.670Z
+date: 2025-01-03T01:45:33.775Z
+updated: 2025-01-07T16:49:19.595Z
 tags:
   - win11
   - win10
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/7e858d7102e5ef6f6137f0acdeeba112d7b0daf0c
 ## Troubleshoot and Restore Fortnite's Voice Communication Features Now
 
 **Voice chat not working in Fortnite?** Don’t worry… Although it’s incredibly frustrating, you’re definitely not the only person to experience this problem. Thousands of players have recently reported the very same issue. More importantly, you should be able to fix it pretty easily…
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Try these fixes
 
@@ -50,10 +54,6 @@ thumbnail: https://thmb.techidaily.com/7e858d7102e5ef6f6137f0acdeeba112d7b0daf0c
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/Driver-Easy-Scan-screen.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  3\. Click **Update** next to your sound card to automatically download the correct version of its driver, then you can install it manually. Or click **Update All** to automatically download and install the correct version of_all_ the drivers that are missing or out of date on your system (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click **Update All.**  You get**full support** and a**30-day money back** guarantee).
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/Update-all-drivers.jpg)
@@ -73,7 +73,7 @@ thumbnail: https://thmb.techidaily.com/7e858d7102e5ef6f6137f0acdeeba112d7b0daf0c
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap911.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  3.**Turn on** the toggle next to **Auto update** .
@@ -88,10 +88,6 @@ thumbnail: https://thmb.techidaily.com/7e858d7102e5ef6f6137f0acdeeba112d7b0daf0c
 
  Run Fortnite again to check whether your chat problem has been resolved. If it hasn’t, or there was no new game patch available, move on to Fix 4, below.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Fix 4: Make sure your microphone is on for Fortnite
 
  If you downloaded Fortnite from**the Microsoft Store** , check if it has permission to use your microphone. Here’s how to do it:
@@ -100,13 +96,13 @@ thumbnail: https://thmb.techidaily.com/7e858d7102e5ef6f6137f0acdeeba112d7b0daf0c
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/Snap427.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  2\. Click **Microphone**  on the left pane, and make sure**Microphone access for this device** is**on** , and the status is **On** for **Fortnite** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/Snap428.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 3\. Run Fortnite to see if chat works now. If not, try Fix 5, below.
 
@@ -120,13 +116,13 @@ thumbnail: https://thmb.techidaily.com/7e858d7102e5ef6f6137f0acdeeba112d7b0daf0c
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap925.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  ii. Click**the speaker icon** to view the audio settings. Then**turn off Voice Chat** and click**Apply** .  
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/Snap431-1024x576.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 iii. Exit Fortnite.
 
@@ -134,25 +130,25 @@ iii. Exit Fortnite.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/Snap432.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  3\. Click the **Playback** tab, select the speakers/headphones you’re using and click **Set Default** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/Snap442-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  4\. Click the **Recording** tab, select the microphone you’re using and click **Set Default** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/Snap447.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  5\. While still in the**Recording** tab, try**speaking into your microphone** to test if it works properly. If it is, you should see some green in the bar on the right:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/Snap443.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  6\. Click **OK** .
 
@@ -161,7 +157,7 @@ iii. Exit Fortnite.
  Join a squad to check ifchat is now working . If not, try the fix below.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Fix 6: Reinstall Fortnite
@@ -175,6 +171,10 @@ iii. Exit Fortnite.
  2\. Click**Uninstall** to uninstall Fortnite.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/Snap950.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 3\. Restart your PC.
 
@@ -205,22 +205,18 @@ iii. Exit Fortnite.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-a-guide-to-gauging-igtv-video-impressions/"><u>[New] 2024 Approved A Guide to Gauging IGTV Video Impressions</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-exploring-the-most-reliable-free-srt-translation-services/"><u>[New] Exploring the Most Reliable Free SRT Translation Services</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-screen-savvy-the-ultimate-recorders-digest/"><u>[New] Screen Savvy The Ultimate Recorder's Digest</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-sleeper-coupons-in-instagram-the-underrated-tips-and-tricks/"><u>[New] Sleeper Coupons in Instagram The Underrated Tips and Tricks</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-elevate-your-igtv-presence-strategies-for-perfecting-video-lengths-and-widths/"><u>[Updated] 2024 Approved Elevate Your IGTV Presence Strategies for Perfecting Video Lengths and Widths</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-mastering-your-first-zoom-webinar-with-ease/"><u>[Updated] 2024 Approved Mastering Your First Zoom Webinar with Ease</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-be-selective-stop-instagram-suggested-updates/"><u>[Updated] Be Selective Stop Instagram Suggested Updates</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-integrating-youtube-into-the-world-of-instagram-stories/"><u>[Updated] Integrating YouTube Into the World of Instagram Stories</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-learn-to-edit-the-ultimate-guide-for-igtv-titles-for-2024/"><u>[Updated] Learn to Edit The Ultimate Guide for IGTV Titles for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-maximizing-earnings-on-instagram-strategies-for-sponsorship-attraction-for-2024/"><u>[Updated] Maximizing Earnings on Instagram Strategies for Sponsorship Attraction for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-the-essential-tutorial-for-creating-a-biz-focused-instagram-for-2024/"><u>[Updated] The Essential Tutorial for Creating a Biz-Focused Instagram for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-the-secrets-of-crafting-captivating-instagram-videos/"><u>[Updated] The Secrets of Crafting Captivating Instagram Videos</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/7-techniques-employing-chatgpt-for-video-game-dialogue-creation/"><u>7 Techniques: Employing ChatGPT for Video Game Dialogue Creation</u></a></li>
-<li><a href="https://games-able.techidaily.com/elevate-your-gameplay-choosing-the-right-tools/"><u>Elevate Your Gameplay: Choosing the Right Tools</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/how-to-cool-down-your-overheating-graphics-card-essential-tips-by-yl-computing/"><u>How to Cool Down Your Overheating Graphics Card - Essential Tips by YL Computing</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/is-playstation-network-misbehaving-or-is-my-setup-at-fault/"><u>Is PlayStation Network Misbehaving? Or Is My Setup At Fault?</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/solving-silence-a-guide-to-rectifying-your-iphones-inability-to-make-calls/"><u>Solving Silence: A Guide to Rectifying Your iPhone's Inability to Make Calls</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-integrate-soundtracks-into-instagram-storytelling/"><u>[New] 2024 Approved Integrate Soundtracks Into Instagram Storytelling</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-boost-your-content-top-6-instagram-reel-apps/"><u>[New] In 2024, Boost Your Content Top 6 Instagram Reel Apps</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-from-ordinary-to-outstanding-mastering-instagram-editing-skills/"><u>[New] In 2024, From Ordinary to Outstanding Mastering Instagram Editing Skills</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-vocal-variations-for-stories-and-reels-an-instagram-expertise/"><u>[New] In 2024, Vocal Variations for Stories and Reels – An Instagram Expertise</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-unleash-creative-potential-with-a-comprehensive-guide-to-ps-background-removal/"><u>[Updated] 2024 Approved Unleash Creative Potential with a Comprehensive Guide to PS Background Removal</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-complete-review-of-razer-video-streaming-device-for-2024/"><u>[Updated] Complete Review of Razer Video Streaming Device for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-igtv-content-extraction-for-mobile-users-for-2024/"><u>[Updated] IGTV Content Extraction for Mobile Users for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-unlocking-the-secrets-to-instagram-post-replicas/"><u>[Updated] In 2024, Unlocking the Secrets to Instagram Post Replicas</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-master-list-of-best-mp4-players-for-2024/"><u>[Updated] Master List of Best MP4 Players for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-maximize-engagement-with-these-instagram-story-tips/"><u>2024 Approved Maximize Engagement with These Instagram Story Tips</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-why-are-my-instagram-videos-playing-sideways-seeking-answers/"><u>In 2024, Why Are My Instagram Videos Playing Sideways - Seeking Answers</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/simplify-your-tech-life-capture-and-store-youtube-streaming-effortlessly-for-2024/"><u>Simplify Your Tech Life Capture and Store YouTube Streaming Effortlessly for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/turing-complex-topics-in-youtube-content-a-chapter-by-chapter-approach-for-2024/"><u>Structuring Complex Topics in YouTube Content A Chapter by Chapter Approach for 2024</u></a></li>
 </ul></div>
 

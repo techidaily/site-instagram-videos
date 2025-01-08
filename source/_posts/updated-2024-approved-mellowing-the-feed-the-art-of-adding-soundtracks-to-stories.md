@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Mellowing the Feed  The Art of Adding Soundtracks to Stories\""
-date: 2024-12-27T23:11:24.183Z
-updated: 2024-12-29T02:44:21.550Z
+date: 2025-01-01T23:44:16.129Z
+updated: 2025-01-08T01:28:24.854Z
 tags:
   - ai video
   - ai instagram
@@ -31,6 +31,10 @@ If you are also an avid Instagram user who would like to post stories on the app
 
 ![ Instagram Logo](https://images.wondershare.com/filmora/article-images/ig-logo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## A Step-by-step Guide for Adding Music to IG Story
 
 To make it easier for us to post interesting stories, Instagram has come up with the Music feature. Using it, we can look for tons of popular songs in different languages and add our favorite snippets to our story. Presently, the feature of Instagram Music is available for English, German, French, Hindi, and a few other local languages. Also, you can post a snippet of at most 15 seconds since that is the maximum duration of an Instagram story. To learn how to add music to the IG story, you can follow these simple steps right away:
@@ -45,6 +49,10 @@ This will launch a dedicated interface for Instagram Story. Here, you can use yo
 
 ![ Add Music](https://images.wondershare.com/filmora/article-images/select-music.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 2. Select any song of your choice
 
 As of now, Instagram music has an extensive catalog with millions of songs in different languages and genres. As you would tap on the “Music” option, it will automatically suggest numerous songs that are trending. If you want, you can tap on the search bar and enter keywords for songs, artists, albums, etc. to look for anything specific.
@@ -55,15 +63,15 @@ Once you find the song of your choice, just tap on it and it will be loaded on t
 
 ![ View Lyrics](https://images.wondershare.com/filmora/article-images/view-lyrics.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 3. Make optional edits to customize the story
 
 If you want, you can just post the song right away after learning how to put music on IG story. Though, a lot of people would like to make changes in the story to make it look presentable. For instance, you can see a timer (that is set to 15 seconds by default) at the bottom-left panel. Just tap on it and adjust the duration for your story that can be anywhere from 2 to 15 seconds.
 
 ![ Edit IG Story](https://images.wondershare.com/filmora/article-images/edit-story.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 After when you add music to IG story, you can further change how it looks. You can see different ways to display the lyrics right above the snippet selection. If you want, you can zoom in or out the text and move it to display it the way you like. Furthermore, there is a color radiant option on the top that you can select to change the text color and background.
 
@@ -74,7 +82,7 @@ If you don’t want to display the lyrics, then just swipe the text options at t
 ![ Display Options of IG Story Music](https://images.wondershare.com/filmora/article-images/display-options-of-music.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 4. Post your IG Story on your Profile
@@ -82,10 +90,6 @@ If you don’t want to display the lyrics, then just swipe the text options at t
 That’s it! In this way, you can learn how to add music to IG story and customize it however you like. If you are satisfied with the changes, then just tap on the “Send to” option to get different ways to share your story. You can send it to any selective friend, post it just for your close friends, or share your IG story for all followers.
 
 ![ Share Your IG Story](https://images.wondershare.com/filmora/article-images/share-your-ig-story.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Create Stunning IG Stories to Captivate Your Audience?
 
@@ -98,7 +102,7 @@ Boomerangs are extremely popular in Instagram stories due to their quick yet int
 ![ Boomerangs & Layouts](https://images.wondershare.com/filmora/article-images/boomerangs-layouts.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Use inbuilt Instagram filters
@@ -112,10 +116,6 @@ Instagram also keeps rotating different filters that we can add to our stories. 
 Apart from adding music, Instagram also lets us add tons of other things to our story. You can mention any other user in your story or add a location to get more views. There are also options to add a hashtag or create a poll. You can also find different challenges to explore (like the ice bucket challenge) to post your story under a specific category.
 
 ![ Add Polls and More](https://images.wondershare.com/filmora/article-images/add-polls-challenges.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### Ask questions to interact with your audience
 
@@ -146,24 +146,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-mastering-automatic-subtitles-for-instagram-stories-and-reels/"><u>[New] 2024 Approved Mastering Automatic Subtitles for Instagram Stories & Reels</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-enhance-reach-the-top-10-highlight-strategies-unveiled/"><u>[New] In 2024, Enhance Reach The Top 10 Highlight Strategies Unveiled</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-how-to-blur-faces-or-objects-in-youtube-videos/"><u>[New] In 2024, How to Blur Faces or Objects in YouTube Videos</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-the-art-of-story-lensing-smart-zooms-on-instagram/"><u>[New] The Art of Story Lensing Smart Zooms on Instagram</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-the-essential-guide-to-cinematic-instagram-videos/"><u>[New] The Essential Guide to Cinematic Instagram Videos</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-top-8-tools-for-efficiently-planning-instagram-content-for-2024/"><u>[New] Top 8 Tools for Efficiently Planning Instagram Content for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-circling-success-how-to-captivate-your-instagram-audience/"><u>[Updated] 2024 Approved Circling Success How to Captivate Your Instagram Audience</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-effortless-voice-memo-recording-on-your-iphone-for-2024/"><u>[Updated] Effortless Voice Memo Recording on Your iPhone for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-does-m1-make-a-difference-for-film-and-media-editors/"><u>[Updated] In 2024, Does M1 Make a Difference for Film and Media Editors?</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-navigating-the-maze-of-insta-story-downloads/"><u>[Updated] Navigating the Maze of Insta Story Downloads</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-recording-showdown-the-battle-for-the-best-screen-grabber/"><u>[Updated] Recording Showdown The Battle for the Best Screen Grabber</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/2024-approved-initiating-live-channels-your-comprehensive-guide/"><u>2024 Approved Initiating Live Channels Your Comprehensive Guide</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-social-network-harmony-integrating-instagram-and-facebook/"><u>2024 Approved Social Network Harmony Integrating Instagram & Facebook</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-top-3-best-ios-video-editors-free-tips-and-guides/"><u>2024 Approved Top 3 Best iOS Video Editors FREE Tips & Guides</u></a></li>
-<li><a href="https://location-social.techidaily.com/does-nokia-105-classic-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>Does Nokia 105 Classic Have Find My Friends? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-zte-axon-40-lite-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For ZTE Axon 40 Lite? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/interpreting-silent-participants-in-group-chats/"><u>Interpreting Silent Participants in Group Chats</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/sizing-up-how-to-make-videos-work-in-instagram-bests-for-2024/"><u>Sizing Up How to Make Videos Work in Instagram Bests for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/top-3-premium-phones-excelling-in-quality-video-capture-for-2024/"><u>Top 3 Premium Phones Excelling in Quality Video Capture for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-achieving-harmony-selecting-ideal-aspect-ratios-for-2024/"><u>[New] Achieving Harmony Selecting Ideal Aspect Ratios for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-counteract-bot-visitors-for-real-audience-growth-for-2024/"><u>[New] Counteract Bot Visitors for Real Audience Growth for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-join-the-giggle-roll-and-tearful-talks-on-instagram-memes/"><u>[New] In 2024, Join the Giggle-Roll and Tearful Talks on Instagram Memes</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-quick-guide-streamlining-video-calls-on-xbox-one-for-2024/"><u>[New] Quick Guide Streamlining Video Calls on Xbox One for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-beyond-the-surface-what-you-dont-know-about-stories/"><u>[Updated] 2024 Approved Beyond the Surface What You Don't Know About Stories</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-srgb-and-traditional-rgb-rendering-for-2024/"><u>[Updated] Srgb and Traditional Rgb Rendering for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-compass-for-content-creators-steering-towards-viral-instagram-success/"><u>[Updated] The Compass for Content Creators Steering Towards Viral Instagram Success</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-ultimate-gear-for-action-cams-a-shoppers-companion-for-2024/"><u>[Updated] Ultimate Gear for Action Cams A Shopper's Companion for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-breathe-life-into-images-step-by-step-text-editing-guide/"><u>2024 Approved Breathe Life Into Images Step-by-Step Text Editing Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-image-improvement-masterclass-top-apps-decoded/"><u>2024 Approved Image Improvement Masterclass - Top Apps Decoded</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/esteemed-creators-best-of-breed-insta-hlv-makers/"><u>Esteemed Creators Best-of-Breed Insta HLV Makers</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-itel-p55-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Itel P55 | Dr.fone</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-do-you-want-to-make-video-metadata-on-mac-here-you-will-know-8-best-video-metadata-editors-for-mac-they-are-easy-to-use-for-beginners-chec/"><u>New 2024 Approved Do You Want to Make Video Metadata on Mac? Here You Will Know 8 Best Video Metadata Editors for Mac. They Are Easy to Use for Beginners. Check It Out</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/sharing-youtube-content-seamlessly-in-instagram-stories-for-2024/"><u>Sharing YouTube Content Seamlessly in Instagram Stories for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/your-guide-to-stellar-igtv-talent/"><u>Your Guide to Stellar IGTV Talent</u></a></li>
 </ul></div>
 
