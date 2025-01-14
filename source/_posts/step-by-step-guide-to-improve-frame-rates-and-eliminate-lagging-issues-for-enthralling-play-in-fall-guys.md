@@ -1,7 +1,7 @@
 ---
 title: Step-by-Step Guide to Improve Frame Rates & Eliminate Lagging Issues for Enthralling Play in Fall Guys
-date: 2025-01-02T21:57:44.580Z
-updated: 2025-01-07T21:37:41.699Z
+date: 2025-01-09T02:09:14.116Z
+updated: 2025-01-14T10:52:18.412Z
 tags:
   - win11
   - win10
@@ -34,10 +34,6 @@ thumbnail: https://thmb.techidaily.com/00e6416ee52e959bd4b417b088ce280ff84f1d381
 7. **[Set the Power Plan of your PC for high performance](https://tools.techidaily.com/drivereasy/download/)**
 8. [**Adjust your Windows system for the best performance**](https://tools.techidaily.com/drivereasy/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Fix 1: Update your graphics driver
 
  Updating drivers should always be your go-to option when you’re experiencing in-game fps drops. Whether you choose to update the device drivers manually, using Windows Update, or you use a trusted third party product, it’s essential that you have the latest correct device drivers for your operating system at all times.
@@ -63,6 +59,10 @@ thumbnail: https://thmb.techidaily.com/00e6416ee52e959bd4b417b088ce280ff84f1d381
 ![Update graphics drivers with Driver Easy](https://images.drivereasy.com/wp-content/uploads/2020/09/de-update-all-rtx-3080.jpg)
 4. Once the driver is updated, reboot your PC for the changes to take effect.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **The Pro version of Driver Easy** comes with _full technical support_ . If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
 
  See if the latest graphics driver fix the Resident Evil Village fps drops. If this fix doesn’t work for you, try the next fix, below.
@@ -70,6 +70,10 @@ thumbnail: https://thmb.techidaily.com/00e6416ee52e959bd4b417b088ce280ff84f1d381
 ## Fix 2: Optimize GPU Settings
 
  If the in-game FPS doesn’t imrpove much after you updated your graphics driver, you may need to tweak the graphics settings. Here’s how to do it:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Step 1: Tweak your graphics card settings
 
@@ -95,15 +99,7 @@ For AMD users, follow the steps below:
 2. Go to **Gaming** **\>** **Global Settings** . Then modify the settings the same way you see on the screenshot below.  
 ![AMD Radeon Settings](https://images.drivereasy.com/wp-content/uploads/2018/12/AMD-Radeon-Settings.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Launch the game to see the fps increases. If not, move on to modify Windows 10 OS graphics settings.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Step 2: Modify Windows 10 OS graphics settings
 
@@ -112,6 +108,10 @@ Simply follow the steps below to modify Windows 10 OS graphics settings:
 1. On your keyboard, press **the Windows logo key** and type **graphics settings** . Then select **Graphics settings** from the list of search results to open it.  
 ![search graphics settings Windows 10](https://images.drivereasy.com/wp-content/uploads/2021/04/search-graphics-settings-Windows-10.jpg)
 2. In the Graphics settings window, click **Browse** to open **File Explorer** .  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![Windows 10 graphics settings](https://images.drivereasy.com/wp-content/uploads/2021/05/Windows-10-graphics-settings.jpg)
 3. Then go to **the drive where you save Resident Evil Village game files** \> **Program Files (x86)** or **Program Files** \> **Steam** \> **steamapps** \> **common** \> **Resident Evil Village** game folder, double-click **the .exe file** of Resident Evil Village to add the game.
@@ -122,7 +122,7 @@ Simply follow the steps below to modify Windows 10 OS graphics settings:
  Restart the game to see if it runs smoothly. If not, you may need to move on and modify the in-game graphics settings.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 3: Modify in-game graphics settings
@@ -133,15 +133,7 @@ Simply follow the steps below to modify Windows 10 OS graphics settings:
 2. Tweak the settings one by one until you find the graphics profile that suits your hardware and ganrantees a good gaming experience.  
 ![Resident Evil Village in-game graphics settings](https://images.drivereasy.com/wp-content/uploads/2021/05/Resident-Evil-Village-in-game-graphics-settings.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Restart the game to check if the Resident Evil Village fps drops again. If this issue persists, try the next fix, below.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Fix 3: Install the latest game patch
 
@@ -162,10 +154,14 @@ Simply follow the steps below to modify Windows 10 OS graphics settings:
 ![Disable the Steam Overlay for Resident Evil Village](https://images.drivereasy.com/wp-content/uploads/2021/05/Disable-the-Steam-Overlay-for-Resident-Evil-Village.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Launch Resident Evil Village to see if the game runs smoothly. If the issue persists, try the next fix, below.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Fix 5: Set Resident Evil Village to High priority
 
@@ -178,10 +174,6 @@ To set Resident Evil Village to High priority:
 3. Navigate to the **Detail** tab. **Right-click** the **main process of Resident Evil Village** and select **High** .  
 ![Resident Evil Village high priority](https://images.drivereasy.com/wp-content/uploads/2021/05/Resident-Evil-Village-high-priority.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Restart the game to see if the in-game FPS improves. If the FPS is still the same, try the next fix, below.
 
 ## Fix 6: Close resource-hogging apps
@@ -191,6 +183,10 @@ To set Resident Evil Village to High priority:
 1. On your keyboard, press **Ctrl** , **Shift** and **Esc** at the same time to open **Task Manager** . You will be prompted for permission. Click **Yes** to open Task Manager.
 2. Select any other applications and programs that take up a large amount of **CPU** , **memory** and **network**  and then click **End task**  to close it.  
 ![End task](https://images.drivereasy.com/wp-content/uploads/2019/07/Task-Manager.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Run Resident Evil Village to see if you can play the game smoothly. if not, try the next fix, below.
 
@@ -208,10 +204,6 @@ To set Resident Evil Village to High priority:
 
 ![control panel power options](https://images.drivereasy.com/wp-content/uploads/2019/07/control-panel-power-options.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Launch Resident Evil Village to check if the in-game fps improves.
 
 ## Fix 8: Adjust your Windows system for the best performance
@@ -222,11 +214,15 @@ Launch Resident Evil Village to check if the in-game fps improves.
 ![run SystemPropertiesAdvanced](https://images.drivereasy.com/wp-content/uploads/2021/05/run-SystemPropertiesAdvanced.jpg)
 2. Under the**Advanced** tab, click the Settings… button in the**Performance** section.  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Advanced Performance Settings](https://images.drivereasy.com/wp-content/uploads/2021/05/Advanced-Performance-Settings.jpg)
 3. Under the**Visual Effects** tab, select**Adjust for best performance** and click**OK** .  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Adjust Windows for best performance](https://images.drivereasy.com/wp-content/uploads/2021/05/Adjust-Windows-for-best-performance.jpg)
@@ -236,6 +232,10 @@ Launch Resident Evil Village to see if you get a better in-game fps.
 ---
 
  Hopefully, this article helped you fix the fps drops issue in Resident Evil Village. If you have any questions or suggestions on this issue, you’re more than welcome to leave us a comment below. Thanks for reading!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## You may also like…
 
@@ -259,20 +259,24 @@ Launch Resident Evil Village to see if you get a better in-game fps.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-the-essence-of-sound-diminishment-a-lumafusion-insight/"><u>[New] 2024 Approved The Essence of Sound Diminishment A Lumafusion Insight</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-cropping-and-styling-tips-for-standout-instagram-videos-for-2024/"><u>[New] Cropping and Styling Tips for Standout Instagram Videos for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-flip-the-script-mastering-instagram-video-replay/"><u>[New] In 2024, Flip the Script Mastering Instagram Video Replay</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-dissecting-vidmas-screen-recorder-performance/"><u>[Updated] 2024 Approved Dissecting Vidma’s Screen Recorder Performance</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-the-storytellers-edge-integrating-youtube-vids-with-ig/"><u>[Updated] In 2024, The Storyteller's Edge Integrating YouTube Vids with IG</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-tips-for-disconnecting-unfollowing-on-instagram/"><u>[Updated] Tips for Disconnecting Unfollowing on Instagram</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-instagram-videos-how-long-can-they-be/"><u>2024 Approved Instagram Videos - How Long Can They Be?</u></a></li>
-<li><a href="https://win-rankings.techidaily.com/1732510821688-yl/"><u>现金流管理：实时网格方法教程—由 YL 计算机演绎</u></a></li>
-<li><a href="https://win-remarkable.techidaily.com/convert-mp4-videos-into-swf-format-without-cost-effortless-with-moveave/"><u>Convert MP4 Videos Into SWF Format without Cost: Effortless with Moveave</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/elite-preview-screenplay-series/"><u>Elite Preview Screenplay Series</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/impeccable-photo-editing-using-the-virtual-background-effect-on-instagram-for-2024/"><u>Impeccable Photo Editing Using the Virtual Background Effect on Instagram for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-remove-the-lock-screen-fingerprint-of-your-vivo-y100i-by-drfone-android/"><u>In 2024, Remove the Lock Screen Fingerprint Of Your Vivo Y100i</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-the-ultimate-guide-to-instagram-video-campaigns-strategy-and-execution/"><u>In 2024, The Ultimate Guide to Instagram Video Campaigns Strategy and Execution</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/reviving-your-xbox-one-gameplay-a-step-by-step-guide-to-resync-a-controller/"><u>Reviving Your Xbox One Gameplay – A Step-by-Step Guide to Resync a Controller</u></a></li>
-<li><a href="https://apple-account.techidaily.com/tips-and-tricks-for-apple-id-locked-issue-on-iphone-14-pro-by-drfone-ios/"><u>Tips and Tricks for Apple ID Locked Issue On iPhone 14 Pro</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-visual-storytelling-and-auditory-art-converting-instagrams-to-songs/"><u>[New] 2024 Approved Visual Storytelling & Auditory Art Converting Instagrams to Songs</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/orrect-yt-monetization-checklist-maximize-your-earnings/"><u>[New] Correct YT Monetization Checklist – Maximize Your Earnings</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-elevate-followers-with-effective-igtv-hashtag-techniques/"><u>[New] Elevate Followers with Effective IGTV Hashtag Techniques</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-precision-image-editing-on-iphone-with-best-apps-for-object-elimination/"><u>[New] In 2024, Precision Image Editing on iPhone with Best Apps for Object Elimination</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-the-instagram-virtuosos-playbook-for-widespread-popularity/"><u>[Updated] 2024 Approved The Instagram Virtuoso's Playbook for Widespread Popularity</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-direct-tiktok-download-remove-watermarks-convert-to-mp4/"><u>[Updated] Direct TikTok Download Remove Watermarks, Convert to MP4</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-how-to-effectively-share-youtube-links-on-instagrams-story-feature/"><u>[Updated] In 2024, How to Effectively Share YouTube Links on Instagram's Story Feature</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-simplified-speech-to-text-integration-into-visual-content/"><u>[Updated] Simplified Speech-to-Text Integration Into Visual Content</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-compreenasional-path-to-post-perfection-instagram-video-upload-from-pcmac/"><u>[Updated] The Compreenasional Path to Post-Perfection Instagram Video Upload From PC/Mac</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/climbing-the-viewership-ladder-with-igtv-strategies-to-succeed-for-2024/"><u>Climbing the Viewership Ladder with IGTV Strategies to Succeed for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/elevating-your-instagram-experience-through-smart-archiving/"><u>Elevating Your Instagram Experience Through Smart Archiving</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-guide-to-mirror-your-oppo-a2-to-other-android-devices-drfone-by-drfone-android/"><u>In 2024, Guide to Mirror Your Oppo A2 to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-activate-and-use-life360-ghost-mode-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Activate and Use Life360 Ghost Mode On Realme 11X 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-launchpad-to-success-establishing-your-own-food-flavor-blogchannel/"><u>In 2024, Launchpad to Success Establishing Your Own Food Flavor Blog/Channel</u></a></li>
+<li><a href="https://extra-information.techidaily.com/is-insta360-x3-superior-to-dji-and-gopro-in-capturing-lifes-moments/"><u>Is Insta360 X3 Superior to DJI and GoPro in Capturing Life’s Moments?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/revamped-marshall-for-anc-captivating-looks-plus-infectious-beats/"><u>Revamped Marshall for ANC: Captivating Looks + Infectious Beats</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/sync-your-sound-instagrams-musical-world/"><u>Sync Your Sound Instagram's Musical World</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/unlock-your-realme-11-propluss-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>Unlock Your Realme 11 Pro+s Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
+<li><a href="https://common-error.techidaily.com/windows-11-runtime-broker-causing-high-cpu-errors-heres-how-you-can-fix-it-quickly/"><u>Windows 11 Runtime Broker Causing High CPU Errors? Here's How You Can Fix It Quickly</u></a></li>
 </ul></div>
 

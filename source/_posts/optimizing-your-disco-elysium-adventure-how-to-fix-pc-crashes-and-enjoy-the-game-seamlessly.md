@@ -1,7 +1,7 @@
 ---
 title: "Optimizing Your Disco Elysium Adventure: How to Fix PC Crashes & Enjoy the Game Seamlessly"
-date: 2025-01-02T00:43:37.053Z
-updated: 2025-01-08T01:22:42.745Z
+date: 2025-01-08T11:49:32.468Z
+updated: 2025-01-14T03:29:33.408Z
 tags:
   - win11
   - win10
@@ -21,10 +21,6 @@ A screenshot of Ghostwire: Tokyo from Steam
 
  **If Ghostwire: Tokyo keeps crashing on your PC, don’t worry. You’ve come to the right place.** This post offers a complete guide that covers the latest solutions on how to fix the**Ghostwire: Tokyo** crashing issues on Windows computer. After reading it, you should be able to fix this issue on your own quickly and easily!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Try these fixes
 
  Although the causes of Ghostwire: Tokyo crashing issue vary from player to player, here we’ve gathered the latest fixes for the crashing issue. **Whether Ghostwire: Tokyo crashes on startup (or the game won’t launch) or crashes in the middle of the game, you can find a fix to try in this article.**
@@ -38,10 +34,6 @@ A screenshot of Ghostwire: Tokyo from Steam
 7. **[Disable Steam Overlay](https://tools.techidaily.com/drivereasy/download/)**
 8. **[Disable third-party antivirus software](https://tools.techidaily.com/drivereasy/download/)**
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Fix 1: Verify the game files
 
  Game file corruption are usually the culprit for the game crashing issues. If you’re not sure if any game files are missing or corrupted on your PC, you can follow the instructions below to verify integrity of game files:
@@ -52,10 +44,14 @@ A screenshot of Ghostwire: Tokyo from Steam
 3. Click **LOCAL FILES** on the left, then click **Verify integrity of game files…** . If Steam finds anything wrong with the game files, it will re-download them from its official server.  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![verify the integrity of game files](https://images.drivereasy.com/wp-content/uploads/2021/04/F1-2020-verify-the-integrity-of-game-files.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Depending on the size of the game files, it may take some time to verify all your game files.
 
@@ -104,7 +100,7 @@ Or
 3. Click**Update All** to automatically download and install the correct version of_all_ the drivers that are missing or out of date on your system.  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Update graphics drivers with Driver Easy](https://images.drivereasy.com/wp-content/uploads/2020/09/de-update-all-rtx-3080.jpg)  
@@ -136,17 +132,17 @@ Or
 3. Fortect will scan your computer thoroughly. This may take a few minutes.  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/fortect-2.jpg)
 4. Once done, you’ll see a detailed report of all the issues on your PC. To fix them automatically, click**START REPAIR** . This requires you to purchase the full version. But don’t worry. If Fortect doesn’t solve the issue, you can request a refund within 60 days.  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/fortect-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Fortect comes with 24/7 Technical Support. If you need any assistance, you can use one of the following:  
 **Email:** <support@fortect.com>  
@@ -159,6 +155,10 @@ Or
  If a patch is available, it will be detected by Steam, and the latest game patch will be automatically downloaded and installed when you run the game.
 
  Run Ghostwire: Tokyo and see if the game crashing issue has been resolved. If it hasn’t, or there was no new game patch available, move on to next fix, below.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Fix 5: Install the latest DirectX files
 
@@ -196,7 +196,7 @@ Or
 2. Uncheck **Enable Steam Overlay while in-game** .  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![disable steam overlay](https://images.drivereasy.com/wp-content/uploads/2021/05/disable-steam-overlay.jpg)
@@ -236,17 +236,24 @@ Or
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-2024-approved-mastering-iphone-capturing-time-stretched-movies/"><u>[New] 2024 Approved Mastering iPhone Capturing Time-Stretched Movies</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-boost-your-earnings-on-youtube-shorts-a-guide-for-2024/"><u>[New] Boost Your Earnings on YouTube Shorts A Guide for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-boost-your-instagram-game-macs-automated-video-resizing-for-2024/"><u>[New] Boost Your Instagram Game Mac's Automated Video Resizing for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-glow-up-guide-for-the-social-savvy-top-three-highlighters-on-instagram-for-2024/"><u>[New] Glow-Up Guide for the Social Savvy Top Three Highlighters on Instagram for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-start-chatting-in-real-time-learn-live-on-instagram/"><u>[New] In 2024, Start Chatting in Real-Time Learn Live on Instagram</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-visionparts-examination/"><u>[New] VisionParts Examination</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-excellence-in-endless-data-archiving-services/"><u>[Updated] 2024 Approved Excellence in Endless Data Archiving Services</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-motion-graphics-basic-knowledge-and-usage/"><u>[Updated] 2024 Approved Motion Graphics Basic Knowledge and Usage</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-conquering-camera-quality-with-size-tweaks-on-iphone/"><u>[Updated] Conquering Camera Quality with Size Tweaks on iPhone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-tailoring-the-frame-how-to-optimize-videography-for-instagram/"><u>2024 Approved Tailoring the Frame How to Optimize Videography for Instagram</u></a></li>
-<li><a href="https://win-able.techidaily.com/masterclass-on-overcoming-bugs-in-ac-syndicate-top-fixes-and-updates-released-games/"><u>Masterclass on Overcoming Bugs in AC Syndicate - Top Fixes and Updates Released Games</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-10-telegram-spy-tools-on-infinix-note-30-5g-for-parents-drfone-by-drfone-virtual-android/"><u>Top 10 Telegram Spy Tools On Infinix Note 30 5G for Parents | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-crescendo-creations-adding-audio-magic-to-instagram-stories/"><u>[New] 2024 Approved Crescendo Creations Adding Audio Magic to Instagram Stories</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-disabling-igtv-on-instagram/"><u>[New] 2024 Approved Disabling IGTV on Instagram</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-becoming-an-expert-at-obs-studio-android-focus-for-2024/"><u>[New] Becoming an Expert at OBS Studio Android Focus for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-instagram-video-descriptions-the-key-to-threefold-success-for-2024/"><u>[New] Instagram Video Descriptions - The Key to Threefold Success for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-rotate-for-results-instagram-video-alchemy-for-2024/"><u>[New] Rotate for Results Instagram Video Alchemy for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-audio-alchemy-transforming-instagram-videos-with-sound/"><u>[Updated] Audio Alchemy Transforming Instagram Videos with Sound</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-from-passive-to-active-earnings-with-instagram-expertise-for-2024/"><u>[Updated] From Passive to Active Earnings with Instagram Expertise for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-vibrant-video-vibes-merging-melodies-with-media/"><u>[Updated] In 2024, Vibrant Video Vibes Merging Melodies with Media</u></a></li>
+<li><a href="https://some-tips.techidaily.com/deep-displeasure-with-an-airline-experience-not-just-about-southwest/"><u>Deep Displeasure with an Airline Experience - Not Just About Southwest</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/disabling-iphone-8-parental-restrictions-withwithout-password-drfone-by-drfone-ios/"><u>Disabling iPhone 8 Parental Restrictions With/Without Password | Dr.fone</u></a></li>
+<li><a href="https://driver-install.techidaily.com/enhancing-pc-functionality-with-updated-msi-drivers-and-bios/"><u>Enhancing PC Functionality with Updated MSI Drivers and BIOS</u></a></li>
+<li><a href="https://win-able.techidaily.com/expert-advice-on-speeding-up-your-steam-gameplay-experience/"><u>Expert Advice on Speeding Up Your Steam Gameplay Experience</u></a></li>
+<li><a href="https://win-able.techidaily.com/fixing-the-graphics-driver-glitch-on-oculus-devices/"><u>Fixing the Graphics Driver Glitch on Oculus Devices</u></a></li>
+<li><a href="https://driver-download.techidaily.com/hassle-free-setup-acquiring-and-implementing-the-intel-wireless-ac-pertinent-driver/"><u>Hassle-Free Setup: Acquiring and Implementing the Intel Wireless-AC Pertinent Driver</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-oneplus-ace-2v-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For OnePlus Ace 2V | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/leveraging-url-posts-for-maximum-impact-on-insta-storypost/"><u>Leveraging URL Posts for Maximum Impact on Insta Story/Post</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/mitigating-risks-in-gpt-based-interactions/"><u>Mitigating Risks in GPT-Based Interactions</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/transforming-igtv-with-multi-language-captioning-for-2024/"><u>Transforming IGTV with Multi-Language Captioning for 2024</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-in-2024-movie-magic-on-the-go-top-ios-apps-for-trailers/"><u>Updated In 2024, Movie Magic on the Go Top iOS Apps for Trailers</u></a></li>
 </ul></div>
 

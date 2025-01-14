@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Crafting Memes  Perfecting Social Media Videos on FB & Insta\""
-date: 2025-01-06T20:43:33.812Z
-updated: 2025-01-07T23:51:50.913Z
+date: 2025-01-11T02:31:50.441Z
+updated: 2025-01-14T08:48:33.228Z
 tags:
   - ai video
   - ai instagram
@@ -32,16 +32,12 @@ thumbnail: https://thmb.techidaily.com/a6de986a3fdb94c7142abb7e1738397c8994a30f4
 * [**Part1: Facebook and Instagram specs**](#part1)
 * [**Part2: How to make a video meme for Facebook and Instagram**](#part2)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Facebook and Instagram specs
 
  Before knowing how to make a video meme for Instagram/Facebook, how about understanding their specs on both the platforms and get the best out of it? It is of utmost importance to know the social media specs before venturing into video marketing in these platforms.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Facebook
@@ -67,7 +63,7 @@ thumbnail: https://thmb.techidaily.com/a6de986a3fdb94c7142abb7e1738397c8994a30f4
 * Link description is 30 characters max with 25 characters long headline.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Instagram
@@ -78,6 +74,10 @@ thumbnail: https://thmb.techidaily.com/a6de986a3fdb94c7142abb7e1738397c8994a30f4
 * Likewise, the aspect ratios for landscape, vertical, and square is 1.91:1, 1:1, and 4:5 respectively.
 * The video formats, maximum file size and maximum frames are same as Facebook videos. Though, the video size is only 60 seconds.
 * Maximum caption and recommended are 2,200 and 125 characters respectively.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to make a video meme for Facebook and Instagram step by step
 
@@ -91,10 +91,6 @@ thumbnail: https://thmb.techidaily.com/a6de986a3fdb94c7142abb7e1738397c8994a30f4
 
 ![import meme](https://images.wondershare.com/filmora/article-images/drag-memes-filmora-meme-maker.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 2**: Go to the meme editor page. Click the tools from left and customize the meme. The preview window shows the changes. Try playing with fonts and texts with funny content.
 
 **Tips**: Crafting quips can make your meme more popular on Facebook and Instagram.
@@ -106,7 +102,11 @@ thumbnail: https://thmb.techidaily.com/a6de986a3fdb94c7142abb7e1738397c8994a30f4
 ![export meme](https://images.wondershare.com/filmora/article-images/export-memes-filmora-meme-maker.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Bottom Line
@@ -130,22 +130,19 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-a-comprehensive-approach-to-mastering-the-art-of-instagram-reels/"><u>[New] 2024 Approved A Comprehensive Approach to Mastering the Art of Instagram Reels</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-easy-steps-to-extract-instagram-video-files-from-pcmac/"><u>[New] 2024 Approved Easy Steps to Extract Instagram Video Files From PC/Mac</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-take-your-fb-videos-from-small-to-grand-in-a-click/"><u>[New] 2024 Approved Take Your FB Videos From Small to Grand in a Click</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-a-step-by-step-technique-for-instagram-savings/"><u>[New] A Step-by-Step Technique for Instagram Savings</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-best-streaming-setup-leading-livestream-hardware-and-software-guide-for-2024/"><u>[New] Best Streaming Setup Leading Livestream Hardware & Software Guide for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-step-by-step-guide-to-reverse-image-searching-on-instagram/"><u>[New] In 2024, Step-by-Step Guide to Reverse Image Searching on Instagram</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ourney-beyond-reality-the-best-of-youtubes-virtual-worlds-for-2024/"><u>[New] Journey Beyond Reality The Best of YouTube’s Virtual Worlds for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-expert-video-upload-techniques-for-youtube-via-premiere-for-2024/"><u>[Updated] Expert Video Upload Techniques for YouTube via Premiere for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-fight-or-flight-digital-duels-decoded/"><u>[Updated] Fight or Flight Digital Duels Decoded</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-how-to-create-a-square-video-for-instagram-in-imovie-for-2024/"><u>[Updated] How to Create a Square Video for Instagram in iMovie for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-how-to-post-a-vimeo-video-on-instagram-for-2024/"><u>[Updated] How to Post a Vimeo Video on Instagram for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-the-essential-tips-for-subtitling-stories-on-instagram/"><u>[Updated] The Essential Tips for Subtitling Stories on Instagram</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-uncomplicated-methods-for-archiving-vimeo-content-for-2024/"><u>[Updated] Uncomplicated Methods for Archiving Vimeo Content for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-safeguard-your-memories-saving-instagram-on-iphone/"><u>2024 Approved Safeguard Your Memories Saving Instagram on iPhone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/about-vivo-v30-lite-5g-frp-bypass-by-drfone-android/"><u>About Vivo V30 Lite 5G FRP Bypass</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/is-fake-gps-location-spoofer-a-good-choice-on-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>Is Fake GPS Location Spoofer a Good Choice On Honor X50 GT? | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/top-7-skype-hacker-to-hack-any-skype-account-on-your-xiaomi-14-pro-drfone-by-drfone-virtual-android/"><u>Top 7 Skype Hacker to Hack Any Skype Account On your Xiaomi 14 Pro | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-sharing-sites-guide-for-instagram-story-and-post-links/"><u>[New] In 2024, Sharing Sites Guide for Instagram Story and Post Links</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-tailoring-eye-catching-instagram-highlight-summaries/"><u>[New] Tailoring Eye-Catching Instagram Highlight Summaries</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-best-value-in-4k-cameras-for-under-1000/"><u>[Updated] In 2024, Best Value in 4K Cameras for Under $1,000</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-tall-screen-editing-made-easy-using-fcpx-on-instagram/"><u>[Updated] Tall Screen Editing Made Easy Using FCPX on Instagram</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-the-motivational-lens-capturing-stirring-scenes-on-ig/"><u>2024 Approved The Motivational Lens Capturing Stirring Scenes on IG</u></a></li>
+<li><a href="https://some-tips.techidaily.com/affordable-alternative-how-this-expert-reviewed-xr-glasses-overcame-app-vision-shortcomings-for-less/"><u>Affordable Alternative: How This Expert Reviewed XR Glasses Overcame App Vision Shortcomings for Less!</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/anime-inspired-filters-and-overlays-for-trendy-tiktok-videos-for-2024/"><u>Anime-Inspired Filters & Overlays for Trendy TikTok Videos for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-vivo-t2x-5g-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your Vivo T2x 5G Location Settings | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-dynamic-igtv-covers-design-and-update-strategies/"><u>In 2024, Dynamic IGTV Covers Design & Update Strategies</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-stream-smart-10-must-know-rules-for-regular-vlogging/"><u>In 2024, Stream Smart 10 Must-Know Rules for Regular Vlogging</u></a></li>
+<li><a href="https://win-awesome.techidaily.com/solving-audio-issues-on-your-pc-expert-tips-from-yl-computing/"><u>Solving Audio Issues on Your PC - Expert Tips From YL Computing</u></a></li>
+<li><a href="https://techtrends.techidaily.com/solving-x3daudiodll-file-missing-issues-a-comprehensive-guide/"><u>Solving x3daudio.dll File Missing Issues: A Comprehensive Guide</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-photos-from-10t-5g-by-fonelab-android-recover-photos/"><u>Undelete lost photos from 10T 5G.</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/testimonials-ios-vs-android-youtube-watching-habits-for-2024/"><u>User Testimonials IOS vs Android YouTube Watching Habits for 2024</u></a></li>
 </ul></div>
 

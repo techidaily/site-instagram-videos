@@ -1,7 +1,7 @@
 ---
 title: "Silence Broken: Effective Solutions for PC Sound Failures in the World of Valheim"
-date: 2025-01-03T01:55:27.415Z
-updated: 2025-01-08T02:03:09.925Z
+date: 2025-01-10T09:58:31.293Z
+updated: 2025-01-14T09:00:40.380Z
 tags:
   - win11
   - win10
@@ -17,10 +17,6 @@ thumbnail: https://thmb.techidaily.com/d3b9fa260885ec727c421c1f7392781651fabce3d
 
 **Voice chat is not working on Apex Legends** ? This can be so frustrating. But don’t worry, it’s often not hard to fix at all…
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to fix Apex Legends Voice Chat Not Working
 
  Here are 6 fixes that have helped other users resolve the**Apex Legends voice chat not working** problem. You may not have to try them all; just work your way down the list until you find the one that works for you.
@@ -31,10 +27,6 @@ thumbnail: https://thmb.techidaily.com/d3b9fa260885ec727c421c1f7392781651fabce3d
 4. **[Configure in-game settings](https://tools.techidaily.com/drivereasy/download/)**
 5. **[Install the latest game patch](https://tools.techidaily.com/drivereasy/download/)**
 6. **[Reinstall Origin and Apex Legends](https://tools.techidaily.com/drivereasy/download/)**
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 1: Allow Origin to access your microphone
 
@@ -50,13 +42,13 @@ thumbnail: https://thmb.techidaily.com/d3b9fa260885ec727c421c1f7392781651fabce3d
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/10/image-246.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  3) Scroll down to**Allow desktop apps to access your microphone** , turn on**the switch** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/10/image-248.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  By doing so, you have allowed Origin the access to the microphone on your computer.
 
@@ -65,7 +57,7 @@ thumbnail: https://thmb.techidaily.com/d3b9fa260885ec727c421c1f7392781651fabce3d
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Fix 2: Update your audio driver
@@ -81,6 +73,10 @@ thumbnail: https://thmb.techidaily.com/d3b9fa260885ec727c421c1f7392781651fabce3d
  2) Run Driver Easy and click the **Scan Now** button. Driver Easy will then scan your computer and detect any problem drivers.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/06/image-35.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  3) Click **Update All** to automatically download and install the correct version of_ALL_ the drivers that are missing or out of date on your system (this requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)** [](https://tools.techidaily.com/drivereasy/download/) – you’ll be prompted to upgrade when you click **Update All** ). Or if you just want to update the audio driver, simply click the **Update** button next to it.
 
@@ -104,6 +100,10 @@ Here’s how to do it:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/10/image-239.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  4) In **Sound** settings, scroll down to the**Input** section, and in**Choose your input device** , make sure the microphone you are actively using is selected. Then,**test your microphone** by speaking into your mic to see if it ‘hears’ anything. If yes, it means you have configured the microphone properly.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/10/image-242.png)
@@ -113,10 +113,6 @@ Here’s how to do it:
 6) Launch Apex Legends to see if the mic not working problem is fixed. If yes, then congrats! If the issue persists, please try**Fix 3** , below.
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 4: Configure in-game settings
 
@@ -128,6 +124,10 @@ Here is how to configure in-game settings:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/10/image-260.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  2) Click**More** \>**VOICE** , then make sure**the microphone you’re using is selected** and**Microphone volum** e is set to**an audio volume** . After that, in**Activation mode** , choose**Push-to-talk** .
 
 ![This image has an empty alt attribute; its file name is image-261-1024x700.png](https://images.drivereasy.com/wp-content/uploads/2019/10/image-261-1024x700.png)
@@ -136,11 +136,19 @@ Here is how to configure in-game settings:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/10/image-262-1024x576.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  4) Again, play Apex Legends to see if the voice chat not working issue is resolved.
 
  Still no joy? Please try**Fix 5** , below.
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 5: Install the latest game patch
 
@@ -149,10 +157,6 @@ Here is how to configure in-game settings:
  If there is no patches available, or the patch fails to address the problem, then please try **Fix 6** , below.
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 6: Reinstall Origin and Apex Legends
 
@@ -167,10 +171,6 @@ Here are the steps:
  2) In the program list, locate **Origin** , then right-click on it and click **Uninstall** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/10/image-175-1024x499.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  4) Locate **Apex Legends** and uninstall it too.
 
@@ -204,18 +204,24 @@ Here are the steps:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-step-up-your-game-expert-tips-on-producing-compelling-slow-motion-photos-and-videos-for-instagram/"><u>[New] In 2024, Step Up Your Game Expert Tips on Producing Compelling Slow Motion Photos and Videos for Instagram</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-rise-of-the-alternative-top-3-video-sharing-websites/"><u>[Updated] 2024 Approved Rise of the Alternative Top 3 Video Sharing Websites</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-instagram-ae-essentials-the-most-loved-templates/"><u>2024 Approved Instagram AE Essentials The Most Loved Templates</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-transform-your-instagram-reels-into-high-quality-mp4-files-anywhere/"><u>2024 Approved Transform Your Instagram Reels Into High-Quality MP4 Files Anywhere</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-unseen-aspects-the-hidden-secrets-of-instagram-stories-viewers/"><u>2024 Approved Unseen Aspects The Hidden Secrets of Instagram Stories Viewers</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/capturing-the-thrill-top-techniques-for-win10-games-for-2024/"><u>Capturing the Thrill Top Techniques for Win10 Games for 2024</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/final-cut-pro-time-lapse-essentials-tips-tricks-and-best-practices/"><u>Final Cut Pro Time Lapse Essentials Tips, Tricks, and Best Practices</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-location-on-tiktok-to-see-more-content-on-your-nokia-c110-drfone-by-drfone-virtual-android/"><u>How to Change Location on TikTok to See More Content On your Nokia C110 | Dr.fone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/how-to-overcome-windows-memory-not-recorded-problems/"><u>How to Overcome Windows Memory Not Recorded Problems</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-exploring-picture-in-picture-features-on-sierras-operating-systems/"><u>In 2024, Exploring Picture in Picture Features on Sierra's Operating Systems</u></a></li>
-<li><a href="https://review-topics.techidaily.com/lava-blaze-pro-5g-tutorial-bypass-lock-screen-security-password-pin-fingerprint-pattern-by-drfone-android-unlock-android-unlock/"><u>Lava Blaze Pro 5G Tutorial - Bypass Lock Screen,Security Password Pin,Fingerprint,Pattern</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/practical-tips-to-store-your-favorite-instagram-reels-for-2024/"><u>Practical Tips to Store Your Favorite Instagram Reels for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ultimate-selection-elite-pick-for-ipad-pro-11-case-protection/"><u>Ultimate Selection: Elite Pick for iPad Pro 11 Case Protection</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-top-10-impactful-instagram-tags-for-maximum-reach/"><u>[New] 2024 Approved Top 10 Impactful Instagram Tags for Maximum Reach</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-accelerating-instagram-videos-mobile-and-desktop-tips/"><u>[New] Accelerating Instagram Videos Mobile & Desktop Tips</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-size-your-content-smartly-video-tips-for-instagram-excellence/"><u>[New] In 2024, Size Your Content Smartly Video Tips for Instagram Excellence</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-swift-strategies-for-instagram-reel-success-for-2024/"><u>[New] Swift Strategies for Instagram Reel Success for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-comprehensive-ultimate-guide-to-instagram-stories/"><u>[Updated] Comprehensive Ultimate Guide to Instagram Stories</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-insta-facebook-connection-essentials-for-2024/"><u>[Updated] Insta-Facebook Connection Essentials for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-mastering-instagram-adding-borders-to-videos-for-2024/"><u>[Updated] Mastering Instagram Adding Borders to Videos for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-ideal-youtube-vision-top-video-suggestions-to-energize-your-channel-for-2024/"><u>[Updated] The Ideal YouTube Vision Top Video Suggestions to Energize Your Channel for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-behind-the-scenes-fixes-for-instagram-videos/"><u>2024 Approved Behind-the-Scenes Fixes for Instagram Videos</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-captivating-collections-frames-and-organizers-of-the-future/"><u>2024 Approved Captivating Collections Frames & Organizers of the Future</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-start-your-edit-journey-top-tips-for-photo-gurus-in-training/"><u>2024 Approved Start Your Edit Journey Top Tips for Photo Gurus in Training</u></a></li>
+<li><a href="https://win-cloud.techidaily.com/ensuring-optimal-ram-operation-on-your-desktop-or-laptop-expert-advice-from-coretech-solutions/"><u>Ensuring Optimal RAM Operation on Your Desktop or Laptop: Expert Advice From CoreTech Solutions</u></a></li>
+<li><a href="https://tools.techidaily.com/flipbuilder/products/"><u>Flipbuilder's Products</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-find-ispoofer-pro-activation-key-on-vivo-y100-drfone-by-drfone-virtual-android/"><u>In 2024, How to Find iSpoofer Pro Activation Key On Vivo Y100? | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-navigating-instagrams-updated-feed-dynamics/"><u>In 2024, Navigating Instagram’s Updated Feed Dynamics</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-the-best-for-broadcasting-duel-of-live-tools/"><u>In 2024, The Best for Broadcasting? Duel of Live Tools</u></a></li>
+<li><a href="https://discover-excellent.techidaily.com/iphone-update-process-hangs-solving-itunes-download-issues/"><u>IPhone Update Process Hangs: Solving iTunes Download Issues</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/revving-up-your-mobile-experience-top-3-anticipated-iphone-16-innovations-revealed-by-zdnet/"><u>Revving Up Your Mobile Experience: Top 3 Anticipated iPhone 16 Innovations Revealed by ZDNet</u></a></li>
+<li><a href="https://article-posts.techidaily.com/syncing-speed-and-quality-in-lunapic-edits/"><u>Syncing Speed and Quality in LunaPic Edits</u></a></li>
 </ul></div>
 
