@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Crafting Captivating IGTV Cover Photos (Thumbnails)"
-date: 2024-12-21T16:19:57.544Z
-updated: 2024-12-23T16:03:18.559Z
+date: 2025-01-19T08:25:49.780Z
+updated: 2025-01-20T05:59:30.574Z
 tags:
   - ai video
   - ai instagram
@@ -31,6 +31,10 @@ There are so many different things you need to pay attention to when sharing new
 * Part 2: How to Create a Cover Photo for Your IGTV Channel?
 * Part 3: Bonus! Edit Your IGTV Video with Filmora
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Dimensions and Specifications for Cover Photos on IGTV
 
 IGTV is centered around the idea that people hold their phones vertically while watching videos, and for that reason, all videos on this platform are in the **9:16 aspect ratio**. Hence the cover photos you can add to your IGTV videos have to be **vertically oriented** as well, and if you would like to prevent IGTV from cropping your cover photo, you need to make sure that the picture matches the platform’s specifications. If you follow these specifications the cover photos for your IGTV videos are going to look equally good inside the IGTV app, the Instagram.com website, Instagram app search grid or Instagram app search feed.
@@ -43,14 +47,10 @@ The images you use as cover photos for your videos will be displayed in differen
 
 ![IGTV Cover Photo Safe Zone ](https://images.wondershare.com/filmora/article-images/igtv-cover-photo-dimensions.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 While creating a cover photo for an IGTV video you need to keep in mind that different graphics and text overlays are going to be displayed over the picture once you upload it to your channel. During the process of uploading IGTV video’s cover photo, you will be able to add text to it, but the **Title Safe Area** suggests where you can place the text without the risk of it being cropped while being viewed from different devices won’t be shown. So, make sure that all text you add to your IGTV video cover photo is **placed in the central area of the image** in order for it to be clearly visible on all devices.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to Create a Cover Photo for Your IGTV Channel?
@@ -62,7 +62,7 @@ Adding a cover photo to your IGTV video is easy since you just have **to upload 
 Learn more details about [How to edit IGTV videos with best app on mobile](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: Bonus! Edit Your IGTV Video with Filmora
@@ -74,7 +74,7 @@ Filmora is a video editing software for people at different levels. Should you b
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Conclusion**
@@ -84,7 +84,7 @@ A small and seemingly insignificant detail like a cover photo of an IGTV video c
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -102,18 +102,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-navigating-instagram-blocking-basics-for-2024/"><u>[New] Navigating Instagram Blocking Basics for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-premium-free-switch-console-emulators/"><u>[New] Premium Free Switch Console Emulators</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-crafting-flawless-subtitles-with-precision-and-tips/"><u>[Updated] In 2024, Crafting Flawless Subtitles with Precision and Tips</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/accelerating-your-ascension-to-instagram-a-list-status-our-fast-track-guide-of-15-must-try-strategies-for-2024/"><u>Accelerating Your Ascension to Instagram A-List Status Our Fast Track Guide of 15 Must-Try Strategies for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/diagnosis-and-remedies-why-is-my-logitech-g433-mic-malfunctioning/"><u>Diagnosis and Remedies: Why Is My Logitech G433 Mic Malfunctioning?</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-change-itel-a60-lock-screen-password-by-drfone-android/"><u>In 2024, How To Change Itel A60 Lock Screen Password?</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-mastering-digital-media-xmlttml-conversion-guide-for-srt/"><u>In 2024, Mastering Digital Media XML/TTML Conversion Guide for SRT</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/insiders-guide-to-the-vr-lexicon-essentials-for-2024/"><u>Insider's Guide to the VR Lexicon Essentials for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/navigating-ig-success-a-guide-to-best-management-tools/"><u>Navigating IG Success A Guide to Best Management Tools</u></a></li>
-<li><a href="https://common-error.techidaily.com/optimizing-your-windows-11-experience-through-sfc-and-dism-repair-techniques/"><u>Optimizing Your Windows 11 Experience Through SFC and DISM Repair Techniques</u></a></li>
-<li><a href="https://windows11.techidaily.com/tcpip-port-safety-a-windows-perspective/"><u>TCP/IP Port Safety: A Windows Perspective</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/unlock-the-secrets-to-flawless-instagram-videos/"><u>Unlock the Secrets to Flawless Instagram Videos</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/xiaomi-civi-3-disney-100th-anniversary-edition-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>Xiaomi Civi 3 Disney 100th Anniversary Edition ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-mastering-instagram-stories-a-step-by-step-polling-guide/"><u>[New] 2024 Approved Mastering Instagram Stories A Step-by-Step Polling Guide</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-cost-free-chromebook-video-capturing-leaders-for-2024/"><u>[New] Cost-Free Chromebook Video Capturing Leaders for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-add-panache-to-videos-border-magic-on-insta/"><u>[New] In 2024, Add Panache to Videos Border Magic on Insta</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-elevating-your-cinematic-expedition-through-border-techniques-for-2024/"><u>[Updated] Elevating Your Cinematic Expedition Through Border Techniques for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-igtv-techniques-seamlessly-transforming-vlogs-for-maximum-views-for-2024/"><u>[Updated] IGTV Techniques Seamlessly Transforming Vlogs for Maximum Views for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-proven-ways-to-cash-in-instagrams-leading-revenue-methods/"><u>[Updated] In 2024, Proven Ways to Cash In Instagram's Leading Revenue Methods</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-turning-horizons-into-heights-uploading-videos-to-igtv/"><u>[Updated] In 2024, Turning Horizons Into Heights Uploading Videos to IGTV</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-mapping-out-instagram-deactivations/"><u>[Updated] Mapping Out Instagram Deactivations</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-ultimate-guide-to-shooting-phenomenal-igtv-with-dslrsmartphone/"><u>[Updated] The Ultimate Guide to Shooting Phenomenal IGTV with DSLR/Smartphone</u></a></li>
+<li><a href="https://program-issues.techidaily.com/apex-legends-update-issue-resolving-the-infamous-leaf-bug-of-2022/"><u>Apex Legends Update Issue: Resolving the Infamous 'Leaf' Bug of 2022</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/beatify-your-content-adding-melodies-to-instagram-stories-for-2024/"><u>Beatify Your Content Adding Melodies to Instagram Stories for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/conversione-libera-di-file-audio-ad-mp3-con-aif-aiutato-da-intelligenza-artificiale-metodo-affidabile-e-facile-di-movavi/"><u>Conversione Libera Di File Audio Ad MP3 Con AIF Aiutato Da Intelligenza Artificiale - Metodo Affidabile E Facile Di Movavi</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-oneplus-nord-n30-se-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on OnePlus Nord N30 SE Quickly? | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-earnings-spectrum-unveiling-the-financial-power-of-dailymovement-and-youtube/"><u>In 2024, Earnings Spectrum Unveiling the Financial Power of DailyMovement and YouTube</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-painting-with-light-the-art-of-selective-hue-enhancement/"><u>In 2024, Painting with Light The Art of Selective Hue Enhancement</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/no-trouble-recorder-for-win10-desktop/"><u>No-Trouble Recorder for Win10 Desktop</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/opening-playing-and-organizing-your-srt-files-efficiently/"><u>Opening, Playing, and Organizing Your SRT Files Efficiently</u></a></li>
+<li><a href="https://fox-that.techidaily.com/the-ultimate-guide-to-resolving-widespread-iphone-display-glitches/"><u>The Ultimate Guide to Resolving Widespread iPhone Display Glitches</u></a></li>
+<li><a href="https://howto.techidaily.com/xiaomi-redmi-13c-5g-not-receiving-texts-10-hassle-free-solutions-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Xiaomi Redmi 13C 5G Not Receiving Texts? 10 Hassle-Free Solutions Here | Dr.fone</u></a></li>
 </ul></div>
 

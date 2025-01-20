@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Turning Off Instagram's IGTV in a Nutshell"
-date: 2024-12-09T16:49:19.858Z
-updated: 2024-12-14T17:07:02.628Z
+date: 2025-01-15T08:45:35.454Z
+updated: 2025-01-19T21:40:49.037Z
 tags:
   - ai video
   - ai instagram
@@ -28,7 +28,7 @@ thumbnail: https://thmb.techidaily.com/fb708f6b02bb2770894398e8943ab9eb4326fec35
  There is nothing more frustrating than receiving notifications about posts on social media you have zero interest in. Fortunately for all of us, turning off notifications is a quick and simple process that can be completed in just a few clicks or taps. IGTV, Instagram’s latest mobile video platform is no exception, and if you decide to use it, you will occasionally stumble upon the content you don’t necessarily like and you will receive notifications about posts that really have nothing to do with your interests. In case you are looking for a way to get rid of IGTV suggestions, you’ve come to the right place because in this article we are going to show you how to hide videos you don’t want to see and how to switch off notifications.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Turn Off IGTV Notifications on Instagram
@@ -38,7 +38,7 @@ thumbnail: https://thmb.techidaily.com/fb708f6b02bb2770894398e8943ab9eb4326fec35
  Select the **Push Notifications option**, and then scroll all the way down to the **IGTV Video Updates section** of the Push Notifications menu. Tap on the **Off** option, and you’re done, you’ll no longer receive notifications from IGTV. If at any point you change your mind and you decide that you want to receive notifications from IGTV you can return to the Push Notifications menu and select the **From People I Follow** or **From Everyone** option in the IGTV Video Update section of the Push Notifications menu.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Hide IGTV Videos?
@@ -56,7 +56,7 @@ thumbnail: https://thmb.techidaily.com/fb708f6b02bb2770894398e8943ab9eb4326fec35
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -74,22 +74,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-the-ultimate-guide-incorporating-facebook-live-into-websites/"><u>[New] 2024 Approved The Ultimate Guide Incorporating Facebook LIVE Into Websites</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-tune-into-trends-how-to-mix-music-in-storytelling/"><u>[New] 2024 Approved Tune Into Trends How to Mix Music in Storytelling</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-unveiling-the-role-of-authenticity-in-online-self-portraits/"><u>[New] 2024 Approved Unveiling the Role of Authenticity in Online Self-Portraits</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-essential-software-for-live-video-recording-for-2024/"><u>[Updated] Essential Software for Live Video Recording for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-boost-stories-interaction-with-peculiar-creative-questions/"><u>2024 Approved Boost Stories Interaction with Peculiar Creative Questions</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-easy-instagram-posting-for-gif-lovers-4-essential-tips/"><u>2024 Approved Easy Instagram Posting for GIF Lovers 4 Essential Tips</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-elevate-your-gameplay-records-with-advanced-methods-on-w11/"><u>2024 Approved Elevate Your Gameplay Records with Advanced Methods on W11</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-overcoming-challenges-in-periscope-livestreams/"><u>2024 Approved Overcoming Challenges in Periscope Livestreams</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/3-tactics-to-enhance-your-instagram-films-look-for-2024/"><u>3 Tactics to Enhance Your Instagram Film's Look for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-ways-to-transfer-music-from-oppo-find-n3-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Transfer Music from Oppo Find N3 to Other Android Devices Easily | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/download-instagram-vids-effortlessly-on-your-desktop-system-pcmac-for-2024/"><u>Download Instagram Vids Effortlessly on Your Desktop System (PC/Mac) for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/in-2024-essential-10-online-collaboration-tools-ensuring-privacy/"><u>In 2024, Essential 10 Online Collaboration Tools Ensuring Privacy</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-mastering-instagram-storytelling-integrating-fun-custom-emojis/"><u>In 2024, Mastering Instagram Storytelling Integrating Fun, Custom Emojis</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-top-10-unforgettable-igtv-video-strategies-for-brand-success/"><u>In 2024, Top 10 Unforgettable IGTV Video Strategies for Brand Success</u></a></li>
-<li><a href="https://win-deluxe.techidaily.com/step-by-step-tutorial-for-successfully-creating-a-windows-amedia-backup-of-windows-11-onto-a-dvd-using-top-techniques-and-software/"><u>Step-by-Step Tutorial for Successfully Creating a Windows Amedia Backup of Windows 11 Onto a DVD Using Top Techniques & Software</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/the-power-of-tags-boost-traffic-with-top-genres-and-keywords/"><u>The Power of Tags Boost Traffic with Top Genres & Keywords</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/top-tier-android-and-ios-timers-unveiled-your-weddings-guardian-angels/"><u>Top-Tier Android & iOS Timers Unveiled Your Wedding's Guardian Angels</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-no-more-nausea-essential-tricks-for-htc-vive-for-2024/"><u>[New] No More Nausea Essential Tricks for HTC Vive for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-step-by-step-guide-to-editing-and-optimizing-instagram-footage-for-2024/"><u>[New] Step-by-Step Guide to Editing and Optimizing Instagram Footage for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-the-ultimate-guide-to-instagram-looping-videos-for-2024/"><u>[New] The Ultimate Guide to Instagram Looping Videos for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-creative-couture-top-trendy-filters-on-ig/"><u>[Updated] 2024 Approved Creative Couture Top Trendy Filters on IG</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-mastery-of-instagram-videography-blueprint-for-robust-marketing-plans/"><u>[Updated] 2024 Approved Mastery of Instagram Videography Blueprint for Robust Marketing Plans</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-a-detailed-analysis-of-movavi-pro-video-editor-2024plus/"><u>[Updated] A Detailed Analysis of Movavi Pro Video Editor 2024+</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-exploring-originality-how-to-uncover-roots-of-instagram-visuals/"><u>[Updated] Exploring Originality How to Uncover Roots of Instagram Visuals</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-groundhopping-goals-watch-record-and-cut-games-without-spending/"><u>[Updated] In 2024, Groundhopping Goals Watch, Record & Cut Games Without Spending</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-select-4-websites-easy-skype-tone-downloads-for-2024/"><u>[Updated] Select 4 Websites Easy Skype Tone Downloads for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-the-future-speaks-inspirational-metaverse-quotes-with-arvr/"><u>[Updated] The Future Speaks Inspirational Metaverse Quotes with AR/VR</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-exclusive-insight-into-the-6-most-advanced-instagram-reel-apps/"><u>2024 Approved Exclusive Insight Into the 6 Most Advanced Instagram Reel Apps</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-expert-tips-for-crafting-engaging-instagram-stories/"><u>2024 Approved Expert Tips for Crafting Engaging Instagram Stories</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Realme Narzo N55? | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/chatgpt-powered-podcast-narrative-crafting/"><u>ChatGPT-Powered Podcast Narrative Crafting</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/dvd-vs-blu-ray-entendendo-as-principais-vantagens-de-cada-midia-uma-analise-detalhada/"><u>DVD Vs. Blu-Ray - Entendendo as Principais Vantagens De Cada Mídia | Uma Análise Detalhada</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/enhance-your-apple-watch-experience-with-easy-steps-a-detailed-guide/"><u>Enhance Your Apple Watch Experience with Easy Steps: A Detailed Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-circling-success-how-to-captivate-your-instagram-audience/"><u>In 2024, Circling Success How to Captivate Your Instagram Audience</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-unlocking-the-full-potential-of-your-instagram-story-with-multiple-images/"><u>In 2024, Unlocking the Full Potential of Your Instagram Story with Multiple Images</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/understanding-your-companys-software-update-procedures/"><u>Understanding Your Company's Software Update Procedures</u></a></li>
 </ul></div>
 

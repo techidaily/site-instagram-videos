@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Add Stickers to Instagram Story and Post?"
-date: 2024-12-31T22:31:41.234Z
-updated: 2025-01-07T16:19:03.588Z
+date: 2025-01-16T21:37:40.148Z
+updated: 2025-01-20T06:08:05.349Z
 tags:
   - ai video
   - ai instagram
@@ -52,6 +52,10 @@ As you know, Instagram Stickers are pretty fun to use. These Stickers can also h
 
 However, if you are not aware of adding stickers to Instagram stories and posts, you have come to the right place. In this part, we have covered a step-wise method to use built-in stickers in your Instagram Stories and Posts. Here’s how to add stickers on Instagram:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step 1: Launch Instagram App and Create a New Story
 
 First things first, **Launch** the Instagram app. Click on **Your Story** at the top left corner of your Instagram feed. Now, you need to take a photo by clicking on the **Big White circle** or upload one by clicking on the **Square** in the bottom left of the screen.
@@ -60,15 +64,15 @@ First things first, **Launch** the Instagram app. Click on **Your Story** at the
 
 ![Add instagram sticker ](https://images.wondershare.com/filmora/article-images/create-new-instagram-story.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Step 2: Click on Stickers and Add Sticker to Story
 
 After you are done with the picture uploading, click on the **Stickers** option at the top right of the screen. A **Pop-up menu** will appear. Now, you need to select the sticker you want to use on your post or story.
 
 ![Add Instagram sticker ](https://images.wondershare.com/filmora/article-images/add-instagram-sticker.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Step 3: Add to Your Story
 
@@ -77,7 +81,7 @@ Now, add the picture to your story by clicking on the **Your Story** option or *
 **Note:** You can also move the sticker by **Holding and dragging** it on the screen.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to Create and Add Your Own GIF Stickers on Instagram Stories?
@@ -99,7 +103,11 @@ After you are done with the picture uploading, tap on the **Stickers** option at
 ![  Ins  sticker  add picture](https://images.wondershare.com/filmora/article-images/instagram-sticker-add-picture-option.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 3: Choose the picture as sticker
@@ -108,31 +116,15 @@ You’ll be redirected to your phone’s gallery. Choose the picture you want to
 
 ![  Ins     add photo sticker](https://images.wondershare.com/filmora/article-images/add-photo-sticker.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Note:** You can also move it on the screen by **holding and dragging it**.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 4: Most Popular Types of Instagram Stickers
 
 Instagram Stickers comes in a wide variety, and since it’s a social media network, it keeps getting updated very frequently. Hence, it is hard to determine the exact number and type of stickers available. But, we have listed the main types of stickers that are currently featured on the app. Pick the one you like and start engaging with your audience.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\.  Quiz Sticker
 
 Quiz Sticker allows you to ask multiple-choice questions from your followers. It allows you to customize answers as well. You can also find a random question by clicking on dice at the bottom.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\.  Question Sticker
 
@@ -142,6 +134,10 @@ Your followers can ask questions from you with the help of this sticker. You can
 
 A donation sticker allows a person to donate to non-profits. You can choose a non-profit of your own choice and raise fund for it by selecting this sticker. People who see this sticker can donate to your cause.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\.  Countdown Sticker
 
 This sticker enables you to start a countdown for an important event or moment. You can customize the time, date, name, and color to make it look better. For example, you can start a countdown for your friend’s birthday.
@@ -150,13 +146,13 @@ This sticker enables you to start a countdown for an important event or moment. 
 
 Poll Sticker helps you in starting a poll or asks a question to know your follower’s opinion. You can customize the answers as well as you can put emojis instead of answers.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 6\.  Hashtag Sticker
 
 This type of sticker helps start a clickable hashtag. You can add a hashtag for your brand or raise an important issue to your story.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 7\. [Music Sticker](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -164,13 +160,13 @@ Music sticker allows you to add songs and lyrics to your Instagram Story. You ca
 
 Want to add music to Instagram?Check this article to learn more about [how to add music on Instagram with or without music sticker](https://tools.techidaily.com/wondershare/filmora/download/).
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 8\.  Selfie Sticker
 
 You can share your selfies in a rounded form on your Instagram Story. This rounded shape sticker was launched in late 2020, and since then, it has changed the concept of sharing selfies in Instagram Stories. The Instagram stories are now more engaging and fun due to this selfie sticker.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 9\.  Location Sticker
 
@@ -188,6 +184,10 @@ But many people do not know **how to add stickers to Instagram** or create one o
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -203,22 +203,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-boosting-your-instagram-aesthetics-implementing-borders-on-photos-for-2024/"><u>[New] Boosting Your Instagram Aesthetics Implementing Borders on Photos for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-the-complete-guide-to-captivating-your-audience-on-snapchat-for-2024/"><u>[New] The Complete Guide to Captivating Your Audience on Snapchat for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-how-to-do-a-poll-on-instagram-stories-a-complete-guide/"><u>[Updated] How to Do a Poll on Instagram Stories - a Complete Guide</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-interactive-twit-narratives-a-compendium-for-23/"><u>[Updated] In 2024, Interactive Twit-Narratives - A Compendium for '23</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-peeking-behind-the-screen-instagram-audience-explorer/"><u>[Updated] In 2024, Peeking Behind the Screen Instagram Audience Explorer</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-the-science-behind-catching-fire-on-instagram-for-2024/"><u>[Updated] The Science Behind Catching Fire on Instagram for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/3-easy-solutions-to-hard-reset-samsung-galaxy-a15-5g-drfone-by-drfone-reset-android-reset-android/"><u>3 Easy Solutions to Hard Reset Samsung Galaxy A15 5G | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-realme-c55-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Realme C55 | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-opinion-on-the-immersive-adventures-skin-suite-for-minecraft/"><u>Expert Opinion on the Immersive Adventures Skin Suite for Minecraft</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/how-to-add-signature-to-a-pdf-v15-document-by-ldigisigner-sign-a-pdf-sign-a-pdf/"><u>How to add signature to a PDF v1.5 document</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-samsung-galaxy-m34-5g-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Samsung Galaxy M34 5G online without jailbreak</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-enhancing-viewer-attention-igtv-cover-tips/"><u>In 2024, Enhancing Viewer Attention IGTV Cover Tips</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-when-is-the-best-time-to-post-on-instagram-the-ultimate-guide/"><u>In 2024, When Is The Best Time to Post on Instagram - The Ultimate Guide</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/innovative-vertical-video-editing-for-instagrams-igtv/"><u>Innovative Vertical Video Editing for Instagram's IGTV</u></a></li>
-<li><a href="https://win-answers.techidaily.com/mastering-game-captures-with-shadowplay-overcoming-windows-recording-hurdles/"><u>Mastering Game Captures with ShadowPlay: Overcoming Windows Recording Hurdles</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/new-in-2024-fresh-beginnings-selecting-the-best-8-soundtracks-to-start-videos/"><u>New In 2024, Fresh Beginnings Selecting the Best 8 Soundtracks to Start Videos</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/understanding-your-new-reality-on-instagram/"><u>Understanding Your New Reality on Instagram</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-bandicam-unveiled-the-complete-review/"><u>[New] In 2024, Bandicam Unveiled The Complete, Review</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-localizing-your-content-adding-subtitles-to-igtv/"><u>[New] In 2024, Localizing Your Content Adding Subtitles to IGTV</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-staying-above-copyright-infringement-insta-watermarks-explained/"><u>[New] In 2024, Staying Above Copyright Infringement Insta Watermarks Explained</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-insta-friends-lost-tracking-your-unfollowers-for-2024/"><u>[New] Insta Friends Lost Tracking Your Unfollowers for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-master-the-art-of-instagram-live-chats-a-comprehensive-guide/"><u>[New] Master the Art of Instagram Live Chats A Comprehensive Guide</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-channeling-tweets-to-facebook-viewers-efficiently/"><u>[Updated] 2024 Approved Channeling Tweets to Facebook Viewers Efficiently</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-revolutionizing-reality-superior-rift-players-evaluation/"><u>[Updated] 2024 Approved Revolutionizing Reality Superior Rift Players Evaluation</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-cutting-edge-techniques-for-your-instagram-story-success/"><u>[Updated] In 2024, Cutting-Edge Techniques for Your Instagram Story Success</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-essential-tips-for-harvesting-instagram-highlights/"><u>[Updated] In 2024, Essential Tips for Harvesting Instagram Highlights</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/best-6-cheap-4k-projectors-for-2024/"><u>Best 6 Cheap 4K Projectors for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-but-impactful-which-social-platform-leads-for-short-video-content-for-2024/"><u>Brief but Impactful Which Social Platform Leads for Short Video Content for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-xr-to-other-iphone-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone XR to other iPhone? | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-go-pro-karma-drone-review/"><u>In 2024, Go Pro Karma Drone Review</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-top-30-camcorders-front-screen-first-thought/"><u>In 2024, Top 30 Camcorders - Front Screen First Thought</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ty-guffaws-uncover-the-top-15-youtube-comedy-talents/"><u>Quality Guffaws Uncover the Top 15 YouTube Comedy Talents</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/syncopated-shots-picking-the-best-music-for-social-media-for-2024/"><u>Syncopated Shots Picking the Best Music for Social Media for 2024</u></a></li>
 </ul></div>
 

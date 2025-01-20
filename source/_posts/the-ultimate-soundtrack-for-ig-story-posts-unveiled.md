@@ -1,7 +1,7 @@
 ---
 title: "The Ultimate Soundtrack for IG Story Posts Unveiled"
-date: 2025-01-09T20:24:38.841Z
-updated: 2025-01-13T23:03:26.852Z
+date: 2025-01-18T20:31:18.487Z
+updated: 2025-01-20T07:38:40.529Z
 tags:
   - ai video
   - ai instagram
@@ -32,7 +32,7 @@ If you are also an avid Instagram user who would like to post stories on the app
 ![ Instagram Logo](https://images.wondershare.com/filmora/article-images/ig-logo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## A Step-by-step Guide for Adding Music to IG Story
@@ -44,6 +44,10 @@ To make it easier for us to post interesting stories, Instagram has come up with
 To start with, just launch the Instagram application on your phone and tap on the “Add Story” button. You can find it on the top-left corner of the screen, depicted by a “+” sign with your profile picture.
 
 ![ Add Story Button](https://images.wondershare.com/filmora/article-images/add-story.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 This will launch a dedicated interface for Instagram Story. Here, you can use your camera to click a picture or record a mini video. If you want, you can also upload an existing picture or video as your story as well. Once you have taken a snap, just scroll up your screen to get various add-on features for your story. From here, just tap on the “Music” option to add music to IG story.
 
@@ -65,35 +69,23 @@ If you want, you can just post the song right away after learning how to put mus
 
 ![ Edit IG Story](https://images.wondershare.com/filmora/article-images/edit-story.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 After when you add music to IG story, you can further change how it looks. You can see different ways to display the lyrics right above the snippet selection. If you want, you can zoom in or out the text and move it to display it the way you like. Furthermore, there is a color radiant option on the top that you can select to change the text color and background.
 
 ![ Customize IG Story](https://images.wondershare.com/filmora/article-images/customize-story.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 If you don’t want to display the lyrics, then just swipe the text options at the bottom and select the sticker feature. This will only display the sticker of the track on the story. You can also tap on the sticker to get different display options for it.
 
 ![ Display Options of IG Story Music](https://images.wondershare.com/filmora/article-images/display-options-of-music.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 4. Post your IG Story on your Profile
 
 That’s it! In this way, you can learn how to add music to IG story and customize it however you like. If you are satisfied with the changes, then just tap on the “Send to” option to get different ways to share your story. You can send it to any selective friend, post it just for your close friends, or share your IG story for all followers.
 
 ![ Share Your IG Story](https://images.wondershare.com/filmora/article-images/share-your-ig-story.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Create Stunning IG Stories to Captivate Your Audience?
 
@@ -111,6 +103,10 @@ Instagram also keeps rotating different filters that we can add to our stories. 
 
 ![ Inbuilt IG Filters](https://images.wondershare.com/filmora/article-images/inbuilt-ig-filters.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### Add polls, challenges, countdowns, and more
 
 Apart from adding music, Instagram also lets us add tons of other things to our story. You can mention any other user in your story or add a location to get more views. There are also options to add a hashtag or create a poll. You can also find different challenges to explore (like the ice bucket challenge) to post your story under a specific category.
@@ -126,6 +122,10 @@ Polls and Questions are some of the best ways to increase interaction in your st
 If you plan to add video content to your Instagram stories, then consider using a professional tool like Filmora. It is a user-friendly and sophisticated application that has tons of inbuilt features and special effects. You can trim your videos, add its presets, and explore media effects to make your Instagram stories look stunning. This will elevate the overall aesthetic appeal of your videos, catching the attention of your audience for sure.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 There you go! Now when you know how to add music to IG Story, you can easily post impressive content on your Instagram profile. For your convenience, I have come up with a stepwise guide on how to put music on IG story that you can easily follow. Besides that, I have also listed some expert tips that you can implement to post visually stunning stories. Go ahead and try these tips and share this guide with your friends to help them add music to IG story as well.
 
@@ -146,17 +146,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-full-screen-capture-excellence-4-leading-pcmac-programs/"><u>[Updated] 2024 Approved Full Screen Capture Excellence 4 Leading PC/Mac Programs</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-reveal-the-disenchanted-instagrams-unfollowers/"><u>[Updated] 2024 Approved Reveal the Disenchanted Instagram's Unfollowers</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-the-roadmap-to-identifying-niche-luminaries-on-instagram/"><u>[Updated] 2024 Approved The Roadmap to Identifying Niche Luminaries on Instagram</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-master-the-art-of-file-acquisition-expert-guide-for-downloading-igtv-for-2024/"><u>[Updated] Master the Art of File Acquisition Expert Guide for Downloading IGTV for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-understanding-your-instagram-stories-visibility-for-2024/"><u>[Updated] Understanding Your Instagram Stories Visibility for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-dominate-instagram-with-superior-reel-content/"><u>In 2024, Dominate Instagram with Superior Reel Content</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-ensuring-audio-clarity-amidst-remote-recording-challenges/"><u>In 2024, Ensuring Audio Clarity Amidst Remote Recording Challenges</u></a></li>
-<li><a href="https://fox-that.techidaily.com/step-by-step-guide-resolving-iphone-issues-with-apples-help-app/"><u>Step-by-Step Guide: Resolving iPhone Issues with Apple's Help App</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/superior-video-cutting-edge-tools-devices/"><u>Superior Video Cutting-Edge Tools (Devices)</u></a></li>
-<li><a href="https://some-tips.techidaily.com/the-quest-for-superior-video-playback-software-for-2024/"><u>The Quest for Superior Video Playback Software for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/the-ultimate-guide-to-xbox-series-clubs/"><u>The Ultimate Guide to Xbox Series Clubs</u></a></li>
-<li><a href="https://howto.techidaily.com/why-is-my-honor-magic-5-offline-troubleshooting-guide-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Is My Honor Magic 5 Offline? Troubleshooting Guide | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-insta-experts-reveal-unknown-functions-and-features/"><u>[New] 2024 Approved Insta-Experts Reveal Unknown Functions and Features</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-pioneering-platform-potential-the-10-most-effective-igtv-strategies-for-brands/"><u>[New] 2024 Approved Pioneering Platform Potential The 10 Most Effective IGTV Strategies for Brands</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ive-into-dollars-15-online-stock-market-experts/"><u>[New] Dive Into Dollars 15 Online Stock Market Experts</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-unleash-marketing-potential-with-unpacked-plans/"><u>[Updated] 2024 Approved Unleash Marketing Potential with Unpacked Plans</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/movaviogv/"><u>無成本線上下載Movavi影片OGV串流</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/capture-and-transfer-igtv-videos-on-handheld-tech/"><u>Capture and Transfer IGTV Videos on Handheld Tech</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/enhance-ppts-appeal-through-soundtracks/"><u>Enhance PPT's Appeal Through Soundtracks</u></a></li>
+<li><a href="https://change-location.techidaily.com/home-button-not-working-on-infinix-smart-8-here-are-real-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Home Button Not Working on Infinix Smart 8? Here Are Real Fixes | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/how-to-make-highlights-on-instagram-3-ways/"><u>How to Make Highlights on Instagram [3 Ways]</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-discreetly-explore-instagram-stories-with-us/"><u>In 2024, Discreetly Explore Instagram Stories With Us</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-elevate-your-storytelling-on-snapchat-with-top-tips/"><u>In 2024, Elevate Your Storytelling on Snapchat with Top Tips</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-humor-unleashed-designing-viral-video-memes-for-facebook-and-insta/"><u>In 2024, Humor Unleashed Designing Viral Video Memes for Facebook and Insta</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-mastering-the-art-of-preserving-instagram-live-moments/"><u>In 2024, Mastering the Art of Preserving Instagram Live Moments</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-the-photographers-edge-innovating-with-instagrams-bokeh-features/"><u>In 2024, The Photographer's Edge Innovating with Instagram’s Bokeh Features</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/mastering-slow-motion-instagram-a-reel-guide/"><u>Mastering Slow-Motion Instagram A Reel Guide</u></a></li>
+<li><a href="https://fox-within.techidaily.com/revive-your-deleted-pics-expert-image-recovery-for-memory-card-users/"><u>Revive Your Deleted Pics: Expert Image Recovery for Memory Card Users</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/sky-perspectives-in-stunning-hd-a-mi-drone-reality/"><u>Sky Perspectives in Stunning HD A Mi Drone Reality</u></a></li>
 </ul></div>
 

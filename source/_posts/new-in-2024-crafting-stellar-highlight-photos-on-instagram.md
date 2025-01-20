@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Crafting Stellar Highlight Photos on Instagram"
-date: 2025-01-08T04:55:23.905Z
-updated: 2025-01-14T11:29:46.298Z
+date: 2025-01-17T12:44:32.794Z
+updated: 2025-01-19T21:39:14.412Z
 tags:
   - ai video
   - ai instagram
@@ -47,11 +47,7 @@ Insta highlight covers are an excellent way to save and categorize your stories.
 ![insta highlight cover photo](https://images.wondershare.com/filmora/article-images/2021/insta-highlight-cover-photo.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: 10 Eye-Catching Cover Photos For IG Highlights
@@ -63,6 +59,10 @@ Looking for some inspiration to create an attractive cover photo for Instagram h
 The New York Times takes Instagram Stories literally. They populate their highlights with comprehensive yet readable primers on complicated political topics. Also, they create interesting, fun, and snackable Stories about the subjects that appeal most to the audience. Either way, the style of their cover image is very consistent, helping them to make the vast reach of their subjects more manageable.
 
 ![ig highlight cover photo nytimes](https://images.wondershare.com/filmora/article-images/2021/ig-highlight-cover-photo-nytimes.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 2.Toyota
 
@@ -77,7 +77,7 @@ Starbucks Coffee uses photos of real people as the cover icons for the Highlight
 ![ig highlight cover photo starbucks](https://images.wondershare.com/filmora/article-images/2021/ig-highlight-cover-photo-starbucks.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 4.The Kitchn
@@ -86,15 +86,15 @@ The Kitchn’s all-things-food account has cooking how-tos and recipes, along wi
 
 ![insta highlight cover kitchn](https://images.wondershare.com/filmora/article-images/2021/insta-highlight-cover-kitchn.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 5.Glossier Inc
 
 Glossier Inc. is a people-powered beauty ecosystem. The brand uses pink color only for their profile image (not a logo). For the Highlights Covers, they use only white images. This makes their Highlights very minimalistic and very different than other accounts where product images or icons are generally used.
 
 ![insta highlight cover glossier](https://images.wondershare.com/filmora/article-images/2021/insta-highlight-cover-glossier.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 6.Fashion Nova
 
@@ -107,10 +107,6 @@ Fashion Nova, an international fashion brand, relies heavily on its ability to s
 Earlier, Red Bull’s IG Highlights used to be fairly conservative like projects, videos, events, etc. But, this has changed. Now their athletes have their own dedicated highlight. All one gets is a name, face, and emoji. Very intriguing, isn’t it? This is a great inspiration.
 
 ![insta highlight cover redbull](https://images.wondershare.com/filmora/article-images/2021/insta-highlight-cover-redbull.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 8.Tide
 
@@ -133,7 +129,11 @@ With the #AnthroHome Highlight, they do a few things differently. Occasionally, 
 ![insta highlight cover anthropologie](https://images.wondershare.com/filmora/article-images/2021/insta-highlight-cover-anthropologie.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to Make Your Own Insta Highlight Cover?
@@ -262,18 +262,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-collabcanvas-pro-instagram-video-mosaics-unite/"><u>[New] CollabCanvas Pro Instagram Video Mosaics Unite</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-optimal-devices-for-photogrammetric-movies/"><u>[New] Optimal Devices for Photogrammetric Movies</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-the-ultimate-guide-to-finding-instagram-filters-for-no-cost/"><u>[New] The Ultimate Guide to Finding Instagram Filters for No Cost</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-building-brands-on-the-buzzing-platform-of-instagram-marketing/"><u>[Updated] 2024 Approved Building Brands on the Buzzing Platform of Instagram Marketing</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-instagram-insights-pro-tips-for-downloading-igtv-videos-on-computers-for-2024/"><u>[Updated] Instagram Insights Pro Tips for Downloading IGTV Videos on Computers for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-effortless-audio-delivery-on-your-iphone/"><u>2024 Approved Effortless Audio Delivery on Your iPhone</u></a></li>
-<li><a href="https://win11.techidaily.com/declutter-your-pc-using-windows-1011-to-delete-old-files/"><u>Declutter Your PC: Using Windows 10/11 to Delete Old Files</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/discover-the-latest-in-computing-toms-hardware-hub/"><u>Discover the Latest in Computing - Tom's Hardware Hub</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/discover-vitas-full-fledged-video-editor-a-detailed-guide-2024/"><u>Discover Vita's Full-Fledged Video Editor A Detailed Guide, 2024</u></a></li>
-<li><a href="https://driver-error.techidaily.com/1721105051033-how-to-fix-no-driver-found-error-on-your-device-with-windows-11-8-or-7-solved/"><u>How to Fix 'No Driver Found' Error on Your Device with Windows 11, 8 or 7 – Solved!</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/transform-subtitles-quickly-best-8-converters-from-sub-to-streamlined-srtr/"><u>Transform Subtitles Quickly! Best 8 Converters From SUB to Streamlined SRTR</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-vivo-y17s-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On Vivo Y17s? | Dr.fone</u></a></li>
-<li><a href="https://fox-that.techidaily.com/what-to-do-when-your-iphone-cant-recognize-nearness-anymore/"><u>What to Do When Your iPhone Can't Recognize Nearness Anymore</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-tiletime-effortless-video-mosaics-on-both-oses/"><u>[New] In 2024, TileTime Effortless Video Mosaics on Both OSes</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-your-personal-igtv-channel-guide-for-inspiration/"><u>[New] Your Personal IGTV Channel Guide for Inspiration</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-a-beginners-guide-to-starting-a-professional-account-on-ig/"><u>[Updated] 2024 Approved A Beginner's Guide to Starting a Professional Account on IG</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-luminous-likes-three-proven-ways-for-insta-highlights/"><u>[Updated] 2024 Approved Luminous Likes Three Proven Ways for Insta Highlights</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-evolving-tactics-for-crafting-immersive-mukbang-sessions-for-2024/"><u>[Updated] Evolving Tactics for Crafting Immersive Mukbang Sessions for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-digital-footprints-on-instagram-effective-photo-watermarking/"><u>[Updated] In 2024, Digital Footprints on Instagram Effective Photo Watermarking</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-the-instagram-essentials-seamlessly-adding-a-gallery-of-images-and-videos/"><u>[Updated] In 2024, The Instagram Essentials Seamlessly Adding a Gallery of Images and Videos</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-unleash-your-creativity-a-guide-to-crafting-custom-audio-on-android-phones-for-2024/"><u>[Updated] Unleash Your Creativity A Guide to Crafting Custom Audio on Android Phones for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-generate-brand-identity-accessible-logo-templates-and-editing/"><u>2024 Approved Generate Brand Identity Accessible Logo Templates & Editing</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-honor-magic-vs-2-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your Honor Magic Vs 2 Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-infinix-zero-5g-2023-turbo-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On Infinix Zero 5G 2023 Turbo | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Asus ROG Phone 8 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-silent-departure-4-compelling-reasons-for-less-visitors-on-fb/"><u>The Silent Departure: 4 Compelling Reasons for Less Visitors on FB</u></a></li>
 </ul></div>
 

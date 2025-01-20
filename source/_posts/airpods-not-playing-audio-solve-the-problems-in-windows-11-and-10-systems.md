@@ -1,7 +1,7 @@
 ---
 title: AirPods Not Playing Audio? Solve the Problems in Windows 11 and 10 Systems!
-date: 2024-12-19T18:12:29.577Z
-updated: 2024-12-23T17:47:38.463Z
+date: 2025-01-15T06:30:34.114Z
+updated: 2025-01-20T10:19:58.939Z
 tags:
   - win11
   - win10
@@ -31,6 +31,10 @@ The headphone jack is not working on Windows 10 after an upgrade or performing a
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Fix 1: Plug the headphone in and restart your computer
 
  Simple as this fix seems, it did help many people out. Only two steps are required:
@@ -43,6 +47,10 @@ The headphone jack is not working on Windows 10 after an upgrade or performing a
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Fix 2: Enable your Playback device
 
  You should check whether your headphone (as the**Playback device** ) is disabled by the operating system. If it is, follow the following steps to enable it:
@@ -51,22 +59,14 @@ The headphone jack is not working on Windows 10 after an upgrade or performing a
 
 2) Right-click the speaker icon ![](https://images.drivereasy.com/wp-content/uploads/2016/08/2019-11-26_14-41-05.jpg) in the notification area of your taskbar, and then click **Sounds** .
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/image-101.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  3) If your headphone is not listed n the**Playback** tab, right-click the blank area and select**Show Disabled Devices** . Then your device should show up.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/02/image-22.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  4) Right-click your headphone and select**Enabled** .
@@ -76,10 +76,6 @@ The headphone jack is not working on Windows 10 after an upgrade or performing a
  Once complete, check to see if your headphone problem goes away. In case it still remains, please head over to Fix 3.
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Fix 3: Set your headphone as the default device**
 
@@ -91,13 +87,25 @@ The headphone jack is not working on Windows 10 after an upgrade or performing a
 
 ![Control Panel Windows 10](https://images.drivereasy.com/wp-content/uploads/2016/08/img_57a1b750ef792.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  3) Change your view to Category and click   **Hardware and Sound.**
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/04/img_5adee837b737e.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  4) Click **Sound** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/04/img_5adee85f51f54.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  5) On the**Playback** tab, select**Headphones** and click**Set default** .
 
@@ -106,6 +114,10 @@ The headphone jack is not working on Windows 10 after an upgrade or performing a
 **Note** : You may see  “Speaker/Headphones” instead of just “Headphones”. If that’s the case, select**Speakers/Headphones** and click**Set Default** .
 
 ![Speakders/Headphones](https://images.drivereasy.com/wp-content/uploads/2016/08/img_57a1b917ae4b4.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  5) Click the **OK** button.
 
@@ -128,7 +140,7 @@ The headphone jack is not working on Windows 10 after an upgrade or performing a
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/image-504.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  3)Click **Update All**  to automatically download and install the correct versions of all the drivers that are missing or out of date on your system. (Or you can update your drivers one at a time by clicking the Update button next to each driver.)
@@ -143,10 +155,6 @@ The headphone jack is not working on Windows 10 after an upgrade or performing a
 
 ---
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Fix 5: Change the settings in Realtek HD Audio Manager**
 
  Another possibility is that the Realtek HD Audio Manager isn’t configured correctly to play sound through your headphones. Changing the settings may resolve the problem .
@@ -159,17 +167,9 @@ The headphone jack is not working on Windows 10 after an upgrade or performing a
 
 ![Realtek HD Audio Manager](https://images.drivereasy.com/wp-content/uploads/2016/08/img_57a1bb3f18c6d.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  3) Check**Disable front panel jack detection** .
 
 ![Disable front panel jack detection](https://images.drivereasy.com/wp-content/uploads/2016/08/img_57a1c10cd4f32.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  4) Click**OK** .
 
@@ -245,20 +245,19 @@ And that’s just the start of the benefits…
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-the-best-edges-for-instagram-excellence-an-essential-guide/"><u>[New] 2024 Approved The Best Edges for Instagram Excellence – An Essential Guide</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-crafting-quality-podcasts-iphone-and-ipad-tips-for-intense-interviewing/"><u>[Updated] 2024 Approved Crafting Quality Podcasts IPhone & iPad Tips for Intense Interviewing</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-elevate-conversations-via-curated-creativity-in-stories-lives/"><u>[Updated] 2024 Approved Elevate Conversations via Curated Creativity in Stories Lives</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-clearing-up-your-video-quality-issues/"><u>[Updated] Clearing Up Your Video Quality Issues</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-instagrams-best-grids-built-by-the-top-tools-compiled-here-for-2024/"><u>[Updated] Instagram's Best Grids Built by the Top Tools Compiled Here for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-the-fundamentals-of-crafting-high-quality-videos-for-instagram-audiences/"><u>[Updated] The Fundamentals of Crafting High-Quality Videos for Instagram Audiences</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-vdq-video-snatcher-assessment-comprehensive-analysis/"><u>[Updated] VDQ Video Snatcher Assessment Comprehensive Analysis</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-enrich-engagement-tailored-questions-for-ig-story-boosting/"><u>2024 Approved Enrich Engagement Tailored Questions for IG Story Boosting</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/a-straightforward-path-to-turn-off-igtv-for-2024/"><u>A Straightforward Path to Turn Off IGTV for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/android-video-from-end-to-beginning-for-2024/"><u>Android Video From End to Beginning for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/efficient-strategies-for-multi-group-facebook-group-posting/"><u>Efficient Strategies for Multi-Group Facebook Group Posting</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/learn-how-to-lock-stolen-your-apple-iphone-8-plus-properly-by-drfone-ios/"><u>Learn How To Lock Stolen Your Apple iPhone 8 Plus Properly</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/play-store-not-working-on-motorola-g54-5g-8-solutions-inside-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Not Working On Motorola G54 5G? 8 Solutions Inside | Dr.fone</u></a></li>
-<li><a href="https://common-error.techidaily.com/resolving-the-driver-failed-setting-issue-a-step-by-step-guide/"><u>Resolving the 'Driver Failed' Setting Issue: A Step-by-Step Guide</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/simplify-streaming-with-obs-studio-techniques-android-for-2024/"><u>Simplify Streaming with OBS Studio Techniques (Android) for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-instagram-influencers-list-25-top-influencers-you-should-know/"><u>[New] 2024 Approved Instagram Influencers List 25 Top Influencers You Should Know</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-top-30-youtube-intro-creators-for-spectacular-opening-videos/"><u>[New] 2024 Approved Top 30 YouTube Intro Creators for Spectacular Opening Videos</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-craft-channels-with-flair-unveiling-10-innovative-design-platforms/"><u>[New] In 2024, Craft Channels with Flair Unveiling 10 Innovative Design Platforms</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-snag-the-best-screen-grabber-software-in-win10-today-for-2024/"><u>[New] Snag the Best Screen Grabber Software in Win10 Today for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-crafting-effective-teacher-videos-on-youtube-top-10-strategies-for-2024/"><u>[Updated] Crafting Effective Teacher Videos on YouTube – Top 10 Strategies for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-expert-techniques-for-removing-audio-disturbances/"><u>[Updated] Expert Techniques for Removing Audio Disturbances</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-streamline-your-social-networking-joining-instagram-and-facebook-seamlessly-for-2024/"><u>[Updated] Streamline Your Social Networking Joining Instagram & Facebook Seamlessly for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-tailoring-your-videos-for-impact-on-instagram-feed-for-2024/"><u>[Updated] Tailoring Your Videos for Impact on Instagram Feed for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-voice-interpretation-without-a-price-tag-for-2024/"><u>[Updated] Voice Interpretation Without a Price Tag for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-dissecting-popularity-ten-facts-about-reels-unmasked/"><u>2024 Approved Dissecting Popularity Ten Facts About Reels, Unmasked</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-instagram-storytelling-mastery-crafting-a-dynamic-marketing-plan/"><u>2024 Approved Instagram Storytelling Mastery Crafting a Dynamic Marketing Plan</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/s-all-audio-extracted-top-free-youtube-to-mp3-converter-guide/"><u>Access All Audio Extracted Top Free YouTube to MP3 Converter Guide</u></a></li>
+<li><a href="https://win-data.techidaily.com/become-a-pro-at-body-race-on-your-computer-a-comprehensive-guide/"><u>Become a Pro at Body Race on Your Computer - A Comprehensive Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/mastering-the-art-of-preserving-instagram-live-moments-for-2024/"><u>Mastering the Art of Preserving Instagram Live Moments for 2024</u></a></li>
 </ul></div>
 
