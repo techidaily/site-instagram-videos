@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Perfect Selfies  Tips for Instagram Story Magnification\""
-date: 2025-01-14T03:49:14.098Z
-updated: 2025-01-19T19:45:35.323Z
+date: 2025-01-21T05:08:02.692Z
+updated: 2025-01-26T02:33:59.775Z
 tags:
   - ai video
   - ai instagram
@@ -35,7 +35,7 @@ Here, in this article, we are going to introduce various methods of **zooming in
 * [Part 2: Edit Instagram Videos with Excellent Video Editor](#part2)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to zoom in/out in Instagram Stories
@@ -47,7 +47,7 @@ You can zoom in/out while clicking a picture for Instagram Stories, by pinching 
 ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-normal-mode.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Image resource: later.com
@@ -58,6 +58,10 @@ Image resource: later.com
 
 ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-rewind-mode.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Image resource: techjunkie.com
 
 We know a video in 'Rewind' mode is pretty cute and funny, as the chain of events occurs in the reverse order. So, to zoom in/out while shooting one such video in 'Rewind' mode, you need to press the record button and then swipe up/down your finger, just like in the 'Normal' mode. Here also, if you remove your finger, the recording will stop. Master how to zoom in Instagram Stories, while recording in 'Rewind' mode.
@@ -67,7 +71,7 @@ We know a video in 'Rewind' mode is pretty cute and funny, as the chain of event
 ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-superzoom-mode.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Image resource: metro.com
@@ -77,6 +81,10 @@ Shooting a video in 'Boomerang' is exciting while creating Instagram Stories. We
 #### 4\. Hands-Free Mode
 
 ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-hands-free-mode.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Image resource: later.com
 
@@ -89,10 +97,6 @@ Be it a 'Boomerang', 'Rewind', 'Hands-Free', or 'Normal' mode video, learning ho
 Editing Instagram videos is not difficult at all as long as you installed a powerful yet easy-to-use video editing tool. Luckily, Wondershare Filmora is one of them because you can custom your videos with Filmora according to your needs even if you didn't take any training.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Final Verdict
 
@@ -111,10 +115,6 @@ You May also like
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -130,20 +130,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-instagrams-hidden-gems-advanced-techniques-for-bokeh/"><u>[New] In 2024, Instagram's Hidden Gems Advanced Techniques for Bokeh</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-instagram-mastery-in-recreating-visual-stories/"><u>[New] Instagram Mastery in Recreating Visual Stories</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-prime-choices-of-affordable-cameras-with-full-hd-for-2024/"><u>[New] Prime Choices of Affordable Cameras with Full HD for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-symphony-of-screenshots-incorinas-music-into-social-media/"><u>[New] Symphony of Screenshots Incorinas Music Into Social Media</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-top-specialists-exceptional-instragram-highlight-artisans/"><u>[New] Top Specialists Exceptional Instragram Highlight Artisans</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-climb-the-ladder-the-best-12-tycoon-games-for-aspiring-leaders-for-2024/"><u>[Updated] Climb the Ladder The Best 12 Tycoon Games for Aspiring Leaders for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-keeping-track-of-changed-followers-on-instagram/"><u>[Updated] In 2024, Keeping Track of Changed Followers on Instagram</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-insta-reversal-unlock-the-power-of-video-rotation-for-2024/"><u>[Updated] Insta-Reversal Unlock the Power of Video Rotation for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-instagram-story-wizardry-secrets-revealed-for-2024/"><u>[Updated] Instagram Story Wizardry Secrets Revealed for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-learn-photoshops-core-techniques-for-shade-adjustment/"><u>[Updated] Learn Photoshop's Core Techniques for Shade Adjustment</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-top-5-helmet-action-cameras-for-motorcycle-2023-update/"><u>2024 Approved Top 5 Helmet Action Cameras For Motorcycle -2023 Update</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/psvr2-unveiled-latest-updates-on-launch-date-pricing-and-detailed-specifications/"><u>PSVR2 Unveiled: Latest Updates on Launch Date, Pricing & Detailed Specifications</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/speed-in-seizing-picture-plus-pitch/"><u>Speed in Seizing Picture + Pitch</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/unlocking-enigmas-ranked-puzzle-experiences-explored/"><u>Unlocking Enigmas Ranked Puzzle Experiences Explored</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/unveiling-the-origins-how-windows-meltdown-became-crowdstrikes-historic-challenge-techinsights/"><u>Unveiling the Origins: How Windows Meltdown Became CrowdStrike's Historic Challenge | TechInsights</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-effortless-visual-transitions-using-instagram-chroma-keying/"><u>[New] 2024 Approved Effortless Visual Transitions Using Instagram Chroma Keying</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-capture-the-sparkle-insta-worthy-photos-to-inspire-your-audience/"><u>[New] In 2024, Capture the Sparkle Insta-Worthy Photos to Inspire Your Audience</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-share-and-post-like-a-pro-mastering-instagram-gif-uploads-4-step-method/"><u>[New] In 2024, Share & Post Like a Pro Mastering Instagram GIF Uploads (4-Step Method)</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/actical-multitasking-a-guide-to-co-watching-on-yt/"><u>[New] Tactical Multitasking A Guide to Co-Watching on YT</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-establishing-an-individual-identity-on-youtube-platform/"><u>[Updated] 2024 Approved Establishing an Individual Identity on YouTube Platform</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-understanding-instagrams-video-limit-policy/"><u>[Updated] 2024 Approved Understanding Instagram's Video Limit Policy</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-correcting-mute-issue-during-obs-recording-for-2024/"><u>[Updated] Correcting Mute Issue During OBS Recording for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-deciphering-youtubes-shorts-funding-mechanism-for-2024/"><u>[Updated] Deciphering YouTube's Shorts Funding Mechanism for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-get-the-most-out-of-instagram-photos-with-these-apps/"><u>[Updated] In 2024, Get the Most Out of Instagram Photos with These Apps</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-instagram-video-descriptions-the-key-to-threefold-success/"><u>[Updated] In 2024, Instagram Video Descriptions - The Key to Threefold Success</u></a></li>
+<li><a href="https://solve-helper.techidaily.com/abbyy-ocr-boosting-workflow-efficiency-in-recruitment-software-solutions/"><u>ABBYY OCR: Boosting Workflow Efficiency in Recruitment Software Solutions</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/become-a-pro-with-2023s-free-templates/"><u>Become a Pro with 2023'S FREE Templates</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/boosting-instagram-visibility-the-ultimate-guide-to-puzzle-feeds/"><u>Boosting Instagram Visibility The Ultimate Guide to Puzzle Feeds</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-navigating-asmrs-influence-on-your-life/"><u>In 2024, Navigating ASMR’s Influence on Your Life</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-perfect-your-igtv-shooting-skills-tips-for-smartphonedslr-cameras/"><u>In 2024, Perfect Your IGTV Shooting Skills Tips for Smartphone/DSLR Cameras</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/masterclass-syncing-your-social-media-with-urls-for-2024/"><u>Masterclass Syncing Your Social Media with URLs for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/pioneering-the-future-of-video-conferencing-with-google-meet-to-youtube/"><u>Pioneering the Future of Video Conferencing with Google Meet to YouTube</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/the-fastest-wireless-solution-a-comprehensive-review-of-the-netgear-nighthawk-rax120/"><u>The Fastest Wireless Solution? A Comprehensive Review of the Netgear Nighthawk RAX120</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/troubleshooting-and-repair-steps-for-d3dx927dll-errors-in-windows/"><u>Troubleshooting and Repair Steps for d3dx9_27.dll Errors in Windows</u></a></li>
 </ul></div>
 

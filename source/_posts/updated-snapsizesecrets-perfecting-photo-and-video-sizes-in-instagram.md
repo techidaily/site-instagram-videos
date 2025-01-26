@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] SnapSizeSecrets  Perfecting Photo and Video Sizes in Instagram\""
-date: 2025-01-18T19:46:29.000Z
-updated: 2025-01-19T21:49:27.666Z
+date: 2025-01-20T11:37:55.180Z
+updated: 2025-01-26T14:49:11.209Z
 tags:
   - ai video
   - ai instagram
@@ -30,7 +30,7 @@ Taking photos with iPhones and Android Smartphones and posting them to Instagram
 Troubles begin when you want to upload photos and videos that weren't captured with a Smartphone to Instagram. In most cases, the photos and videos produced by DSLR cameras and other semi-professional and professional equipment are much larger than the sizes supported by Instagram. That is the reason why we created this guide that will help you post visual content that is perfectly adjusted to Instagram in 2021.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Types of Files Accepted by Instagram
@@ -50,7 +50,7 @@ Duration of Videos on Instagram
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Best Image Sizes for Instagram Posts
@@ -62,7 +62,7 @@ A couple of years ago, Instagram has finally allowed its users to upload images 
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
@@ -90,7 +90,7 @@ The profile pictures on Instagram are tiny, and the optimum size for them is 160
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -108,22 +108,14 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-discover-the-top-7-free-youtube-tag-extractor-vendors/"><u>[New] Discover the Top 7 Free YouTube Tag Extractor Vendors</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-syncing-vimeo-and-instagram-the-ultimate-guide/"><u>[New] In 2024, Syncing Vimeo and Instagram The Ultimate Guide</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-making-mp3-from-instagram-visual-content/"><u>[New] Making MP3 From Instagram Visual Content</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-reach-and-recognition-viewership-metrics-for-insta-photos-for-2024/"><u>[New] Reach and Recognition Viewership Metrics for Insta Photos for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-amplifying-your-playlists-on-instagram/"><u>[Updated] 2024 Approved Amplifying Your Playlists on Instagram</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-elevate-your-social-media-game-3-techniques-to-enhance-video-captions-on-ig/"><u>[Updated] Elevate Your Social Media Game 3 Techniques to Enhance Video Captions on IG</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-swap-periscopes-lens-innovative-video-platforms-for-smartphones/"><u>2024 Approved Swap Periscope's Lens Innovative Video Platforms for Smartphones</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/discover-the-vibrant-world-of-4-color-3d-printing-with-phrozen-innovation/"><u>Discover the Vibrant World of 4-Color 3D Printing with Phrozen Innovation</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/o-pick-a-unique-name-for-youtube-channel-filmora/"><u>How To Pick a Unique Name for YouTube Channel - Filmora</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-honor-70-lite-5g-by-phone-number-drfone-by-drfone-virtual-android/"><u>How to Track Honor 70 Lite 5G by Phone Number | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-iphone-15-plus-official-method-to-unlock-your-iphone-15-plus-by-drfone-ios/"><u>In 2024, How To Unlock iPhone 15 Plus Official Method to Unlock Your iPhone 15 Plus</u></a></li>
-<li><a href="https://win11.techidaily.com/streamline-stylus-malfunctions-with-these-tips-for-windows-tablets/"><u>Streamline Stylus Malfunctions with These Tips for Windows Tablets</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/the-comprehensible-guide-to-capturing-instagram-media-via-computer-systems-for-2024/"><u>The Comprehensible Guide to Capturing Instagram Media via Computer Systems for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/the-secret-handbook-to-instagrams-exclusive-club-elevating-your-profile-with-six-tips/"><u>The Secret Handbook to Instagram's Exclusive Club Elevating Your Profile with Six Tips</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/unbeatable-6-apps-for-crafting-perfect-reels-on-instagram/"><u>Unbeatable 6 Apps for Crafting Perfect Reels on Instagram</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/unbeatable-deals-alert-snag-the-finest-value-for-apples-latest-13-inch-macbook-air-with-m2-at-all-time-low-price-this-cyber-monday-zdnet-insider-tips/"><u>Unbeatable Deals Alert: Snag the Finest Value for Apple's Latest 13-Inch MacBook Air with M2 at All-Time Low Price This Cyber Monday | ZDNET Insider Tips</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/unleash-creative-potential-large-scale-workflow-via-canva-and-chatgpt/"><u>Unleash Creative Potential - Large-Scale Workflow via Canva & ChatGPT</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-perfecting-your-instagram-format-imovie-square-video-creation/"><u>[New] 2024 Approved Perfecting Your Instagram Format IMovie Square Video Creation</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-enhancing-visuals-tips-for-shooting-and-editing-slow-motion-content-on-instagram/"><u>[New] Enhancing Visuals Tips for Shooting and Editing Slow Motion Content on Instagram</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-picture-perfect-instagram-carousel-for-2024/"><u>[New] Picture-Perfect Instagram Carousel for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-strategic-insights-into-making-emotional-connection-with-customer-success-videos/"><u>[Updated] 2024 Approved Strategic Insights Into Making Emotional Connection with Customer Success Videos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-spark-interest-and-build-community-through-these-10-igtv-approaches/"><u>[Updated] In 2024, Spark Interest and Build Community Through These 10 IGTV Approaches</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-slay-the-game-designing-quirky-text-memes-for-2024/"><u>[Updated] Slay the Game Designing Quirky Text Memes for 2024</u></a></li>
+<li><a href="https://win-awesome.techidaily.com/aucun-souci-avec-sans-tutoriel-dinstallation-et-installation-facile-du-nouvel-os/"><u>Aucun Souci Avec Sans - Tutoriel D’Installation Et Installation Facile Du Nouvel OS.</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-realme-10t-5g-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Realme 10T 5G? | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/navigating-the-digital-classroom-a-guide-to-9-key-tech-tools-for-academic-success/"><u>Navigating the Digital Classroom: A Guide to 9 Key Tech Tools for Academic Success</u></a></li>
 </ul></div>
 

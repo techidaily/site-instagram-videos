@@ -1,7 +1,7 @@
 ---
 title: "\"Seamless Transition  Cropping & Exporting to Instagram Videos for 2024\""
-date: 2025-01-17T23:50:49.385Z
-updated: 2025-01-19T16:38:18.016Z
+date: 2025-01-21T00:30:24.048Z
+updated: 2025-01-25T17:39:10.715Z
 tags:
   - ai video
   - ai instagram
@@ -29,10 +29,6 @@ With more than 500 million active daily users Instagram has become one of the la
 
 **You May Also Like:** [How to Crop Photos/Images on iPhone](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to crop and export videos to instagram
 
 #### **Best cropping tool – Wondershare Filmora**
@@ -51,6 +47,10 @@ In order to start cropping your videos, you first must install the Filmora video
 
 ![](https://images.wondershare.com/filmora/article-images/filmora-import.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 **Step 2: Drag and Drop the video file onto the Timeline**
@@ -58,7 +58,7 @@ In order to start cropping your videos, you first must install the Filmora video
 ![](https://images.wondershare.com/filmora/article-images/video-editor-main-interface-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Now that the video clip you want to edit is in the editor's media library, drag it and drop it to the timeline.
@@ -71,10 +71,6 @@ Chances are that the camera you used to record your video clip recorded the foot
 
 ![check aspect ratio](https://images.wondershare.com/filmora/article-images/check-aspect-ratio.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Once the new window appears, you should click on the Format icon positioned in the upper left corner of the screen. Select the MP4 format, name your file and select the folder where the file will be exported.
 
 Click on the Settings button and then set the Quality of the video to Best and select the HD Optimized option in the Encoder menu. Choose the Resolution and Frame Rate that match the ones in your video and change the Bitrate in the Audio settings to 128 Kbps and hit OK.
@@ -82,7 +78,7 @@ Click on the Settings button and then set the Quality of the video to Best and s
 ![](https://images.wondershare.com/filmora/article-images/16-9-aspect-ratio-export.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **2\. Portrait (4:3)**
@@ -92,7 +88,7 @@ In order to create a video that has a portrait aspect ratio, you need to crop it
 ![crop and zoom filmora](https://images.wondershare.com/filmora/article-images/crop-and-zoom-filmora.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Adjust the crop tool's position and click OK. The export process for landscape and portrait videos is nearly identical and the only thing you need to change is the resolution. Click on the Resolution drop-down menu and select the custom option and then enter the height and weight values you inserted in the cropping tool. Your portrait video is ready to be exported.
@@ -104,6 +100,10 @@ The process of creating a square video is the same as the process of creating a 
 The steps for exporting square videos are the same as the steps you need to take to export a portrait video. Make sure to change the resolution of the video to 1080X1080 before hitting the Export button and enjoy sharing your videos on Instagram.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -120,22 +120,22 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-a-guide-to-peak-performance-posting-times-for-insta-success/"><u>[New] 2024 Approved A Guide to Peak Performance Posting Times for Insta Success</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-conquering-the-world-of-instagram-reels-tips-inside-for-2024/"><u>[New] Conquering the World of Instagram Reels – Tips Inside for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-explore-these-8-sizzling-social-media-sensations-on-fb-for-2024/"><u>[New] Explore These 8 Sizzling Social Media Sensations on FB for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-easy-steps-to-rotate-video-in-vlc/"><u>[Updated] Easy Steps to Rotate Video in VLC</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-unleashing-creativity-in-instagram-photography-through-border-use/"><u>[Updated] In 2024, Unleashing Creativity in Instagram Photography Through Border Use</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-prime-platforms-crafting-3d-animation-art-for-2024/"><u>[Updated] Prime Platforms Crafting 3D Animation Art for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-understanding-and-curating-instagram-story-segments-with-ease/"><u>2024 Approved Understanding and Curating Instagram Story Segments with Ease</u></a></li>
-<li><a href="https://win-manuals.techidaily.com/hoe-je-uitgedaan-producten-volgen-bij-vendu-de-6-goedkomenste-methoden-voor-het-herstellen-van-stokhoevelingen/"><u>Hoe Je Uitgedaan Producten Volgen Bij Vendu - De 6 Goedkomenste Methoden Voor Het Herstellen Van Stokhoevelingen</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-seafarers-choice-top-5-pro-fish-cameras/"><u>In 2024, Seafarer's Choice Top 5 Pro-Fish Cameras</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-techniques-to-effortlessly-record-your-instagram-experiences/"><u>In 2024, Techniques to Effortlessly Record Your Instagram Experiences</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-tips-to-triple-your-instagram-video-viewers/"><u>In 2024, Tips to Triple Your Instagram Video Viewers</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-transform-your-reels-6-advanced-applications-for-instagram/"><u>In 2024, Transform Your Reels 6 Advanced Applications for Instagram</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/instaharmony-androidplusios-photo-video-alchemy/"><u>InstaHarmony Android+iOS Photo-Video Alchemy</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/mastering-downloads-igtv-media-for-phone-users-for-2024/"><u>Mastering Downloads IGTV Media for Phone Users for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/speed-up-your-pc-solve-sluggish-startup-problems-on-windows-7/"><u>Speed Up Your PC: Solve Sluggish Startup Problems on Windows 7</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/tiktok-video-safeguarding-on-smartphones-uncovered/"><u>TikTok Video Safeguarding on Smartphones Uncovered</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/troubleshoot-your-apex-legends-voice-call-trouble-with-these-proven-fixes/"><u>Troubleshoot Your Apex Legends Voice Call Trouble with These Proven Fixes</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-optimal-insta-video-sizes-2023-guide/"><u>[New] 2024 Approved Optimal Insta Video Sizes - 2023 Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-shaping-public-perception-5-essentials-for-instagram-marketing-mavericks/"><u>[New] 2024 Approved Shaping Public Perception 5 Essentials for Instagram Marketing Mavericks</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-social-media-mastery-incorporating-polls-in-stories/"><u>[New] In 2024, Social Media Mastery Incorporating Polls in Stories</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/astering-video-visibility-settings-on-youtube/"><u>[New] Mastering Video Visibility Settings on YouTube</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-viral-velocity-on-instagram-leveraging-video-and-likes/"><u>[Updated] 2024 Approved Viral Velocity on Instagram Leveraging Video & Likes</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-best-free-youtube-video-editing-apps-for-iphone-and-ipad-and-how-tos-for-2024/"><u>[Updated] Best Free YouTube Video Editing Apps for iPhone & iPad & How-Tos for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-from-sideways-to-symmetry-a-guide-to-flipping-images-and-spreading-engagement-for-2024/"><u>[Updated] From Sideways to Symmetry A Guide to Flipping Images and Spreading Engagement for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-boundless-treasure-tales-of-instagram-flair/"><u>[Updated] In 2024, Boundless Treasure Tales of Instagram Flair</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-singe-sounds-to-complement-ppt-slides/"><u>[Updated] Singe Sounds to Complement PPT Slides</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-leading-plot-crafting-hub/"><u>2024 Approved Leading Plot Crafting Hub</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ing-video-content-monetization-success/"><u>Auditing Video Content Monetization Success</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/dealing-with-failed-task-sequences-fixing-error-0x8007000f/"><u>Dealing with Failed Task Sequences: Fixing Error 0X8007000f</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-how-to-transfer-apple-iphone-13-data-to-iphone-12-a-complete-guide-drfone-by-drfone-transfer-from-ios/"><u>In 2024, How to Transfer Apple iPhone 13 Data to iPhone 12 A Complete Guide | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/maximizing-viewership-igtv-video-scaling-hacks-for-2024/"><u>Maximizing Viewership IGTV Video Scaling Hacks for 2024</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/resolving-video-graphics-drivers-problems-a-comprehensive-guide-yl-software-solutions/"><u>Resolving Video Graphics Drivers Problems: A Comprehensive Guide - YL Software Solutions</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/silent-spectators-manual-mastering-the-art-of-private-instagram-story-watching-pcandroidios-for-2024/"><u>Silent Spectator's Manual Mastering the Art of Private Instagram Story Watching [PC/Android/iOS] for 2024</u></a></li>
+<li><a href="https://techidaily.com/undeleted-lost-videos-from-lava-by-fonelab-android-recover-video/"><u>Undeleted lost videos from Lava</u></a></li>
 </ul></div>
 

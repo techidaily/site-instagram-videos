@@ -1,7 +1,7 @@
 ---
 title: "Optimizing Your Disco Elysium Adventure: How to Fix PC Crashes & Enjoy the Game Seamlessly"
-date: 2025-01-16T17:41:52.455Z
-updated: 2025-01-19T23:21:49.944Z
+date: 2025-01-25T08:59:46.862Z
+updated: 2025-01-26T00:13:52.241Z
 tags:
   - win11
   - win10
@@ -21,10 +21,6 @@ A screenshot of Ghostwire: Tokyo from Steam
 
  **If Ghostwire: Tokyo keeps crashing on your PC, don’t worry. You’ve come to the right place.** This post offers a complete guide that covers the latest solutions on how to fix the**Ghostwire: Tokyo** crashing issues on Windows computer. After reading it, you should be able to fix this issue on your own quickly and easily!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Try these fixes
 
  Although the causes of Ghostwire: Tokyo crashing issue vary from player to player, here we’ve gathered the latest fixes for the crashing issue. **Whether Ghostwire: Tokyo crashes on startup (or the game won’t launch) or crashes in the middle of the game, you can find a fix to try in this article.**
@@ -38,6 +34,10 @@ A screenshot of Ghostwire: Tokyo from Steam
 7. **[Disable Steam Overlay](https://tools.techidaily.com/drivereasy/download/)**
 8. **[Disable third-party antivirus software](https://tools.techidaily.com/drivereasy/download/)**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Fix 1: Verify the game files
 
  Game file corruption are usually the culprit for the game crashing issues. If you’re not sure if any game files are missing or corrupted on your PC, you can follow the instructions below to verify integrity of game files:
@@ -47,15 +47,19 @@ A screenshot of Ghostwire: Tokyo from Steam
 ![Steam game properties](https://images.drivereasy.com/wp-content/uploads/2021/04/Steam-game-F1-2020-properties.jpg)
 3. Click **LOCAL FILES** on the left, then click **Verify integrity of game files…** . If Steam finds anything wrong with the game files, it will re-download them from its official server.  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![verify the integrity of game files](https://images.drivereasy.com/wp-content/uploads/2021/04/F1-2020-verify-the-integrity-of-game-files.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Depending on the size of the game files, it may take some time to verify all your game files.
 
  After the the verifying process is complete, run Ghostwire: Tokyo to check if it crashes again. If this issue persists, try the next fix, below.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Fix 2: Update graphics driver
 
@@ -66,6 +70,10 @@ A screenshot of Ghostwire: Tokyo from Steam
  If you don’t remember when was the last time you updated your drivers, definitely do it now.
 
 There’re mainly two ways you can update your graphics drivers:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Option 1: Manually
 
@@ -81,6 +89,10 @@ There’re mainly two ways you can update your graphics drivers:
  Once you’ve downloaded the correct drivers for your system, double-click on the downloaded file and follow the on-screen instructions to install the driver.
 
 Or
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Option 2: Automatically (Recommended)
 
@@ -99,16 +111,8 @@ Or
 ![Driver Easy Scan Now](https://images.drivereasy.com/wp-content/uploads/2021/03/Driver-Easy-Scan-Now.jpg)
 3. Click**Update All** to automatically download and install the correct version of_all_ the drivers that are missing or out of date on your system.  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Update graphics drivers with Driver Easy](https://images.drivereasy.com/wp-content/uploads/2020/09/de-update-all-rtx-3080.jpg)  
  (This requires **[the Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click Update All. If you don’t want to pay for the Pro version, you can still download and install all the drivers you need with the free version; you just have to download them one at a time, and manually install them, the normal Windows way.)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **The Pro version of Driver Easy** comes with _full technical support_ . If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
 
@@ -135,22 +139,18 @@ Or
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/fortect-1.jpg)
 3. Fortect will scan your computer thoroughly. This may take a few minutes.  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/fortect-2.jpg)
 4. Once done, you’ll see a detailed report of all the issues on your PC. To fix them automatically, click**START REPAIR** . This requires you to purchase the full version. But don’t worry. If Fortect doesn’t solve the issue, you can request a refund within 60 days.  
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/fortect-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Fortect comes with 24/7 Technical Support. If you need any assistance, you can use one of the following:  
 **Email:** <support@fortect.com>  
 **Submit a ticket:** _[https://www.fortect.com/company/contacts/](https://www.reimageplus.com/submit-ticket/)_
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Fix 4: Install the latest game patch
 
@@ -159,10 +159,6 @@ Or
  If a patch is available, it will be detected by Steam, and the latest game patch will be automatically downloaded and installed when you run the game.
 
  Run Ghostwire: Tokyo and see if the game crashing issue has been resolved. If it hasn’t, or there was no new game patch available, move on to next fix, below.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Fix 5: Install the latest DirectX files
 
@@ -198,6 +194,10 @@ Or
 1. Launch Steam and navigate to **the LIBRARY tab** . **right-click** on _Ghostwire: Tokyo_ . Then select **Properties** .  
 ![Steam game properties](https://images.drivereasy.com/wp-content/uploads/2021/04/Steam-game-F1-2020-properties.jpg)
 2. Uncheck **Enable Steam Overlay while in-game** .  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![disable steam overlay](https://images.drivereasy.com/wp-content/uploads/2021/05/disable-steam-overlay.jpg)
 
@@ -236,17 +236,22 @@ Or
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/1716068679362-new-2024-approved-ultimate-recorder-select-top-12-no-timer/"><u>[New] 2024 Approved Ultimate Recorder Select Top 12, No Timer!</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-a-visual-voyage-with-toolwiz-comprerande-review-2023-edition-for-2024/"><u>[Updated] A Visual Voyage with Toolwiz Comprerande Review, 2023 Edition for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-boosting-your-content-a-guide-to-instagram-video-fame/"><u>2024 Approved Boosting Your Content A Guide to Instagram Video Fame</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-essential-free-windowsmac-video-players-ranked/"><u>2024 Approved Essential Free Windows/Mac Video Players Ranked</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-the-chorus-of-content-perfecting-music-placement-on-ig/"><u>2024 Approved The Chorus of Content Perfecting Music Placement on IG</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/become-an-influencer-grow-by-a-thousand-on-instagrammonth/"><u>Become an Influencer Grow by a Thousand on Instagram/Month</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-apps-from-honor-x50i-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Apps from Honor X50i to Another | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-oneplus-ace-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use GPS Joystick to Fake GPS Location On OnePlus Ace 2 Pro | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-honor-x7b-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Honor X7b</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-realme-c53-location-on-twitter-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change your Realme C53 Location on Twitter | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/instagram-visual-impact-strategic-planning-for-viral-video-campaigns/"><u>Instagram Visual Impact Strategic Planning for Viral Video Campaigns</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/simplifying-vfx-with-magix-video-pro-x/"><u>Simplifying VFX with Magix Video Pro X</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-instagram-savings-straightforward-and-diversified-methods-unveiled/"><u>[New] Instagram Savings Straightforward & Diversified Methods Unveiled</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-simplify-your-social-media-uploading-multiple-photos-and-vids-on-ig/"><u>[New] Simplify Your Social Media Uploading Multiple Photos and Vids on IG</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-navigating-new-media-the-marketers-top-10-ig-editing-platforms/"><u>[Updated] 2024 Approved Navigating New Media The Marketer's Top 10 IG Editing Platforms</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-quick-step-by-step-guide-for-youtube-audio-in-imovie/"><u>[Updated] 2024 Approved Quick Step-by-Step Guide for YouTube Audio in iMovie</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-invisible-smile-vanished-eyes-in-picsart/"><u>[Updated] Invisible Smile, Vanished Eyes in Picsart</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-transforming-scenes-with-ease-your-gopro-time-lapse-guide/"><u>[Updated] Transforming Scenes with Ease Your GoPro Time-Lapse Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-10-free-instagram-story-viewers-to-watch-instagram-stories-anonymously/"><u>2024 Approved 10 FREE Instagram Story Viewers to Watch Instagram Stories Anonymously</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-a-curated-list-of-happiness-crying-combo-on-instagram-pages/"><u>2024 Approved A Curated List of Happiness-Crying Combo on Instagram Pages</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/6-effective-ways-of-resizing-your-igtv-videos-for-2024/"><u>6 Effective Ways of Resizing Your IGTV Videos for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/a-guide-honor-magic-5-pro-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>A Guide Honor Magic 5 Pro Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-vivo-v30-pro-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Vivo V30 Pro to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-10-best-fake-gps-location-spoofers-for-vivo-s17-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 10 Best Fake GPS Location Spoofers for Vivo S17 Pro | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-step-by-step-manual-upside-down-movies-in-snap/"><u>In 2024, Step-by-Step Manual Upside Down Movies in Snap</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/instagram-etiquette-ceasing-connections/"><u>Instagram Etiquette Ceasing Connections</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210511246-9781737699200-sensual-intelligence-the-lost-iq/"><u>Sensual Intelligence: The Lost IQ | Free Book</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/transformar-fotos-dng-a-formatos-comunes-de-gratis-con-movavi/"><u>Transformar Fotos DNG a Formatos Comunes De Gratis Con Movavi</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/vocal-variations-for-stories-and-reels-an-instagram-expertise-for-2024/"><u>Vocal Variations for Stories and Reels – An Instagram Expertise for 2024</u></a></li>
 </ul></div>
 

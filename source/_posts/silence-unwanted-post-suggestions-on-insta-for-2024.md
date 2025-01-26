@@ -1,7 +1,7 @@
 ---
 title: "Silence Unwanted Post Suggestions on Insta for 2024"
-date: 2025-01-16T07:55:46.262Z
-updated: 2025-01-20T12:44:58.613Z
+date: 2025-01-22T19:31:17.486Z
+updated: 2025-01-25T18:31:58.171Z
 tags:
   - ai video
   - ai instagram
@@ -49,10 +49,6 @@ Suggested posts will let you scroll through Instagram a bit more and even give y
 
 The intent of these features is to know more like-minded people and follow them to see more of their posts.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: How to Turn off Suggested Posts on Instagram?
 
 So, if you are searching for answers to **remove suggested posts on Instagram,** here comes upsetting news, and that's there is no direct way to stop seeing unwanted suggested posts right at the bottom of the feed. Instagram has also made it clear that there is no way one can close suggested posts. However, this certainly doesn't mean that you can hide suggested posts at all.
@@ -75,23 +71,23 @@ Here's what you need to do:
 
 ![click on not interested on suggested posts](https://images.wondershare.com/filmora/article-images/instagram-suggestion-posts-options.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 6:** That post and user will be removed, and instead of that, you will see a message by Instagram asking for feedback. You can click on the option: I don't want to see posts from this account, and Instagram won't show you that user's posts.
 
 ![choose your feedback option](https://images.wondershare.com/filmora/article-images/instagram-suggestion-posts-feedback.jpg)
 
-Now, you can apply the same steps for the rest of the posts as well. But do keep in mind that suggested posts will still appear. And you will have to apply this setting for each one so that you are shown fewer posts of unknown people.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+Now, you can apply the same steps for the rest of the posts as well. But do keep in mind that suggested posts will still appear. And you will have to apply this setting for each one so that you are shown fewer posts of unknown people.
 
 ## Part 3: How to Delete Suggested Users from Instagram?
 
 If you don't want to see suggested users on your Instagram feed, there is a way to remove unknown users actually. You can do it by using your web browser or Instagram mobile app. Whichever is comfortable to use. However, please note that these steps have to be followed for each suggested user. Now, please use that and then follow these steps.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### For Instagram app users
 
@@ -103,11 +99,11 @@ If you don't want to see suggested users on your Instagram feed, there is a way 
 
 ![click on x symbol to delete suggested users](https://images.wondershare.com/filmora/article-images/delete-instagram-suggestion-post.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 4:** To delete multiple suggested users, just click on the see all option, and the list of suggested users will appear; now click on the X for each user you want to delete. However, you need to delete everyone one by one individually.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### For web browsers
 
@@ -124,6 +120,10 @@ Just like Instagram show you suggested users and posts, your account gets recomm
 **Step 3:** Scroll down towards the bottom, and you will find the similar account suggestions section. In this section, you will see a checkbox. You need to uncheck that if you don't want your name to appear as a suggested user.
 
 ![ uncheck the similar account suggestions box](https://images.wondershare.com/filmora/article-images/uncheck-similar-account-suggestions.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 5: How Does Instagram Suggestions Work?
 
@@ -144,7 +144,7 @@ So, now you know **how to remove suggested posts on Instagram feed** and how to 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -162,24 +162,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-essential-steps-for-resizing-videos-in-igtv/"><u>[New] 2024 Approved Essential Steps for Resizing Videos in IGTV</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-the-seamless-swivel-rotating-your-media-masterpieces-on-social-sites/"><u>[New] 2024 Approved The Seamless Swivel Rotating Your Media Masterpieces on Social Sites</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-the-ultimate-list-of-instagram-grid-making-software-for-2024/"><u>[New] The Ultimate List of Instagram Grid Making Software for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-volume-variation-virtuosity-in-avid-pro-tools-tutorials/"><u>[New] Volume Variation Virtuosity in Avid Pro Tools Tutorials</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-reel-in-the-solution-to-instagram-video-glitches/"><u>[Updated] In 2024, Reel in the Solution to Instagram Video Glitches</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-maximizing-impact-the-best-instagram-hashtag-list-for-2024/"><u>[Updated] Maximizing Impact The Best Instagram Hashtag List for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-the-compreenasional-path-to-post-perfection-instagram-video-upload-from-pcmac-for-2024/"><u>[Updated] The Compreenasional Path to Post-Perfection Instagram Video Upload From PC/Mac for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-frame-it-right-vertical-video-mastery-with-final-cut-pro-x/"><u>2024 Approved Frame It Right Vertical Video Mastery with Final Cut Pro X</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-hunt-for-best-ringtone-deals-on-pixel-phones/"><u>2024 Approved Hunt for Best Ringtone Deals on Pixel Phones</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-instagram-peak-hours-explained-maximizing-engagement/"><u>2024 Approved Instagram Peak Hours Explained Maximizing Engagement</u></a></li>
-<li><a href="https://discover-bits.techidaily.com/easy-steps-successfully-opening-an-iso-image-file/"><u>Easy Steps: Successfully Opening an ISO Image File</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-a-guide-vivo-y78plus-t1-edition-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>In 2024, A Guide Vivo Y78+ (T1) Edition Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-endless-viewing-loop-your-iphone-videos-today/"><u>In 2024, Endless Viewing Loop Your iPhone Videos Today</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-pro-video-editing-tools-on-your-phone/"><u>In 2024, Pro Video Editing Tools on Your Phone</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/offline-viewing-101-downloading-netflix-content-on-your-desktoplaptop/"><u>Offline Viewing 101: Downloading Netflix Content on Your Desktop/Laptop</u></a></li>
-<li><a href="https://driver-install.techidaily.com/rectify-usb-serial-signaling-glitches/"><u>Rectify USB-Serial Signaling Glitches</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/sneak-peeks-into-slow-motion-mastery-on-instagram-for-2024/"><u>Sneak Peeks Into Slow-Motion Mastery on Instagram for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/ultimate-guide-converting-ntsc-dvds-into-pal-format-for-european-compatibility/"><u>Ultimate Guide: Converting NTSC DVDs Into PAL Format for European Compatibility</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/what-is-a-sim-network-unlock-pin-get-your-vivo-t2-5g-phone-network-ready-by-drfone-android/"><u>What Is a SIM Network Unlock PIN? Get Your Vivo T2 5G Phone Network-Ready</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-a-step-by-step-journey-through-the-landscape-of-instagram-reels/"><u>[New] 2024 Approved A Step-by-Step Journey Through the Landscape of Instagram Reels</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-adding-music-mini-banners-on-instagram-profiles/"><u>[New] 2024 Approved Adding Music Mini-Banners on Instagram Profiles</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-brief-methods-for-sending-iphone-media-to-pc/"><u>[New] Brief Methods for Sending iPhone Media to PC</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-ideal-modeling-software-for-animation-professionals/"><u>[New] Ideal Modeling Software for Animation Professionals</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-illustrating-a-novel-tiktok-end-slide/"><u>[New] Illustrating A Novel TikTok End Slide</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-achieve-professional-level-youtube-transcription-without-spending/"><u>[New] In 2024, Achieve Professional-Level YouTube Transcription Without Spending</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-perfectly-pair-photos-for-your-instagram-story-easy-guide/"><u>[New] Perfectly Pair Photos for Your Instagram Story Easy Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-tips-for-crafting-effective-igtv-titles-and-summaries/"><u>[New] Tips for Crafting Effective IGTV Titles & Summaries</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-crafting-seamless-visuals-with-instagrams-chroma-key/"><u>[Updated] 2024 Approved Crafting Seamless Visuals with Instagram's Chroma Key</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-leveraging-horizontal-footage-in-igtvs-vertical-space/"><u>[Updated] 2024 Approved Leveraging Horizontal Footage in IGTV's Vertical Space</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-conquer-the-social-scene-top-tools-for-post-and-follower-boost/"><u>[Updated] Conquer the Social Scene Top Tools for Post and Follower Boost</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-gaming-and-beyond-a-deep-dive-into-the-cg318-4k-from-eizo/"><u>[Updated] Gaming and Beyond A Deep Dive Into the CG318-4K From EIZO</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-resisting-insta-imposters-protect-your-profiles-prestige-for-2024/"><u>[Updated] Resisting Insta Imposters Protect Your Profile's Prestige for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/amd-radeon-display-adapters-secure-your-latest-graphics-drivers-for-windows-here/"><u>AMD Radeon Display Adapters - Secure Your Latest Graphics Drivers for Windows Here!</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/families-ai-and-the-future-of-tech-interaction/"><u>Families, AI & The Future of Tech Interaction</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-change-samsung-galaxy-a15-5g-lock-screen-password-by-drfone-android/"><u>How To Change Samsung Galaxy A15 5G Lock Screen Password?</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/how-to-make-slow-motion-videos-on-instagram-reels/"><u>How to Make Slow Motion Videos on Instagram Reels</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/influencing-instagram-step-by-step-tutorial-for-2024/"><u>Influencing Instagram Step-by-Step Tutorial for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/top-presents-for-young-video-game-fans-console-and-add-on-collections/"><u>Top Presents for Young Video Game Fans: Console and Add-On Collections</u></a></li>
 </ul></div>
 

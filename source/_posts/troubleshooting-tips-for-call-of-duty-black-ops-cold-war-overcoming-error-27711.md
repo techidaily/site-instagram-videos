@@ -1,7 +1,7 @@
 ---
 title: "Troubleshooting Tips for Call of Duty: Black Ops Cold War - Overcoming Error 27711"
-date: 2025-01-14T07:14:33.164Z
-updated: 2025-01-20T02:57:09.981Z
+date: 2025-01-21T12:17:17.988Z
+updated: 2025-01-26T01:49:12.875Z
 tags:
   - win11
   - win10
@@ -17,10 +17,6 @@ thumbnail: https://thmb.techidaily.com/92459487433dd8191ecb6f79f9b025b7d93038fc1
 
 In the past couple days, many Cold War gamers are reporting a**UI error 27711** , a glitch that usually occurs during game loading. But fret not if you’re seeing this error. Below we’ve gathered some easy fixes for you, try them and get your game working right away.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Try these fixes
 
  You might not need to try all of them. Simply work your way down until you find the one that scores.
@@ -30,15 +26,15 @@ In the past couple days, many Cold War gamers are reporting a**UI error 27711** 
 3. **[Update your graphics driver](https://tools.techidaily.com/drivereasy/download/)**
 4. **[Install all Windows updates](https://tools.techidaily.com/drivereasy/download/)**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Fix 1: Restart your PC
 
  Some gamers on[Reddit](https://www.reddit.com/r/blackopscoldwar/comments/kia139/get%5Fui%5Ferror%5F27711%5Fand%5Falso%5Fsomething%5Felse/) reported that the game went back to normal after a system restart. So before you try anything more complicated,**exit your game and do a normal reboot** . You’d be surprised how often this trick works.
 
  If the error persists after a reboot, you can take a look at the next fix.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 2: Scan and repair your game
 
@@ -53,6 +49,10 @@ In the past couple days, many Cold War gamers are reporting a**UI error 27711** 
 Now you can launch the game and see if it loads this time.
 
  If this method doesn’t give you luck, simply take a look at the next one below.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 3: Update your graphics driver
 
@@ -84,7 +84,7 @@ To do so, first visit the website of your GPU manufacturer:
 3. Click **Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system.(This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click Update All. If you don’t want to pay for the Pro version, you can still download and install all the drivers you need with the free version; you just have to download them one at a time, and manually install them, the normal Windows way.)  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/de-update-all-rtx-3080.jpg)
@@ -105,21 +105,21 @@ Here’s how you can check for updates manually:
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/windows-10-start-menu-open-settings-gear-icon.jpg)
 2. Scroll down and select**Update & Security** .  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/windows-10-start-menu-open-settings-update.jpg)
 3. Click**Windows Update** .  
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/windows-10-start-menu-open-settings-update-2.jpg)
 4. Click**Check for updates** . Then wait for the process to complete. After that, restart your PC.  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/windows-10-start-menu-open-settings-update-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  To make sure you’ve installed _all_  the system updates, **repeat these steps** until it prompts “You’re up to date” when you click **Check for updates** again.
 
@@ -144,24 +144,20 @@ Here’s how you can check for updates manually:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-expert-guide-to-using-snap-on-zoom-webinars-for-2024/"><u>[New] Expert Guide to Using Snap on Zoom Webinars for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-enhancing-winter-vlogs-with-five-heartwarming-backdrops/"><u>[Updated] 2024 Approved Enhancing Winter Vlogs with Five Heartwarming Backdrops</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-the-art-of-duality-mastering-image-turnover-on-social-media-giants/"><u>[Updated] 2024 Approved The Art of Duality Mastering Image Turnover on Social Media Giants</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-discover-and-collect-free-instagram-filters-through-search-for-2024/"><u>[Updated] Discover & Collect Free Instagram Filters Through Search for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-exploring-the-capabilities-of-sj-cam-s6/"><u>[Updated] Exploring the Capabilities of SJ-CAM S6</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-get-unlimited-echoes-for-online-content-makers-for-2024/"><u>[Updated] Get Unlimited Echoes for Online Content Makers for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-breaking-down-instagrams-per-video-ceiling/"><u>[Updated] In 2024, Breaking Down Instagram's Per-Video Ceiling</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-bridging-the-gap-between-youtube-and-instagram-stories-effectively/"><u>[Updated] In 2024, Bridging the Gap Between YouTube & Instagram Stories Effectively</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-fixing-failed-video-uploads-on-facebook-live-features/"><u>[Updated] In 2024, Fixing Failed Video Uploads on Facebook Live Features</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-instagram-perfection-sizing-your-video-just-right/"><u>[Updated] Instagram Perfection Sizing Your Video Just Right</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-mute-instagrams-personalized-posts-for-2024/"><u>[Updated] Mute Instagram's Personalized Posts for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/concoct-laughter-in-image-format-giphy-style-for-2024/"><u>Concoct Laughter in Image Format, Giphy Style for 2024</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-lock-from-iphone-6s-by-drfone-ios/"><u>How to Bypass iCloud Lock from iPhone 6s</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-revolutionize-patient-engagement-with-ad-insights/"><u>In 2024, Revolutionize Patient Engagement with Ad Insights</u></a></li>
-<li><a href="https://article-files.techidaily.com/in-2024-top-15-free-web-based-image-enhancers-2023/"><u>In 2024, Top 15 Free Web-Based Image Enhancers 2023</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/max-360-or-hero-11-unveiling-top-notch-gopro-cams-for-2024/"><u>Max 360 or Hero 11 Unveiling Top-Notch GoPro Cams for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/secrets-unlocked-banishing-instagram-video-fails/"><u>Secrets Unlocked Banishing Instagram Video Fails</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/step-by-step-guide-to-boost-your-social-media-presence-with-instagram-hashtags-for-2024/"><u>Step-by-Step Guide to Boost Your Social Media Presence with Instagram Hashtags for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/unleash-your-potential-with-top-igtv-creators-for-2024/"><u>Unleash Your Potential with Top IGTV Creators for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-expert-insights-efficiently-attaching-subtitles-to-mp4s-for-2024/"><u>[New] Expert Insights Efficiently Attaching Subtitles to MP4s for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-craft-a-masterpiece-techniques-for-engaging-viral-tiktok-unpacks/"><u>[Updated] Craft a Masterpiece Techniques for Engaging, Viral TikTok Unpacks</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-instagram-reels-strategy-for-instant-success-for-2024/"><u>[Updated] Instagram Reels Strategy for Instant Success for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-instagrams-video-chatting-techniques-a-complete-resource/"><u>[Updated] Instagram’s Video Chatting Techniques A Complete Resource</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-tap-into-instagrams-secret-stash-of-free-filters-with-search/"><u>[Updated] Tap Into Instagram’s Secret Stash of Free Filters with Search</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-blueprint-for-social-success-six-proven-steps-toward-verification-and-growth-for-2024/"><u>[Updated] The Blueprint for Social Success Six Proven Steps Toward Verification and Growth for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-the-illustrator-wizards-guide-to-3d-text-for-2024/"><u>[Updated] The Illustrator Wizard's Guide to 3D Text for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-elevate-your-presence-instagrams-path-to-prominence/"><u>2024 Approved Elevate Your Presence Instagram's Path to Prominence</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-the-echo-of-you-customizing-your-speak-on-reels-and-stories/"><u>2024 Approved The Echo of You Customizing Your Speak on Reels & Stories</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/how-to-recognize-and-avoid-dangerous-malware-disguised-as-mac-alerts/"><u>How to Recognize and Avoid Dangerous Malware Disguised as Mac Alerts</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-complete-guide-on-unlocking-iphone-13-pro-with-a-broken-screen-drfone-by-drfone-ios/"><u>In 2024, Complete Guide on Unlocking iPhone 13 Pro with a Broken Screen? | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-enhancing-authenticity-techniques-to-apply-on-insta-photos/"><u>In 2024, Enhancing Authenticity Techniques to Apply on Insta Photos</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-share-location-in-messenger-on-vivo-y77t-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share Location in Messenger On Vivo Y77t? | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/simple-solutions-to-fix-android-systemui-has-stopped-error-for-vivo-t2-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Simple Solutions to Fix Android SystemUI Has Stopped Error For Vivo T2 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/ultimate-guide-9-premier-video-translators-for-accurate-global-communication/"><u>Ultimate Guide 9 Premier Video Translators for Accurate Global Communication</u></a></li>
 </ul></div>
 

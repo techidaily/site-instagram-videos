@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Insta Stats Spotlight  Pinpointing Viewers of Your Photos for 2024\""
-date: 2025-01-12T17:10:36.997Z
-updated: 2025-01-20T08:43:46.529Z
+date: 2025-01-22T22:16:55.617Z
+updated: 2025-01-25T19:46:15.089Z
 tags:
   - ai video
   - ai instagram
@@ -40,7 +40,7 @@ There are two methods to see who viewed your post on Instagram. You might find t
 [03\. How to see who viewed your Instagram post using third-party apps?](#part3)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to see who viewed your Instagram post using Stories
@@ -55,25 +55,29 @@ Does it mean you will never know who viewed your post? Yes, you can. You can see
 
 ![methods to check who viewed your Instagram](https://images.wondershare.com/filmora/article-images/who-viewed-your-instagram-step2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3:** Now you can see the number of people who viewed your story and all those people who have viewed your Instagram story.
 
 ![check who viewed your instagram](https://images.wondershare.com/filmora/article-images/who-viewed-your-instagram-step3.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 This is the easiest way of how to see who viewed your Instagram post. But if you are thinking about the images and videos that you post your feed or timeline, then you can see the number of people who viewed your post all those who liked it by following these few simple steps.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to see who viewed your Instagram post using likes
 
 **Step 1:** Go to any post that you want to track and see how many people have viewed and who liked it. Below your video or image, you can see 'Liked by'. Click on the 'others' next to the name of the person who liked your post.
 
 ![use likes to check who viewed your instagram](https://images.wondershare.com/filmora/article-images/viewed-your-instagram-using-likes-step1.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 2:** Now at the top of the screen, you will see two numbers. The first number shows how many people have viewed your image or video and the second number shows the number of people who liked it. And the list below these numbers is the list of people who have liked your post.
 
@@ -82,11 +86,7 @@ Since this method doesn't show you who viewed your Instagram post, it gives your
 ![use Instagram Likes to check who viewed your Instagram](https://images.wondershare.com/filmora/article-images/viewed-your-instagram-using-likes-step2.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to see who viewed your Instagram post using third-party apps? Is it really possible?
@@ -121,17 +121,24 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-beauty-blogging-101-starting-up-as-an-aesthetic-vlogger-for-2024/"><u>[New] Beauty Blogging 101 Starting Up as an Aesthetic Vlogger for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-connect-your-content-from-twitch-to-facebook/"><u>[Updated] 2024 Approved Connect Your Content From Twitch to Facebook</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-instagram-content-top-15-download-apps-unveiled/"><u>[Updated] 2024 Approved Instagram Content Top 15 Download Apps Unveiled</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-unleash-joy-and-sadness-with-these-10-best-ig-meme-communities/"><u>[Updated] Unleash Joy and Sadness with These 10 Best IG Meme Communities</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ing-engagement-customizing-your-shorts-first-impressions/"><u>Boosting Engagement Customizing Your Shorts' First Impressions</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-crafting-compelling-narratives-with-your-own-fb-slideshow-creation/"><u>In 2024, Crafting Compelling Narratives with Your Own FB Slideshow Creation</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-navigating-iphoneipad-uploads-to-youtube-platforms/"><u>In 2024, Navigating iPhone/iPad Uploads to YouTube Platforms</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-is-ipogo-not-working-on-motorola-moto-g24-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Motorola Moto G24? Fixed | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/live-streaming-made-easy-discover-the-power-of-manycams-virtual-webcam-and-video-solutions/"><u>Live Streaming Made Easy: Discover the Power of ManyCam's Virtual Webcam and Video Solutions</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/solution-guide-how-to-stop-gears-5-from-crashing-and-improve-gameplay/"><u>Solution Guide: How to Stop Gears 5 From Crashing and Improve Gameplay</u></a></li>
-<li><a href="https://some-skills.techidaily.com/streamers-dilemma-is-vlc-superior-to-mpc-in-2024/"><u>Streamer's Dilemma Is VLC Superior to MPC, In 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/the-science-of-social-media-optimizing-post-performance-on-instagram-for-2024/"><u>The Science of Social Media Optimizing Post Performance on Instagram for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-express-yourself-authentically-on-instagram-with-these-captions/"><u>[New] Express Yourself Authentically on Instagram with These Captions</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-how-to-use-hashtags-on-instagram-for-2024/"><u>[New] How to Use Hashtags on Instagram for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-bridging-the-gap-connecting-instagram-to-your-facebook-account/"><u>[New] In 2024, Bridging the Gap Connecting Instagram to Your Facebook Account</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-instagram-guide-to-uploading-podcast-episodes-for-2024/"><u>[New] Instagram Guide to Uploading Podcast Episodes for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-how-to-spark-interest-and-boost-views-on-instagram-videos/"><u>[Updated] How to Spark Interest & Boost Views on Instagram Videos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/1716184098627-updated-how-to-use-the-instagram-green-screen-effect-for-2024/"><u>[Updated] How to Use the Instagram Green Screen Effect for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-how-to-free-find-instagram-influencers-in-your-niche/"><u>[Updated] In 2024, How to Free Find Instagram Influencers in Your Niche</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/apple-m1-explained-the-future-in-your-hands-for-2024/"><u>Apple M1 Explained The Future in Your Hands for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/efficiently-posting-videos-instagram-upload-on-desktop-for-2024/"><u>Efficiently Posting Videos Instagram Upload on Desktop for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/ev-owners-guide-to-extra-benefits-priority-parking-and-quick-pass-on-high-occupancy-vehicle-lanes/"><u>EV Owner's Guide to Extra Benefits: Priority Parking & Quick-Pass on High Occupancy Vehicle Lanes</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/how-to-elevate-your-images-with-instagrams-new-filter-options-for-2024/"><u>How to Elevate Your Images with Instagram's New Filter Options for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-forgot-pattern-lock-heres-how-you-can-unlock-vivo-t2x-5g-pattern-lock-screen-by-drfone-android/"><u>In 2024, Forgot Pattern Lock? Heres How You Can Unlock Vivo T2x 5G Pattern Lock Screen</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-making-magic-transforming-ordinary-posts-into-social-sensations/"><u>In 2024, Making Magic Transforming Ordinary Posts Into Social Sensations</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/master-list-highest-rated-4k-blu-ray-player-models/"><u>Master List Highest Rated 4K Blu-Ray Player Models</u></a></li>
+<li><a href="https://network-issues.techidaily.com/mastering-wow-glitch-resolution-519/"><u>Mastering WOW Glitch Resolution #519</u></a></li>
+<li><a href="https://fox-info.techidaily.com/story-lore-who-are-the-premier-channels/"><u>Story Lore Who Are the Premier Channels?</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/unilateral-audio-fix-for-windows-users-with-single-speaker-working/"><u>Unilateral Audio Fix for Windows Users with Single Speaker Working</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-unlock-your-creative-potential-how-to-make-stunning-home-dvds-with-ease/"><u>Updated Unlock Your Creative Potential How to Make Stunning Home DVDs with Ease</u></a></li>
+<li><a href="https://driver-install.techidaily.com/upgrade-lenovo-ideapad-drivers-w7-edition/"><u>Upgrade Lenovo IdeaPad - Drivers W7 Edition</u></a></li>
 </ul></div>
 

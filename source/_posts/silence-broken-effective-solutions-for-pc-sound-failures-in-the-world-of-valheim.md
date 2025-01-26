@@ -1,7 +1,7 @@
 ---
 title: "Silence Broken: Effective Solutions for PC Sound Failures in the World of Valheim"
-date: 2025-01-17T23:00:47.227Z
-updated: 2025-01-19T21:54:10.764Z
+date: 2025-01-20T05:52:43.246Z
+updated: 2025-01-26T04:37:11.237Z
 tags:
   - win11
   - win10
@@ -17,10 +17,6 @@ thumbnail: https://thmb.techidaily.com/d3b9fa260885ec727c421c1f7392781651fabce3d
 
 **Voice chat is not working on Apex Legends** ? This can be so frustrating. But don’t worry, it’s often not hard to fix at all…
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to fix Apex Legends Voice Chat Not Working
 
  Here are 6 fixes that have helped other users resolve the**Apex Legends voice chat not working** problem. You may not have to try them all; just work your way down the list until you find the one that works for you.
@@ -33,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/d3b9fa260885ec727c421c1f7392781651fabce3d
 6. **[Reinstall Origin and Apex Legends](https://tools.techidaily.com/drivereasy/download/)**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Fix 1: Allow Origin to access your microphone
@@ -55,7 +51,7 @@ thumbnail: https://thmb.techidaily.com/d3b9fa260885ec727c421c1f7392781651fabce3d
 ![](https://images.drivereasy.com/wp-content/uploads/2019/10/image-248.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  By doing so, you have allowed Origin the access to the microphone on your computer.
@@ -78,13 +74,13 @@ thumbnail: https://thmb.techidaily.com/d3b9fa260885ec727c421c1f7392781651fabce3d
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/06/image-35.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  3) Click **Update All** to automatically download and install the correct version of_ALL_ the drivers that are missing or out of date on your system (this requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)** [](https://tools.techidaily.com/drivereasy/download/) – you’ll be prompted to upgrade when you click **Update All** ). Or if you just want to update the audio driver, simply click the **Update** button next to it.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/06/image-36.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  You can also do it for free if you like, but it’s partly manual.
 
@@ -93,10 +89,6 @@ thumbnail: https://thmb.techidaily.com/d3b9fa260885ec727c421c1f7392781651fabce3d
 5) Launch Apex Legends to see if you can hear your friends without fail. If yes, you have solved the issue! If no, please move on to**Fix 3** , below.
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 3: Make sure your microphone is set as default in Windows
 
@@ -107,6 +99,10 @@ Here’s how to do it:
  1) On your keyboard, press **the Windows logo key** and R at the same time, then type **ms-settings:sound** and press **Enter** to open Control Panel.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/10/image-239.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  4) In **Sound** settings, scroll down to the**Input** section, and in**Choose your input device** , make sure the microphone you are actively using is selected. Then,**test your microphone** by speaking into your mic to see if it ‘hears’ anything. If yes, it means you have configured the microphone properly.
 
@@ -119,7 +115,7 @@ Here’s how to do it:
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Fix 4: Configure in-game settings
@@ -132,9 +128,17 @@ Here is how to configure in-game settings:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/10/image-260.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  2) Click**More** \>**VOICE** , then make sure**the microphone you’re using is selected** and**Microphone volum** e is set to**an audio volume** . After that, in**Activation mode** , choose**Push-to-talk** .
 
 ![This image has an empty alt attribute; its file name is image-261-1024x700.png](https://images.drivereasy.com/wp-content/uploads/2019/10/image-261-1024x700.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  3) Open Apex Legends, then go to**Settings > AUDIO** and set the **Voice Chat Record Mode** to **Push to Talk** .
 
@@ -163,10 +167,6 @@ Here are the steps:
  1) On your keyboard, press the **Windows logo key** and **R** at the same time, then type **appwiz.cpl** and press **Enter** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/10/image-174.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  2) In the program list, locate **Origin** , then right-click on it and click **Uninstall** .
 
@@ -204,24 +204,19 @@ Here are the steps:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-driving-engagement-and-sales-a-step-by-step-guide-to-influencer-marketing/"><u>[New] Driving Engagement and Sales A Step-by-Step Guide to Influencer Marketing</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-elevate-your-ig-videos-tips-and-templates-for-2024/"><u>[New] Elevate Your IG Videos Tips & Templates for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-elevate-your-social-strategy-with-these-top-8-apps-phones-included-for-2024/"><u>[New] Elevate Your Social Strategy with These Top 8 Apps, Phones Included for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-forging-partnerships-with-brands-5-instagram-strategies-for-growth/"><u>[New] Forging Partnerships with Brands 5 Instagram Strategies for Growth</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-how-to-boost-your-instagram-vids-visibility-for-2024/"><u>[New] How to Boost Your Instagram Vids' Visibility for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-in-2024-master-the-art-of-easy-webinar-recordings-windows-and-macos-advice/"><u>[New] In 2024, Master the Art of Easy Webinar Recordings Windows & macOS Advice</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-maximizing-impact-with-instagrams-new-algorithm-insights/"><u>[New] In 2024, Maximizing Impact with Instagram's New Algorithm Insights</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-examining-instagram-video-selfie-credibility-questions/"><u>[Updated] 2024 Approved Examining Instagram Video Selfie Credibility Questions</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-2024-approved-unleash-the-potential-a-comprehensively-curated-list-of-nft-creating-engines/"><u>[Updated] 2024 Approved Unleash the Potential A Comprehensively Curated List of NFT-Creating Engines</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-effortless-instagram-media-export-top-20-free-mp4-converters-online-for-2024/"><u>[Updated] Effortless Instagram Media Export Top 20 Free MP4 Converters Online for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/best-budget-keyboard-battlegrounds-the-powerhouse-that-is-the-fellowes-microban/"><u>Best Budget Keyboard Battlegrounds: The Powerhouse That Is the Fellowes Microban</u></a></li>
-<li><a href="https://win-web.techidaily.com/comment-utiliser-la-ligne-de-commande-pour-resoudre-les-problemes-dans-windows-server-2008-r2/"><u>Comment Utiliser La Ligne De Commande Pour Résoudre Les Problèmes Dans Windows Server 2008 R2?</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-remove-passcode-from-iphone-14-pro-complete-guide-drfone-by-drfone-ios/"><u>In 2024, How To Remove Passcode From iPhone 14 Pro? Complete Guide | Dr.fone</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/ipad-access-steps-to-remove-passcode-barrier-easily/"><u>IPad Access: Steps to Remove Passcode Barrier Easily</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/navigating-the-world-of-gadgets-on-toms-hardware-hub/"><u>Navigating the World of Gadgets on Tom's Hardware Hub</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/new-2024-approved-streaming-audio-preservation-methods-and-equipment/"><u>New 2024 Approved Streaming Audio Preservation Methods and Equipment</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/reverse-reality-expert-tips-for-turning-images-upside-down-on-insta-for-2024/"><u>Reverse Reality Expert Tips for Turning Images Upside Down on Insta for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/steps-to-eradicate-internal-server-issues-in-win-1011/"><u>Steps To Eradicate Internal Server Issues in Win 10/11</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138567493-9780595857876-synchronicity/"><u>Synchronicity | Free Book</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-enhancing-instagram-video-performance-desktop-for-2024/"><u>[New] Enhancing Instagram Video Performance (Desktop) for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-prime-hash-monitoring-apps-for-social-media-giants-fb-tweetinsta-for-2024/"><u>[New] Prime Hash Monitoring Apps for Social Media Giants (FB, Tweet/Insta) for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-unrivaled-tag-analyzers-your-key-to-hashtag-success-fbtwitterinsta/"><u>[Updated] 2024 Approved Unrivaled Tag Analyzers Your Key to Hashtag Success (FB/Twitter/Insta)</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-seeking-a-true-witchs-tongue-are-vocal-changer-apps-legit-find-substitutes/"><u>[Updated] In 2024, Seeking a True Witch's Tongue Are Vocal Changer Apps Legit? Find Substitutes</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-step-by-step-guide-to-professional-instagram-live-conversations-for-2024/"><u>[Updated] Step-by-Step Guide to Professional Instagram Live Conversations for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-effortless-guide-to-going-live-on-instagram/"><u>2024 Approved Effortless Guide to Going Live on Instagram</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-non-standard-windows-media-processors/"><u>2024 Approved Non-Standard Windows Media Processors</u></a></li>
+<li><a href="https://windows11.techidaily.com/eliminating-pubg-save-problems-on-windows-systems/"><u>Eliminating PUBG Save Problems on Windows Systems</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/immediate-flagging-of-insta-de-following-events/"><u>Immediate Flagging of Insta De-Following Events</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-how-to-fake-gps-on-android-without-mock-location-for-your-honor-magic-5-pro-drfone-by-drfone-virtual/"><u>In 2024, How to Fake GPS on Android without Mock Location For your Honor Magic 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-is-fake-gps-location-spoofer-a-good-choice-on-honor-magic-6-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Is Fake GPS Location Spoofer a Good Choice On Honor Magic 6 Pro? | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/maximize-your-productivity-mastering-anthropics-latest-claude-3-prompt-store-features/"><u>Maximize Your Productivity: Mastering Anthropic’s Latest Claude 3 Prompt Store Features</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/secure-story-spectatorship-techniques-for-desktopandroidios-devices-at-no-cost-for-2024/"><u>Secure Story Spectatorship Techniques for Desktop/Android/iOS Devices (At No Cost) for 2024</u></a></li>
+<li><a href="https://fox-tips.techidaily.com/speedy-steps-to-undo-file-removal-on-dropbox-platform/"><u>Speedy Steps to Undo File Removal on Dropbox Platform</u></a></li>
 </ul></div>
 

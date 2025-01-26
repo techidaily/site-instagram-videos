@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Crafting Memes  Perfecting Social Media Videos on FB & Insta\""
-date: 2025-01-18T21:18:13.970Z
-updated: 2025-01-19T16:10:45.995Z
+date: 2025-01-23T01:41:54.369Z
+updated: 2025-01-25T16:31:16.744Z
 tags:
   - ai video
   - ai instagram
@@ -32,9 +32,17 @@ thumbnail: https://thmb.techidaily.com/a6de986a3fdb94c7142abb7e1738397c8994a30f4
 * [**Part1: Facebook and Instagram specs**](#part1)
 * [**Part2: How to make a video meme for Facebook and Instagram**](#part2)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook and Instagram specs
 
  Before knowing how to make a video meme for Instagram/Facebook, how about understanding their specs on both the platforms and get the best out of it? It is of utmost importance to know the social media specs before venturing into video marketing in these platforms.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Facebook
 
@@ -58,10 +66,6 @@ thumbnail: https://thmb.techidaily.com/a6de986a3fdb94c7142abb7e1738397c8994a30f4
 * Maximum word count is 2,200 characters but 90 characters is recommended for links.
 * Link description is 30 characters max with 25 characters long headline.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Instagram
 
  When it comes to Instagram, it has [71% of brands with it that reach to their audience](https://sproutsocial.com/insights/instagram-stats/). Due to the high visibility rate over the internet, brand-created Instagram videos are worth investing. It has three different video formats, such as landscape, vertical, and square. Mobile being an indispensable device nowadays, accessing social networking platforms has grown tremendously. This in turn made Instagram videos a big hit, though, organic reach is comparatively less.
@@ -72,7 +76,7 @@ thumbnail: https://thmb.techidaily.com/a6de986a3fdb94c7142abb7e1738397c8994a30f4
 * Maximum caption and recommended are 2,200 and 125 characters respectively.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to make a video meme for Facebook and Instagram step by step
@@ -87,6 +91,10 @@ thumbnail: https://thmb.techidaily.com/a6de986a3fdb94c7142abb7e1738397c8994a30f4
 
 ![import meme](https://images.wondershare.com/filmora/article-images/drag-memes-filmora-meme-maker.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2**: Go to the meme editor page. Click the tools from left and customize the meme. The preview window shows the changes. Try playing with fonts and texts with funny content.
 
 **Tips**: Crafting quips can make your meme more popular on Facebook and Instagram.
@@ -94,20 +102,12 @@ thumbnail: https://thmb.techidaily.com/a6de986a3fdb94c7142abb7e1738397c8994a30f4
 ![edit meme](https://images.wondershare.com/filmora/article-images/edit-memes-filmroa-meme-maker.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 3**: Finally, click ‘CREATE’ and let the changes take effect. Press the ‘DOWNLOAD’ button once you are happy with the changes. You can share now on your Facebook and Instagram accounts.
 
 ![export meme](https://images.wondershare.com/filmora/article-images/export-memes-filmora-meme-maker.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Bottom Line
 
@@ -130,16 +130,19 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-the-art-of-crafting-winning-giveaway-posts-on-facebook/"><u>[New] 2024 Approved The Art of Crafting Winning Giveaway Posts on Facebook</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-navigating-youtube-cards-and-tags/"><u>[New] In 2024, Navigating YouTube Cards and Tags</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-laughter-and-tears-on-insta-the-ultimate-meme-page-list/"><u>[Updated] 2024 Approved Laughter & Tears on Insta The Ultimate Meme Page List</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-instagram-pro-tips-10-crucial-tools-to-increase-followers-for-2024/"><u>[Updated] Instagram Pro Tips 10 Crucial Tools to Increase Followers for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-reversing-the-flow-a-guide-to-tracing-instagram-pics-backwards/"><u>[Updated] Reversing the Flow A Guide to Tracing Instagram Pics Backwards</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-strategies-for-measuring-igtv-popularity-indicators/"><u>[Updated] Strategies for Measuring IGTV Popularity Indicators</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-ranking-the-ultimate-in-mac-gif-recorders/"><u>2024 Approved Ranking the Ultimate in Mac GIF Recorders</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-can-i-remove-the-apple-watch-activation-lock-by-apple-iphone-8-plus-without-the-previous-owner-by-drfone-ios/"><u>In 2024, Can I Remove the Apple Watch Activation Lock By Apple iPhone 8 Plus without the Previous Owner?</u></a></li>
-<li><a href="https://win-blog.techidaily.com/solving-the-puzzle-effective-fixes-for-when-assassins-creed-mirage-refuses-to-launch/"><u>Solving the Puzzle: Effective Fixes for When Assassin's Creed Mirage Refuses to Launch</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-google-pixel-8-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Google Pixel 8 | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-is-fake-gps-location-pro-and-is-it-good-on-nokia-c32-drfone-by-drfone-virtual-android/"><u>What is Fake GPS Location Pro and Is It Good On Nokia C32? | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-enhance-gameplay-memories-win10-recording-methods/"><u>[New] In 2024, Enhance Gameplay Memories Win10 Recording Methods</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-step-by-step-guide-to-making-spectacular-slow-motion-images-for-instagram-for-2024/"><u>[New] Step-by-Step Guide to Making Spectacular Slow Motion Images for Instagram for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-vocalizing-video-content-tunes-for-instagram-stories-for-2024/"><u>[New] Vocalizing Video Content Tunes for Instagram Stories for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-enhance-video-to-fit-instagrams-visual-taste/"><u>[Updated] 2024 Approved Enhance Video to Fit Instagram's Visual Taste</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-navigating-backwards-youtubes-way-to-rearrange-watch-queue/"><u>[Updated] 2024 Approved Navigating Backwards YouTube’s Way to Rearrange Watch Queue</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-enhance-your-photo-game-with-top-editors-for-2024/"><u>[Updated] Enhance Your Photo Game with Top Editors for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-full-assessment-macs-screenflow-studio-experience/"><u>[Updated] Full Assessment Mac's ScreenFlow Studio Experience</u></a></li>
+<li><a href="https://howto.techidaily.com/4-solutions-to-fix-unfortunately-your-app-has-stopped-error-on-realme-gt-3-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Solutions to Fix Unfortunately Your App Has Stopped Error on Realme GT 3 | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/curating-customized-instagram-highlight-banners-for-2024/"><u>Curating Customized Instagram Highlight Banners for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-the-unseen-dos-and-donts-of-instagram-reels/"><u>In 2024, The Unseen Dos & Don'ts of Instagram Reels</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-the-process-of-capturing-your-watched-youtube-content-without-spending/"><u>Learn the Process of Capturing Your Watched YouTube Content Without Spending</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/master-iphone-photo-watermarks-the-top-apps-reviewed/"><u>Master iPhone Photo Watermarks The Top Apps Reviewed</u></a></li>
+<li><a href="https://games-able.techidaily.com/unlocking-safe-play-a-stepwise-guide-to-setting-up-ps5-passcodes/"><u>Unlocking Safe Play: A Stepwise Guide to Setting up PS5 Passcodes</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unlocking-your-device-a-comprehensive-guide-to-ios-17-jailbreaking/"><u>Unlocking Your Device: A Comprehensive Guide to iOS 17 Jailbreaking</u></a></li>
 </ul></div>
 
