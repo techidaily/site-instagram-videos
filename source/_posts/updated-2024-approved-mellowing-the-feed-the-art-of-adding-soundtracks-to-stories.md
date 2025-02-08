@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Mellowing the Feed  The Art of Adding Soundtracks to Stories\""
-date: 2025-01-24T22:43:51.141Z
-updated: 2025-01-26T10:30:34.505Z
+date: 2025-02-05T19:08:15.790Z
+updated: 2025-02-08T05:06:37.317Z
 tags:
   - ai video
   - ai instagram
@@ -32,7 +32,7 @@ If you are also an avid Instagram user who would like to post stories on the app
 ![ Instagram Logo](https://images.wondershare.com/filmora/article-images/ig-logo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## A Step-by-step Guide for Adding Music to IG Story
@@ -59,15 +59,15 @@ Once you find the song of your choice, just tap on it and it will be loaded on t
 
 ![ View Lyrics](https://images.wondershare.com/filmora/article-images/view-lyrics.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 3. Make optional edits to customize the story
 
 If you want, you can just post the song right away after learning how to put music on IG story. Though, a lot of people would like to make changes in the story to make it look presentable. For instance, you can see a timer (that is set to 15 seconds by default) at the bottom-left panel. Just tap on it and adjust the duration for your story that can be anywhere from 2 to 15 seconds.
 
 ![ Edit IG Story](https://images.wondershare.com/filmora/article-images/edit-story.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 After when you add music to IG story, you can further change how it looks. You can see different ways to display the lyrics right above the snippet selection. If you want, you can zoom in or out the text and move it to display it the way you like. Furthermore, there is a color radiant option on the top that you can select to change the text color and background.
 
@@ -77,10 +77,6 @@ If you don’t want to display the lyrics, then just swipe the text options at t
 
 ![ Display Options of IG Story Music](https://images.wondershare.com/filmora/article-images/display-options-of-music.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 4. Post your IG Story on your Profile
 
 That’s it! In this way, you can learn how to add music to IG story and customize it however you like. If you are satisfied with the changes, then just tap on the “Send to” option to get different ways to share your story. You can send it to any selective friend, post it just for your close friends, or share your IG story for all followers.
@@ -88,7 +84,7 @@ That’s it! In this way, you can learn how to add music to IG story and customi
 ![ Share Your IG Story](https://images.wondershare.com/filmora/article-images/share-your-ig-story.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Create Stunning IG Stories to Captivate Your Audience?
@@ -102,7 +98,7 @@ Boomerangs are extremely popular in Instagram stories due to their quick yet int
 ![ Boomerangs & Layouts](https://images.wondershare.com/filmora/article-images/boomerangs-layouts.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Use inbuilt Instagram filters
@@ -127,6 +123,10 @@ If you plan to add video content to your Instagram stories, then consider using 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 There you go! Now when you know how to add music to IG Story, you can easily post impressive content on your Instagram profile. For your convenience, I have come up with a stepwise guide on how to put music on IG story that you can easily follow. Besides that, I have also listed some expert tips that you can implement to post visually stunning stories. Go ahead and try these tips and share this guide with your friends to help them add music to IG story as well.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
@@ -146,14 +146,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-diligent-duplication-in-the-world-of-insta/"><u>[New] In 2024, Diligent Duplication in the World of Insta</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-score-the-biggest-bargains-on-mystery-boxes-websites/"><u>[New] Score the Biggest Bargains on Mystery Boxes Websites</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-saving-instagrams-a-step-by-step-approach-for-windowsmacos-users/"><u>[Updated] Saving Instagrams A Step-by-Step Approach for Windows/macOS Users</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-tall-screen-editing-made-easy-using-fcpx-on-instagram-for-2024/"><u>[Updated] Tall Screen Editing Made Easy Using FCPX on Instagram for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-unlocking-potential-in-instagram-engagement-with-advanced-data-tools/"><u>[Updated] Unlocking Potential in Instagram Engagement with Advanced Data Tools</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/geographic-span-of-romance-languages/"><u>Geographic Span of Romance Languages</u></a></li>
-<li><a href="https://fox-links.techidaily.com/lights-play-our-picks-for-the-top-10-photographic-lenses/"><u>Light's Play Our Picks for The Top 10 Photographic Lenses</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/unraveling-instagrams-complex-world-of-data-a-beginner-to-pro-guide-for-2024/"><u>Unraveling Instagram's Complex World of Data A Beginner to Pro Guide for 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/yl-softwares-step-by-step-strategies-for-effective-memory-swap-solutions/"><u>YL Software's Step-by-Step Strategies for Effective Memory Swap Solutions</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-make-every-snap-spectacited-top-editors-for-snapchats-best-effects/"><u>[New] 2024 Approved Make Every Snap Spectacited Top Editors for Snapchat's Best Effects</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-add-edge-to-insta-videos-a-trifecta-guide/"><u>[New] Add Edge to Insta Videos - A Trifecta Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-insta-vibes-music-trends-unveiled/"><u>[New] In 2024, Insta Vibes Music Trends Unveiled</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-unraveling-galaxy-s8s-enhanced-cinematic-capabilities/"><u>[New] In 2024, Unraveling Galaxy S8's Enhanced Cinematic Capabilities</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-mac-tricks-for-dynamic-instagram-video-size-adjustment-for-2024/"><u>[New] Mac Tricks for Dynamic Instagram Video Size Adjustment for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-mastering-instagram-as-an-influencer-5-must-know-techniques-and-case-studies/"><u>[Updated] Mastering Instagram As An Influencer 5 Must-Know Techniques and Case Studies</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-revamp-your-instagram-showcase-with-top-10-insights/"><u>2024 Approved Revamp Your Instagram Showcase with Top 10 Insights</u></a></li>
+<li><a href="https://driver-install.techidaily.com/align-windows-11plus7plus81-drivers-to-optimized-intel-hardware/"><u>Align Windows 11+7+8.1 Drivers to Optimized Intel Hardware</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-on-oppo-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos on Oppo</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-the-essential-guide-to-cooler-mini-house-creations/"><u>In 2024, The Essential Guide to Cooler Mini-House Creations</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-free-and-easy-avi-video-editing-software-options/"><u>New 2024 Approved Free and Easy AVI Video Editing Software Options</u></a></li>
+<li><a href="https://games-able.techidaily.com/next-gen-powerhouse-a-compilation-of-top-9-ps5-ideas/"><u>Next Gen Powerhouse: A Compilation of Top 9 PS5 Ideas</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/the-sound-of-success-tailoring-audio-for-instagram-content/"><u>The Sound of Success Tailoring Audio for Instagram Content</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/unlocking-the-potential-crafting-top-tier-gopro-filming/"><u>Unlocking the Potential Crafting Top-Tier Gopro Filming</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/viral-loop-creations-instagrams-boomerang-guide/"><u>Viral Loop Creations Instagram's Boomerang Guide</u></a></li>
 </ul></div>
 

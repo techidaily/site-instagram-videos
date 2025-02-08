@@ -1,7 +1,7 @@
 ---
 title: "Fixing Your COD: WWII Experience - Overcoming the Hurdle of Error #4128"
-date: 2025-01-22T20:10:46.019Z
-updated: 2025-01-26T10:10:55.511Z
+date: 2025-02-04T06:54:50.957Z
+updated: 2025-02-08T04:17:42.959Z
 tags:
   - win11
   - win10
@@ -19,28 +19,24 @@ thumbnail: https://thmb.techidaily.com/26fc91ea31b084d9024cbf2c3260379dfbc09b55f
 
 If you’re on Windows, and you’re seeing the error message “_**GeForce Experience encountered an error and must close**_“, you’re not alone. Many Windows users are reporting this problem as well. But no worries, it’s possible to fix. Here are 3 solutions for you to try. You may not have to try them all; just work your way down until you find the one works for you. [**Method 1: Clean reinstall GeForce Experience**](https://tools.techidaily.com/drivereasy/download/) [**Method 2: Reinstall NVIDIA Drivers**](https://tools.techidaily.com/drivereasy/download/) [**Method 3: Reinstall Microsoft .NET Framework**](https://tools.techidaily.com/drivereasy/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Method 1: Clean reinstall GeForce Experience
 
 One of the first things you do when you run into problems with your PC programs is to reinstall them. Here is how you can do it: 1)On your keyboard, press the **Windows logo key** ![](https://images.drivereasy.com/wp-content/uploads/2017/09/img_59ad1f04d88bb.png)  and**R** at the same time and type**%localappdata%\\NVIDIA\\**  and press**Enter** .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/09/img_59c8cab77a328.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 2) Highlight**GFExperience.exe**folder and delete it. 3) Go to NVIDIA support website again to download the most stable version of GeForce Experience available. Or you can go to safe download sites such as cnet to search for available downloads. 4) Install GeForce Experience as instructed. 5) Check if the problem is resolved.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Method 2: Reinstall NVIDIA Drivers
@@ -48,7 +44,11 @@ One of the first things you do when you run into problems with your PC programs 
 Faulty installed NVIDIA drivers can be one of the causes of this problem according to may users. You can uninstall all the possible NVIDIA drivers from your computer and then reinstall them again. If you need, you can use software such as Display Driver Uninstaller to help you with the NVIDIA display driver uninstall. Or you can just go to Device Manager to uninstall NVIDIA drivers one by one. Pick whatever suits you best. When the uninstall finishes, restart your PC. Search for the needed NVIDIA drivers from its support website, and update them as instructed. If you don’t have the time, patience or computer skills to update your drivers manually, you can do it automatically with[**Driver Easy**](https://tools.techidaily.com/drivereasy/download/). Driver Easy will automatically recognize your system and find the correct drivers for it. To ensure that you have safe and secure drivers, Driver Easy prioritizes in providing you with drivers that have passed WHQL test. You can update your drivers automatically with either the FREE or the Pro version of Driver Easy. But with the Pro version it takes just 2 clicks (and you get full support and a 30-day money back guarantee): 1)[**Download**](https://tools.techidaily.com/drivereasy/download/)and install Driver Easy. 2) Run Driver Easy and click the**Scan Now**button. Driver Easy will then scan your computer and detect any problem drivers. ![](https://images.drivereasy.com/wp-content/uploads/2017/07/img_595772546bc1c.png)3) Click the**Update**button next to all flagged devices to automatically download and install the correct version of their drivers (you can do this with the FREE version). Or click**Update All**to automatically download and install the correct version of all the drivers that are missing or out of date on your system (this requires the[**Pro version**](https://tools.techidaily.com/drivereasy/download/)– you’ll be prompted to upgrade when you click Update All). ![](https://images.drivereasy.com/wp-content/uploads/2017/04/img_58e8b44fc8c34.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Method 3: Reinstall Microsoft .NET Framework
@@ -73,22 +73,22 @@ Another possible cause of this error can be outdated Microsoft .NET Framework fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-fast-forwarding-instagram-videos-efficiently/"><u>[New] Fast-Forwarding Instagram Videos Efficiently</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-the-ultimate-guide-to-insta-image-perfection/"><u>[New] In 2024, The Ultimate Guide to Insta Image Perfection</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-understanding-instagrams-reels-vs-stories-format/"><u>[New] In 2024, Understanding Instagram’s Reels vs Stories Format</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-mastering-script-structuring/"><u>[New] Mastering Script Structuring</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-enhancing-reels-perfecting-sound-in-instagram-videos/"><u>[Updated] 2024 Approved Enhancing Reels Perfecting Sound in Instagram Videos</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-enhance-post-strategy-with-these-top-8-ios-and-android-planners/"><u>[Updated] In 2024, Enhance Post Strategy with These Top 8 iOS & Android Planners</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-guide-to-filming-and-refining-videos-via-adobe-connect/"><u>[Updated] In 2024, Guide to Filming & Refining Videos via Adobe Connect</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-how-to-disable-igtv-feature/"><u>[Updated] In 2024, How to Disable IGTV Feature</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-the-ultimate-guide-to-group-photo-and-video-uploads-in-instagram/"><u>[Updated] The Ultimate Guide to Group Photo and Video Uploads in Instagram</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-enhance-engagement-with-effective-yt-summary-writing/"><u>2024 Approved Enhance Engagement with Effective YT Summary Writing</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/affordable-solution-how-xr-glasses-alleviated-my-loss-of-apple-vision-due-to-pros-exclusivity/"><u>Affordable Solution: How XR Glasses Alleviated My Loss of Apple Vision Due to Pro's Exclusivity</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/1723008639690-expert-tips-to-boost-chrome-performance-fast-and-easy/"><u>Expert Tips to Boost Chrome Performance Fast and Easy</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/microsoft-surface-go-review-an-affordable-tablet-with-a-puzzling-identity-crisis/"><u>Microsoft Surface Go Review: An Affordable Tablet With a Puzzling Identity Crisis</u></a></li>
-<li><a href="https://article-tips.techidaily.com/stunning-images-with-the-latest-iphone-camera-features-for-2024/"><u>Stunning Images with the Latest iPhone Camera Features for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/tricks-of-the-trade-for-instagram-video-preservation-for-2024/"><u>Tricks of the Trade for Instagram Video Preservation for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unlocking-ultra-hd-viewing-with-tcls-budget-friendly-50s425-50-inch-roku-tv-a-thorough-review/"><u>Unlocking Ultra HD Viewing with TCL's Budget-Friendly 50S425 50-Inch Roku TV - A Thorough Review!</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-nokia-c110-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Nokia C110 | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-the-pathway-to-earning-facebook-written-by-your-assistant/"><u>[New] 2024 Approved The Pathway to Earning Facebook’ Written by Your Assistant</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-maximizing-your-income-potential-on-instagram-for-2024/"><u>[New] Maximizing Your Income Potential on Instagram for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-reversing-the-flow-a-guide-to-tracing-instagram-pics-backwards-for-2024/"><u>[New] Reversing the Flow A Guide to Tracing Instagram Pics Backwards for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ltimate-sound-selection-for-social-media-stars-for-2024/"><u>[New] Ultimate Sound Selection for Social Media Stars for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-behance-portfolio-image-constraints/"><u>[Updated] 2024 Approved Behance Portfolio Image Constraints</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-captivating-audiences-instagrams-personalized-quest-style-lives/"><u>[Updated] 2024 Approved Captivating Audiences Instagram's Personalized Quest-Style Lives</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-the-social-media-savant-writes-on-mastering-brand-promotion/"><u>[Updated] 2024 Approved The Social Media Savant' Writes on Mastering Brand Promotion</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-elite-guide-exceptional-instagram-hlv-designers-for-2024/"><u>[Updated] Elite Guide Exceptional Instagram HLV Designers for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/at-least-4-and-no-more-than-8-public-interest-representatives-who-do-not-participate-in-organic-agricultural-or-trade/"><u>At Least 4 and No More than 8 Public Interest Representatives (Who Do Not Participate in Organic Agricultural or Trade)</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/best-3-motorola-edge-40-pro-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>Best 3 Motorola Edge 40 Pro Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/fehlerbehebung-bei-handbrake-erfolgreiches-scannen-von-dvd-titeln/"><u>Fehlerbehebung Bei HandBrake: Erfolgreiches Scannen Von DVD-Titeln</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-beam-your-best-selecting-the-stirring-photos-on-instagram/"><u>In 2024, Beam Your Best Selecting the Stirring Photos on Instagram</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-tips-for-uploading-external-urls-to-ig/"><u>In 2024, Tips for Uploading External URLs to IG</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-the-art-of-audio-fading-2-pro-tips-for-final-cut-pro-users/"><u>New 2024 Approved The Art of Audio Fading 2 Pro Tips for Final Cut Pro Users</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/the-5-prime-apps-for-clandestine-story-viewers-for-2024/"><u>The 5 Prime Apps for Clandestine Story Viewers for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ngle-alchemists-guide-to-transforming-your-videos-youtube-edition-for-2024/"><u>The Angle Alchemist's Guide to Transforming Your Videos (YouTube Edition) for 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/the-discreet-route-to-disengage-from-discord-networks-for-2024/"><u>The Discreet Route to Disengage From Discord Networks for 2024</u></a></li>
 </ul></div>
 
