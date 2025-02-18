@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Professional Thumbnails for Engaging IGTV Posts"
-date: 2025-02-02T19:29:34.024Z
-updated: 2025-02-08T10:13:57.908Z
+date: 2025-02-17T00:58:06.763Z
+updated: 2025-02-17T19:25:42.941Z
 tags:
   - ai video
   - ai instagram
@@ -31,10 +31,6 @@ There are so many different things you need to pay attention to when sharing new
 * Part 2: How to Create a Cover Photo for Your IGTV Channel?
 * Part 3: Bonus! Edit Your IGTV Video with Filmora
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: Dimensions and Specifications for Cover Photos on IGTV
 
 IGTV is centered around the idea that people hold their phones vertically while watching videos, and for that reason, all videos on this platform are in the **9:16 aspect ratio**. Hence the cover photos you can add to your IGTV videos have to be **vertically oriented** as well, and if you would like to prevent IGTV from cropping your cover photo, you need to make sure that the picture matches the platform’s specifications. If you follow these specifications the cover photos for your IGTV videos are going to look equally good inside the IGTV app, the Instagram.com website, Instagram app search grid or Instagram app search feed.
@@ -47,10 +43,14 @@ The images you use as cover photos for your videos will be displayed in differen
 
 ![IGTV Cover Photo Safe Zone ](https://images.wondershare.com/filmora/article-images/igtv-cover-photo-dimensions.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 While creating a cover photo for an IGTV video you need to keep in mind that different graphics and text overlays are going to be displayed over the picture once you upload it to your channel. During the process of uploading IGTV video’s cover photo, you will be able to add text to it, but the **Title Safe Area** suggests where you can place the text without the risk of it being cropped while being viewed from different devices won’t be shown. So, make sure that all text you add to your IGTV video cover photo is **placed in the central area of the image** in order for it to be clearly visible on all devices.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to Create a Cover Photo for Your IGTV Channel?
@@ -62,7 +62,7 @@ Adding a cover photo to your IGTV video is easy since you just have **to upload 
 Learn more details about [How to edit IGTV videos with best app on mobile](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: Bonus! Edit Your IGTV Video with Filmora
@@ -74,7 +74,7 @@ Filmora is a video editing software for people at different levels. Should you b
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Conclusion**
@@ -84,7 +84,7 @@ A small and seemingly insignificant detail like a cover photo of an IGTV video c
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -102,16 +102,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-instagram-economics-a-detailed-blueprint-for-profit/"><u>[New] 2024 Approved Instagram Economics A Detailed Blueprint for Profit</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-easy-instagram-posting-for-gif-lovers-4-essential-tips-for-2024/"><u>[New] Easy Instagram Posting for GIF Lovers 4 Essential Tips for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-go-beyond-the-tv-watch-nba-gameplay-with-these-15-hacks/"><u>[New] Go Beyond the TV Watch NBA Gameplay with These 15 Hacks</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-maximizing-impact-the-best-instagram-hashtag-list/"><u>[Updated] 2024 Approved Maximizing Impact The Best Instagram Hashtag List</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-step-by-step-guide-adding-subs-to-igtv-for-2024/"><u>[Updated] Step-by-Step Guide Adding Subs to IGTV for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/free-professional-youtuber-backgrounds/"><u>Free Professional YouTuber Backgrounds</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/how-to-swiftly-resolve-rdp-internal-errors-on-modern-pcs/"><u>How to Swiftly Resolve RDP Internal Errors on Modern PCs</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-win11s-ultimate-screen-recording-kit/"><u>In 2024, Win11's Ultimate Screen Recording Kit</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/overhauling-copy-and-paste-on-chrome-edge-firefox-os/"><u>Overhauling Copy & Paste on Chrome, Edge, Firefox OS</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-oppo-find-x7-ultra-by-drfone-android/"><u>The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Oppo Find X7 Ultra</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/unlocking-content-discovery-with-instagram-hashtags/"><u>Unlocking Content Discovery with Instagram Hashtags</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-discreet-viewers-guide-best-hidden-apps-for-stories/"><u>[New] 2024 Approved Discreet Viewer's Guide Best Hidden Apps for Stories</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-constructing-unique-instagram-post-images-for-2024/"><u>[New] Constructing Unique Instagram Post Images for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-immortalize-memories-unleash-save-free-magic/"><u>[New] In 2024, Immortalize Memories, Unleash Save-Free Magic</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-insta-gone-locating-the-disappeared-fans-for-2024/"><u>[New] Insta Gone? Locating the Disappeared Fans for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-bring-your-facebook-live-back-on-track-interruption-fixes/"><u>[Updated] Bring Your Facebook Live Back on Track Interruption Fixes</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-a-comprehensible-explanation-of-youtubes-viewership-puzzle/"><u>[Updated] In 2024, A Comprehensible Explanation of YouTube's Viewership Puzzle</u></a></li>
+<li><a href="https://win-alternatives.techidaily.com/1-comment-pouvez-vous-recuperer-vos-documents-microsoft-word-apres-un-plantage/"><u>1. Comment Pouvez-Vous Récupérer Vos Documents Microsoft Word Après Un Plantage ?</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-innovative-igtv-thumbnail-upgrades-guide/"><u>2024 Approved Innovative IGTV Thumbnail Upgrades Guide</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-streaming-and-recording-showdown-obs-studio-or-bandicam/"><u>2024 Approved Streaming and Recording Showdown OBS Studio or Bandicam?</u></a></li>
+<li><a href="https://win-online.techidaily.com/how-to-convert-mbr-hard-drive-to-gpt-format-across-various-windows-versions-111087/"><u>How to Convert MBR Hard Drive to GPT Format Across Various Windows Versions (11/10/8/7)</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-an-airtag-from-your-apple-id-account-on-iphone-se-by-drfone-ios/"><u>How to Remove an AirTag from Your Apple ID Account On iPhone SE?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-stream-anything-from-xiaomi-14-ultra-to-apple-tv-drfone-by-drfone-android/"><u>How To Stream Anything From Xiaomi 14 Ultra to Apple TV | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/insta-reel-power-mimicking-high-flying-tiktok-methods/"><u>Insta Reel Power Mimicking High-Flying TikTok Methods</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/optimize-your-windows-gaming-setup-with-playnite-and-emulators/"><u>Optimize Your Windows Gaming Setup with Playnite and Emulators</u></a></li>
+<li><a href="https://article-posts.techidaily.com/perfecting-sound-design-for-canva-video-templates/"><u>Perfecting Sound Design for Canva Video Templates</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/ranked-instagrams-top-8-popular-ae-composition-tools/"><u>Ranked Instagram's Top 8 Popular AE Composition Tools</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/social-media-strategies-mastering-igs-most-trending-hashtags/"><u>Social Media Strategies Mastering IG's Most Trending Hashtags</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Subtitle Tactics for Instagram's Video Feed"
-date: 2025-02-03T04:43:33.774Z
-updated: 2025-02-07T20:34:41.059Z
+date: 2025-02-13T17:13:34.916Z
+updated: 2025-02-18T00:46:52.406Z
 tags:
   - ai video
   - ai instagram
@@ -28,7 +28,7 @@ thumbnail: https://thmb.techidaily.com/be8ed6a4e78ad75b0aa927e5deab19fb5e1ff02b9
 During the process of editing an IGTV video, you have to think about the audience that is going to watch that video. The vast majority of people who can see your IGTV posts will be viewing them from a mobile device, which is why your content has to be mobile-friendly. Subtitles should be included in all videos you post on IGTV since they will make your videos more accessible to people with hearing impairment as well as to those IGTV users who for whatever reason can’t turn on the sound while they are watching your video. Read on if you would like to find out how you can add subtitles to IGTV videos because in this article we are going to show you how you can accomplish this effortlessly.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Add Subtitles to IGTV Videos from Mac and PC Computers Using Filmora
@@ -46,7 +46,7 @@ Choose the **New Project** option and then once the project opens, head over to 
 ![ Filmora0 Create New Project](https://images.wondershare.com/filmora/article-images/filmora9-4k-project-settings.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Click on the **OK button** to confirm the changes, and then go to the **Media panel** to import the video you would like to edit. The fastest way to add media files to your project is to just drag them from the folder in which they are stored and drop them to the Media panel. You can also click on the **Import** drop-down menu and select the **Import Media Files** option from the list.
@@ -64,12 +64,16 @@ Once you have all the text ready, you should go to the **Titles panel** and clic
 ![ Filmora0 Create New Project](https://images.wondershare.com/filmora/article-images/add-titles-text.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You can choose from a variety of preset text styles, and you can select the font, color or the size of the text. Click on the **Advanced button** if you would like to customize the text and create as many text layers as you need to cover all the dialogues or the narration in the video.
 
 ![ Filmora0 Create New Project](https://images.wondershare.com/filmora/article-images/advanced-text-editing-9-win.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Adding subtitles to a video can be a painstakingly long process if you’re working with a lot of text, so arm yourself with patience and do your best to be as precise as you possibly can, because lagging subtitles can create a lot of confusion. Besides adding the title and text, you can add some animation effects such as typewriter animation to the typed texts. Learn more about [How to add typewriter effects to videos](https://tools.techidaily.com/wondershare/filmora/download/) in details.
 
@@ -80,7 +84,7 @@ Once you’re done adding the subtitles you should click on the **Photo Camera i
 In case you like editing IGTV videos from your phone, you can try adding subtitles to your IGTV videos with the Quik app. After you’ve completed all other video editing tasks, you should tap on the **Text icon** and type in the text you’d like to add to the video. Hit the **OK button** after you’ve added the text and that’s it you’ve successfully created the subtitles for your IGTV video. How long the process of creating hardcoded subtitles is going to last depends on the duration of the video and the amount of narration or dialogue in the video.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Tips for Adding Subtitles to IGTV Videos
@@ -92,10 +96,6 @@ While adding text to your IGTV you must **pay close attention that the text is c
 Even though adding subtitles to videos can require a lot of precision and attention to detail, it can help you produce content that attracts a lot of attention on IGTV. However, most videos shared on IGTV don’t surpass a two-minute mark, so even if there is a lot of dialogue, you can add hardcoded subtitles to a video in a relatively short period of time. What is your favorite method of adding subtitles to the videos you upload to your IGTV channel? Leave a comment below and share your experiences with us.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -112,17 +112,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-top-ten-image-amplifiers-for-social-media/"><u>[New] 2024 Approved Top Ten Image Amplifiers for Social Media</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-bring-sound-effects-into-premiere-pro-for-2024/"><u>[New] Bring Sound Effects Into Premiere Pro for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-quickening-instagram-video-streams-on-mobile-devices-for-2024/"><u>[New] Quickening Instagram Video Streams on Mobile Devices for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-elevate-your-feed-10-must-have-instagram-tools/"><u>[Updated] 2024 Approved Elevate Your Feed 10 Must-Have Instagram Tools</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-exclusive-insights-into-making-memorable-instagram-movies/"><u>2024 Approved Exclusive Insights Into Making Memorable Instagram Movies</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-can-life360-track-you-when-your-infinix-note-30-is-off-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track You When Your Infinix Note 30 is off? | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-instagram-stories-secrets-for-success/"><u>In 2024, Instagram Stories Secrets for Success</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-latest-trends-in-mobile-viewing-android-edition-vr360/"><u>In 2024, Latest Trends in Mobile Viewing - Android Edition (VR/360)</u></a></li>
-<li><a href="https://article-posts.techidaily.com/leading-websites-for-free-game-of-thrones-ringtones-for-2024/"><u>Leading Websites for Free Game of Thrones Ringtones for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/mastering-the-art-of-projector-selection-important-criteria-and-considerations-for-shoppers/"><u>Mastering the Art of Projector Selection: Important Criteria and Considerations for Shoppers</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/perfecting-your-videos-farewell-scene-for-2024/"><u>Perfecting Your Video's Farewell Scene for 2024</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/ultimate-tutorial-creating-a-bootable-drive-with-windows-10-a-comprehensive-guide/"><u>Ultimate Tutorial: Creating a Bootable Drive with Windows 10 - A Comprehensive Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-cloaked-content-exploration-reading-instagram-stories-without-sharing-your-identity/"><u>[New] 2024 Approved Cloaked Content Exploration Reading Instagram Stories without Sharing Your Identity</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/coustic-mastery-secrets-for-exceptional-audio-capture-for-2024/"><u>[New] Acoustic Mastery Secrets for Exceptional Audio Capture for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-enhancing-interactivity-tips-for-hosting-splitting-screen-events-on-facebook/"><u>[New] Enhancing Interactivity Tips for Hosting Splitting-Screen Events on Facebook</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-instagram-reels-a-prodigys-blueprint/"><u>[New] In 2024, Instagram Reels A Prodigy’s Blueprint</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-in-2024-laugh-ledger-the-ultimate-list-of-hilarious-tweets/"><u>[New] In 2024, Laugh Ledger The Ultimate List of Hilarious Tweets</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-unlock-the-secret-to-insta-cash-with-our-guidebook/"><u>[New] In 2024, Unlock the Secret to Insta Cash with Our Guidebook</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-master-the-switch-linking-instagram-with-facebook/"><u>[New] Master the Switch Linking Instagram with Facebook</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-top-tier-techniques-instagrams-clandestine-tools-for-growth/"><u>[New] Top-Tier Techniques Instagram's Clandestine Tools for Growth</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-expert-tips-4-ways-to-enhance-fb-live-recording/"><u>[Updated] In 2024, Expert Tips 4 Ways to Enhance FB Live Recording</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-launchpad-for-newcomers-creating-a-successful-product-evaluation-vlog-for-2024/"><u>[Updated] Launchpad for Newcomers Creating a Successful Product Evaluation Vlog for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-step-by-step-reposting-on-instagram/"><u>[Updated] Step-by-Step Reposting on Instagram</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-unify-instagram-and-facebook-a-step-by-step-guide/"><u>[Updated] Unify Instagram and Facebook A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-digital-golds-guardians-cryptocurrency-stability-coins/"><u>Decoding Digital Gold's Guardians: Cryptocurrency Stability Coins</u></a></li>
+<li><a href="https://discover-answers.techidaily.com/fix-your-pc-how-to-recover-a-deleted-windows-boot-partition-successfully/"><u>Fix Your PC: How to Recover a Deleted Windows Boot Partition Successfully</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-remove-or-bypass-knox-enrollment-service-on-htc-u23-by-drfone-android/"><u>In 2024, How To Remove or Bypass Knox Enrollment Service On HTC U23</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-realme-12-pro-5g-phone-without-pin-by-drfone-android/"><u>In 2024, How to Unlock Realme 12 Pro 5G Phone without PIN</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-step-by-step-add-vimeo-in-instagram-reels/"><u>In 2024, Step-by-Step Add Vimeo in Instagram Reels</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-the-pitfall-of-superficial-engagement-on-insta/"><u>In 2024, The Pitfall of Superficial Engagement on Insta</u></a></li>
+<li><a href="https://solve-news.techidaily.com/transformar-arquivos-em-rw2-gratuitamente-on-line-o-poder-do-conversor-da-movavi/"><u>Transformar Arquivos Em RW2 Gratuitamente On-Line: O Poder Do Conversor Da Movavi</u></a></li>
 </ul></div>
 

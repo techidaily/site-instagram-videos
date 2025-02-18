@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] SnapSizeSecrets  Perfecting Photo and Video Sizes in Instagram\""
-date: 2025-02-03T06:41:45.019Z
-updated: 2025-02-08T10:16:28.499Z
+date: 2025-02-12T20:04:18.040Z
+updated: 2025-02-18T01:21:49.074Z
 tags:
   - ai video
   - ai instagram
@@ -30,7 +30,7 @@ Taking photos with iPhones and Android Smartphones and posting them to Instagram
 Troubles begin when you want to upload photos and videos that weren't captured with a Smartphone to Instagram. In most cases, the photos and videos produced by DSLR cameras and other semi-professional and professional equipment are much larger than the sizes supported by Instagram. That is the reason why we created this guide that will help you post visual content that is perfectly adjusted to Instagram in 2021.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Types of Files Accepted by Instagram
@@ -50,7 +50,7 @@ Duration of Videos on Instagram
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Best Image Sizes for Instagram Posts
@@ -62,7 +62,7 @@ A couple of years ago, Instagram has finally allowed its users to upload images 
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
@@ -90,7 +90,7 @@ The profile pictures on Instagram are tiny, and the optimum size for them is 160
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -108,22 +108,15 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-2024-approved-consolidated-calendar-management-merge-mobile-and-pc-zoom-dates/"><u>[New] 2024 Approved Consolidated Calendar Management Merge Mobile and PC Zoom Dates</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-effortless-instagram-media-export-top-20-free-mp4-converters-online/"><u>[New] 2024 Approved Effortless Instagram Media Export Top 20 Free MP4 Converters Online</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-elevating-your-visuals-mastering-instagram-edits-in-fcpx/"><u>[New] Elevating Your Visuals Mastering Instagram Edits in FCPX</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-ideal-blueprint-top-6-fresh-mojave-homes/"><u>[New] In 2024, Ideal Blueprint Top 6 Fresh Mojave Homes</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-in-2024-navigate-with-ease-mastering-ifunnys-meme-app/"><u>[New] In 2024, Navigate with Ease Mastering iFunny's Meme App</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-trendsetting-tags-top-10-to-make-your-post-pop/"><u>[New] In 2024, Trendsetting Tags Top 10 To Make Your Post Pop</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-understanding-instagrams-tune-trademark-policies/"><u>[New] In 2024, Understanding Instagram's Tune Trademark Policies</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-navigating-the-viral-terrain-with-smart-instagram-video-tactics/"><u>[Updated] 2024 Approved Navigating the Viral Terrain with Smart Instagram Video Tactics</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-validating-yourself-a-look-at-verified-insta-posts/"><u>[Updated] 2024 Approved Validating Yourself A Look at Verified Insta Posts</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-elevate-storytelling-free-soundtrack-options-available-in-2024/"><u>[Updated] Elevate Storytelling - Free Soundtrack Options Available, In 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-increase-views-with-smart-igtv-title-and-summary-edits/"><u>[Updated] Increase Views with Smart IGTV Title and Summary Edits</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/updated-twitta-to-trackable-audio-transitions/"><u>[Updated] Twitta to Trackable Audio Transitions</u></a></li>
-<li><a href="https://iphone-location.techidaily.com/7-fixes-to-no-gps-showing-approximate-location-on-apple-iphone-x-waze-drfone-by-drfone-virtual-ios/"><u>7 Fixes to No GPS - Showing Approximate Location on Apple iPhone X Waze | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/forgotten-the-voicemail-password-of-motorola-moto-g-stylus-5g-2023-try-these-fixes-by-drfone-android/"><u>Forgotten The Voicemail Password Of Motorola Moto G Stylus 5G (2023)? Try These Fixes</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-avoid-mainstream-underrated-movies-of-the-year/"><u>In 2024, Avoid Mainstream Underrated Movies of the Year</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/inspirational-images-a-top-20-guide-for-insta-gratification-for-2024/"><u>Inspirational Images A Top 20 Guide for Insta Gratification for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/whys-my-screen-mute-fixing-microphone-issues-on-microsoft-powered-google-meet/"><u>Why's My Screen Mute? Fixing Microphone Issues on Microsoft-Powered Google Meet</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-10-best-no-cost-live-streaming-tools-android-and-iphone-guide/"><u>[Updated] 10 Best No-Cost Live Streaming Tools Android & iPhone Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-engage-inspire-convert-strategizing-for-impactful-instavideo-content/"><u>[Updated] In 2024, Engage, Inspire, Convert Strategizing for Impactful InstaVideo Content</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-ultimate-4k-gaming-setup-top-10-laptop-guide/"><u>[Updated] In 2024, Ultimate 4K Gaming Setup - Top 10 Laptop Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-top-10-igtv-channels-you-should-start-following-for-2024/"><u>[Updated] Top 10 IGTV Channels You Should Start Following for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-try-this-groundbreaking-free-valorant-audio-swap-tech-for-2024/"><u>[Updated] Try This Groundbreaking, Free Valorant Audio Swap Tech for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-a-motorola-defy-2-easily-by-drfone-android/"><u>In 2024, How To Unlock a Motorola Defy 2 Easily?</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-top-25-hashtags-that-will-make-you-a-social-media-star-on-instagram/"><u>In 2024, Top 25 Hashtags That Will Make You a Social Media Star on Instagram</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/innovative-electronics-uncovered-by-toms-hardware-hub/"><u>Innovative Electronics Uncovered by Tom's Hardware Hub</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/instagram-video-collage-app-for-androidandios/"><u>Instagram Video Collage App for Android&iOS</u></a></li>
+<li><a href="https://games-able.techidaily.com/the-top-5-frustrating-foddian-games-to-test-your-skills/"><u>The Top 5 Frustrating Foddian Games to Test Your Skills</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Step-by-Step  Adding a Flurry of Images & Videos to Your IG Story\""
-date: 2025-02-02T18:21:28.629Z
-updated: 2025-02-07T18:00:00.776Z
+date: 2025-02-14T17:20:53.334Z
+updated: 2025-02-17T17:04:05.200Z
 tags:
   - ai video
   - ai instagram
@@ -28,7 +28,7 @@ thumbnail: https://thmb.techidaily.com/46c850237c04863ff656e578f32b008a00b71b463
  We often wonder how great would that be if you can upload multiple photos or video to Instagram, right? Well, we understand your situation. Obviously, if you have to upload your photos or videos one at a time, it may feel quite boring and frustrating, especially when you have dozens of them lined up in the queue. But here's the good news!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Introducing Carousel
@@ -36,10 +36,6 @@ thumbnail: https://thmb.techidaily.com/46c850237c04863ff656e578f32b008a00b71b463
  Instagram's update 10.9 for Android and iOS allows its users to upload upto 10 photos and videos in one go. This new feature is called 'Carousel'. Basically, when you upload multiple photos via carousel, they appear in a single post in the feed. There will be a row of blue dots underneath the pictures to let others know that they can swipe left and right through the slideshow to view the photos.
 
  You can now organize and post your photos about an expedition or some memorable event etc. in one single post and boast about your experiences in a more sequential and connective way to efficiently capture your audience's attention. Since this feature lets you add a series of videos as well, you can incorporate up to 10 videos in a single post and hence post a video content for up to 10 minutes.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Upload Multiple Videos and Photos to Instagram
 
@@ -53,6 +49,10 @@ thumbnail: https://thmb.techidaily.com/46c850237c04863ff656e578f32b008a00b71b463
 
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-2.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Alternatively, if you have upgraded your Instagram app, you can simply tap the 'Select Multiple' option, represented by an icon of 'stacked squares', and select up to 10 photos/videos.
 
  Note: Make sure to select the images, in the sequence you want them to occur in your post. A number appears on the top right corner of every image which shows you the sequence in which they will be uploaded. Tap 'Next' when you are done selecting the images/videos.
@@ -62,6 +62,10 @@ thumbnail: https://thmb.techidaily.com/46c850237c04863ff656e578f32b008a00b71b463
  If in case, you want a different filter for each or any specific image, tap on that particular image and apply the filter of your choice. Once you are satisfied with your selection, tap 'Done'.
 
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-3.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * (Optional) If you've selected less than 10 photos and want to add more, tap '<' or go back to the previous screen or tap '+' displayed on the right side of the photos/videos. Tapping '<' or going back to the previous screen can also be used to deselect a photo/video.
 
@@ -76,11 +80,7 @@ thumbnail: https://thmb.techidaily.com/46c850237c04863ff656e578f32b008a00b71b463
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-6.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -90,7 +90,7 @@ thumbnail: https://thmb.techidaily.com/46c850237c04863ff656e578f32b008a00b71b463
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -108,24 +108,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-detailed-guide-instastickers-your-pathway-to-musical-posting/"><u>[New] 2024 Approved Detailed Guide InstaStickers – Your Pathway to Musical Posting</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-instagram-story-stealth-mode-accessible-for-everyone-without-link-sharing/"><u>[New] Instagram Story Stealth Mode Accessible for Everyone without Link Sharing</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-tips-for-retro-revival-using-instagram-filters-on-previous-imagesvideos-for-2024/"><u>[New] Tips for Retro Revival Using Instagram Filters on Previous Images/Videos for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-win11-elite-screen-recording-software/"><u>[Updated] 2024 Approved Win11 Elite Screen Recording Software</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-crafting-memes-with-ease-on-9gag-platform/"><u>[Updated] Crafting Memes with Ease on 9GAG Platform</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-spotting-the-top-10-covert-instagram-story-spectators/"><u>[Updated] In 2024, Spotting the Top 10 Covert Instagram Story Spectators</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-the-ultimate-rankings-top-budget-friendly-photo-editors-online/"><u>[Updated] In 2024, The Ultimate Rankings Top Budget-Friendly Photo Editors Online</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-instagram-optimization-top-techniques-for-businesses-and-brands/"><u>[Updated] Instagram Optimization Top Techniques for Businesses and Brands</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-the-complete-igtv-user-manual/"><u>[Updated] The Complete IGTV User Manual</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-anonymous-story-consumption-navigating-through-instagram-stories-on-desktopmobile-free/"><u>2024 Approved Anonymous Story Consumption Navigating Through Instagram Stories on Desktop/Mobile [Free]</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/b-footage-techniques-for-creating-engaging-video-content-for-2024/"><u>B-Footage Techniques for Creating Engaging Video Content for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/constructing-a-dream-ai-powered-home-the-first-five-essential-decisions-unveiled-smart-living-hub/"><u>Constructing a Dream AI-Powered Home: The First Five Essential Decisions Unveiled | Smart Living Hub</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/efficiently-trim-unwanted-segments-from-your-videos-expert-tutorial-on-splitting-videoclips-accurately/"><u>Efficiently Trim Unwanted Segments From Your Videos - Expert Tutorial on Splitting Videoclips Accurately</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/how-to-create-a-square-video-for-instagram-in-imovie-for-2024/"><u>How to Create a Square Video for Instagram in iMovie for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-from-obscurity-to-star-in-3-simple-steps/"><u>In 2024, From Obscurity to Star in 3 Simple Steps</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Reasons why Pokémon GPS does not Work On Apple iPhone 14 Pro Max? | Dr.fone</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-depth-training-on-googles-advanced-speech-to-text-feature/"><u>In-Depth Training on Google's Advanced Speech to Text Feature</u></a></li>
-<li><a href="https://common-error.techidaily.com/troubleshooting-steps-for-unpairing-devices-from-a-windows-10-pc-tips/"><u>Troubleshooting Steps for Unpairing Devices From a Windows 10 PC (Tips )</u></a></li>
-<li><a href="https://android-frp.techidaily.com/ultimate-guide-on-lava-yuva-2-frp-bypass-by-drfone-android/"><u>Ultimate Guide on Lava Yuva 2 FRP Bypass</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-dynamic-duo-combining-multiple-photos-for-impactful-stories/"><u>[New] In 2024, Dynamic Duo Combining Multiple Photos for Impactful Stories</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-enrich-your-art-through-6-premier-nft-platforms/"><u>[New] In 2024, Enrich Your Art Through 6 Premier NFT Platforms</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-flair-up-your-stories-and-feeds-instagrams-simplified-method-of-sharing-gifs/"><u>[New] In 2024, Flair Up Your Stories & Feeds Instagram's Simplified Method of Sharing GIFs</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-crafting-stellar-highlight-photos-on-instagram/"><u>[Updated] 2024 Approved Crafting Stellar Highlight Photos on Instagram</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-perfect-your-video-for-instagram-narrative-flow/"><u>[Updated] 2024 Approved Perfect Your Video for Instagram Narrative Flow</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-spark-inspiration-free-soundtracks-to-enhance-projects/"><u>[Updated] 2024 Approved Spark Inspiration - Free Soundtracks to Enhance Projects</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-top-4k-video-gear-the-definitive-lens-selection/"><u>[Updated] 2024 Approved Top 4K Video Gear The Definitive Lens Selection</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-going-from-end-to-start-the-instagram-video-technique-for-2024/"><u>[Updated] Going From End to Start The Instagram Video Technique for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-how-to-make-slow-motion-video-with-photos-app-and-online/"><u>[Updated] How to Make Slow Motion Video with Photos App and Online</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-mastering-igtv-hash-tagging-boosting-your-fan-base/"><u>[Updated] In 2024, Mastering IGTV Hash Tagging Boosting Your Fan Base</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-mastering-instagram-videos-understanding-time-constraints-for-2024/"><u>[Updated] Mastering Instagram Videos Understanding Time Constraints for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-mastering-the-art-of-tagging-instas-top-25-must-use-tags-for-2024/"><u>[Updated] Mastering the Art of Tagging Insta's Top 25 Must-Use Tags for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-easy-solutions-to-hard-reset-nokia-c12-pro-drfone-by-drfone-reset-android-reset-android/"><u>3 Easy Solutions to Hard Reset Nokia C12 Pro | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/far-cry-6-launching-flawlessly-solutions-for-initial-boot-failures/"><u>Far Cry #6 Launching Flawlessly - Solutions for Initial Boot Failures</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-10-best-fake-gps-location-spoofers-for-xiaomi-civi-3-drfone-by-drfone-virtual-android/"><u>In 2024, 10 Best Fake GPS Location Spoofers for Xiaomi Civi 3 | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ture-mastery-in-the-social-sphere-who-wins-with-youtube-shorts-or-tiktoks-in-2024/"><u>Miniature Mastery in the Social Sphere Who Wins with YouTube Shorts or TikToks, In 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/resolving-hp-p2035-laserjet-driver-problems-for-windows-users/"><u>Resolving HP P2035 Laserjet Driver Problems for Windows Users</u></a></li>
 </ul></div>
 

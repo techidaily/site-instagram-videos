@@ -1,7 +1,7 @@
 ---
 title: Step-by-Step Guide to Improve Frame Rates & Eliminate Lagging Issues for Enthralling Play in Fall Guys
-date: 2025-01-31T16:18:43.321Z
-updated: 2025-02-08T01:05:08.574Z
+date: 2025-02-16T21:03:18.441Z
+updated: 2025-02-18T01:49:04.473Z
 tags:
   - win11
   - win10
@@ -64,7 +64,7 @@ thumbnail: https://thmb.techidaily.com/00e6416ee52e959bd4b417b088ce280ff84f1d381
  See if the latest graphics driver fix the Resident Evil Village fps drops. If this fix doesn’t work for you, try the next fix, below.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Fix 2: Optimize GPU Settings
@@ -95,6 +95,10 @@ For AMD users, follow the steps below:
 2. Go to **Gaming** **\>** **Global Settings** . Then modify the settings the same way you see on the screenshot below.  
 ![AMD Radeon Settings](https://images.drivereasy.com/wp-content/uploads/2018/12/AMD-Radeon-Settings.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Launch the game to see the fps increases. If not, move on to modify Windows 10 OS graphics settings.
 
 ### Step 2: Modify Windows 10 OS graphics settings
@@ -109,17 +113,13 @@ Simply follow the steps below to modify Windows 10 OS graphics settings:
 3. Then go to **the drive where you save Resident Evil Village game files** \> **Program Files (x86)** or **Program Files** \> **Steam** \> **steamapps** \> **common** \> **Resident Evil Village** game folder, double-click **the .exe file** of Resident Evil Village to add the game.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 4. Once added, click the**Options** button under re8.exe, then select **High performance** and click **Save** .  
 ![Windows 10 graphics settings high performance](https://images.drivereasy.com/wp-content/uploads/2021/05/Windows-10-graphics-settings-high-performance.jpg)
 
  Restart the game to see if it runs smoothly. If not, you may need to move on and modify the in-game graphics settings.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Step 3: Modify in-game graphics settings
 
@@ -140,7 +140,7 @@ Simply follow the steps below to modify Windows 10 OS graphics settings:
  Run Resident Evil Village again to see whether the FPS is back to normal. If it didn’t work, or there was no new game patch available, move on to next fix, below.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Fix 4: Disable the Steam Overlay
@@ -169,7 +169,7 @@ To set Resident Evil Village to High priority:
  Restart the game to see if the in-game FPS improves. If the FPS is still the same, try the next fix, below.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Fix 6: Close resource-hogging apps
@@ -180,7 +180,15 @@ To set Resident Evil Village to High priority:
 2. Select any other applications and programs that take up a large amount of **CPU** , **memory** and **network**  and then click **End task**  to close it.  
 ![End task](https://images.drivereasy.com/wp-content/uploads/2019/07/Task-Manager.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Run Resident Evil Village to see if you can play the game smoothly. if not, try the next fix, below.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Fix 7: Set the Power Plan of your PC for high performance
 
@@ -195,20 +203,16 @@ To set Resident Evil Village to High priority:
 2. In the window that pops up, expand **Hide additional plans** and select **High performance** .  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![control panel power options](https://images.drivereasy.com/wp-content/uploads/2019/07/control-panel-power-options.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Launch Resident Evil Village to check if the in-game fps improves.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Fix 8: Adjust your Windows system for the best performance
 
@@ -218,18 +222,14 @@ Launch Resident Evil Village to check if the in-game fps improves.
 ![run SystemPropertiesAdvanced](https://images.drivereasy.com/wp-content/uploads/2021/05/run-SystemPropertiesAdvanced.jpg)
 2. Under the**Advanced** tab, click the Settings… button in the**Performance** section.  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Advanced Performance Settings](https://images.drivereasy.com/wp-content/uploads/2021/05/Advanced-Performance-Settings.jpg)
 3. Under the**Visual Effects** tab, select**Adjust for best performance** and click**OK** .  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Adjust Windows for best performance](https://images.drivereasy.com/wp-content/uploads/2021/05/Adjust-Windows-for-best-performance.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Launch Resident Evil Village to see if you get a better in-game fps.
 
@@ -259,18 +259,24 @@ Launch Resident Evil Village to see if you get a better in-game fps.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-share-without-boundaries-with-instasavers/"><u>[New] 2024 Approved Share Without Boundaries with InstaSavers</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-unveiling-todays-instagram-trends-and-tags/"><u>[New] 2024 Approved Unveiling Today's #Instagram Trends and Tags</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-mastering-hues-a-collection-of-the-best-11-video-tutorials/"><u>[New] Mastering Hues A Collection of the Best 11 Video Tutorials</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-transform-your-instagram-reels-into-high-quality-mp4-files-anywhere-for-2024/"><u>[New] Transform Your Instagram Reels Into High-Quality MP4 Files Anywhere for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-designing-customized-instagram-feed-narratives/"><u>[Updated] 2024 Approved Designing Customized Instagram Feed Narratives</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-facebook-videos-made-simple-unified-techniques-for-desktop-and-mobile/"><u>[Updated] Facebook Videos Made Simple Unified Techniques for Desktop & Mobile</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-reel-radiance-the-ultimate-5-tools-to-brighten-media/"><u>[Updated] In 2024, Reel Radiance The Ultimate 5 Tools to Brighten Media</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-inject-energy-into-youtube-snapshots/"><u>[Updated] Inject Energy Into YouTube Snapshots</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-unlock-better-engagement-on-instagram-with-video-loops-for-2024/"><u>[Updated] Unlock Better Engagement on Instagram With Video Loops for 2024</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-step-by-step-guide-to-maximizing-your-youtube-brands-impact/"><u>2024 Approved Step-by-Step Guide to Maximizing Your YouTube Brand's Impact</u></a></li>
-<li><a href="https://sound-optimizing.techidaily.com/audio-enhancement-techniques-in-after-effects-a-comprehensive-2023-guide/"><u>Audio Enhancement Techniques in After Effects A Comprehensive 2023 Guide</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/step-by-step-guide-installing-the-delta-quadrant-plugin-for-kodi-lea-and-krpton/"><u>Step-by-Step Guide: Installing the Delta Quadrant Plugin for Kodi (Lea and Krpton)</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-in-2024-video-editing-on-a-mac-here-are-the-best-options-for/"><u>Updated In 2024, Video Editing on a Mac? Here Are the Best Options For</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-elevate-your-social-standing-with-1000-followersmth/"><u>[New] Elevate Your Social Standing with 1,000 Followers/Mth</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-instagram-influence-made-possible-today/"><u>[Updated] 2024 Approved Instagram Influence Made Possible Today</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-instagrams-hidden-details-uncovering-story-viewer-truths/"><u>[Updated] 2024 Approved Instagram's Hidden Details Uncovering Story Viewer Truths</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-instagrams-newest-filters-how-to-use-them-for-impact/"><u>[Updated] 2024 Approved Instagram's Newest Filters How to Use Them for Impact</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-mastering-mmos-in-vr-oculus-vs-htc-vive-vs-ps-vr/"><u>[Updated] 2024 Approved Mastering MMOs in VR Oculus vs HTC Vive vs PS VR</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-5-star-channel-cutting-long-urls-down-for-youtube-videos-for-2024/"><u>[Updated] 5-Star Channel Cutting Long URLs Down for YouTube Videos for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-declutter-your-visuals-learn-background-removal-with-photopea-for-2024/"><u>[Updated] Declutter Your Visuals Learn Background Removal with Photopea for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-dispelling-illusions-yourself-not-an-impostor-on-fb/"><u>[Updated] In 2024, Dispelling Illusions Yourself, Not An Impostor on FB</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-top-ios-slideshow-tools-for-newest-iphones-xr-x-series-8/"><u>[Updated] In 2024, Top iOS Slideshow Tools for Newest iPhones (XR-X Series 8)</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-instagram-video-boundaries-explained-for-2024/"><u>[Updated] Instagram Video Boundaries Explained for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-mastering-multi-image-instagram-stories-a-step-by-step-tutorial-for-2024/"><u>[Updated] Mastering Multi-Image Instagram Stories A Step-by-Step Tutorial for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/app-wont-open-on-your-tecno-spark-20-pro-here-are-all-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>App Wont Open on Your Tecno Spark 20 Pro? Here Are All Fixes | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-free-m-audio-fast-track-ultra-driver-enhanced-audio-interface/"><u>Download Free M-Audio Fast Track Ultra Driver - Enhanced Audio Interface</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-change-realme-12-proplus-5g-lock-screen-clock-in-seconds-by-drfone-android/"><u>How To Change Realme 12 Pro+ 5G Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-apple-iphone-8-passcode-without-computer-by-drfone-ios/"><u>How to Unlock Apple iPhone 8 Passcode without Computer?</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-echoes-of-antiquity-tracing-the-footsteps-of-ancient-scribes/"><u>In 2024, Echoes of Antiquity Tracing the Footsteps of Ancient Scribes</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/strategic-use-of-instagrams-music-emojis-on-posts-for-2024/"><u>Strategic Use of Instagram’s Music Emojis on Posts for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/the-ultimate-mix-of-youtube-and-instagram-feeds-for-2024/"><u>The Ultimate Mix of YouTube & Instagram Feeds for 2024</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-best-of-the-best-professional-animation-software-for-mac-and-windows/"><u>Updated Best of the Best Professional Animation Software for Mac and Windows</u></a></li>
 </ul></div>
 

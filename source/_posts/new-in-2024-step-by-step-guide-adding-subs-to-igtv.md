@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Step-by-Step Guide  Adding Subs to IGTV\""
-date: 2025-02-05T09:33:26.272Z
-updated: 2025-02-07T18:56:57.510Z
+date: 2025-02-14T17:58:08.333Z
+updated: 2025-02-17T22:37:30.166Z
 tags:
   - ai video
   - ai instagram
@@ -27,22 +27,22 @@ thumbnail: https://thmb.techidaily.com/6395a405feac0920efaceeee04a9b0803cb7c1fce
 
 During the process of editing an IGTV video, you have to think about the audience that is going to watch that video. The vast majority of people who can see your IGTV posts will be viewing them from a mobile device, which is why your content has to be mobile-friendly. Subtitles should be included in all videos you post on IGTV since they will make your videos more accessible to people with hearing impairment as well as to those IGTV users who for whatever reason can’t turn on the sound while they are watching your video. Read on if you would like to find out how you can add subtitles to IGTV videos because in this article we are going to show you how you can accomplish this effortlessly.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Add Subtitles to IGTV Videos from Mac and PC Computers Using Filmora
 
 IGTV videos are vertically oriented, so you can’t just create an SRT file that contains the subtitles. The subtitles for IGTV videos have to be hardcoded. This means that the subtitles are going to be an integral part of the video and that you have to add them to the video during the post-production process.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 We are going to show you how to add subtitles to videos in Filmora because you don’t have to be an experienced filmmaker in order to use this video editing software. After installing Filmora on your Mac or PC computer, double-click on its desktop icon to launch it. The welcome window will appear on the screen asking you if you want to continue working on a **recent project** or if you want to create a **new project**.
 
 ![ Filmora0 Create New Project](https://images.wondershare.com/filmora/article-images/new-project-9.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Choose the **New Project** option and then once the project opens, head over to **File menu** and select **Project Settings** from the list. The **Project Settings window** will pop up on the screen and you should change the resolution to **1080x1920 (9:16)** and increase the **Frame Rate to 30fps**.
@@ -50,7 +50,7 @@ Choose the **New Project** option and then once the project opens, head over to 
 ![ Filmora0 Create New Project](https://images.wondershare.com/filmora/article-images/filmora9-4k-project-settings.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Click on the **OK button** to confirm the changes, and then go to the **Media panel** to import the video you would like to edit. The fastest way to add media files to your project is to just drag them from the folder in which they are stored and drop them to the Media panel. You can also click on the **Import** drop-down menu and select the **Import Media Files** option from the list.
@@ -67,16 +67,12 @@ Once you have all the text ready, you should go to the **Titles panel** and clic
 
 ![ Filmora0 Create New Project](https://images.wondershare.com/filmora/article-images/add-titles-text.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 You can choose from a variety of preset text styles, and you can select the font, color or the size of the text. Click on the **Advanced button** if you would like to customize the text and create as many text layers as you need to cover all the dialogues or the narration in the video.
 
 ![ Filmora0 Create New Project](https://images.wondershare.com/filmora/article-images/advanced-text-editing-9-win.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Adding subtitles to a video can be a painstakingly long process if you’re working with a lot of text, so arm yourself with patience and do your best to be as precise as you possibly can, because lagging subtitles can create a lot of confusion. Besides adding the title and text, you can add some animation effects such as typewriter animation to the typed texts. Learn more about [How to add typewriter effects to videos](https://tools.techidaily.com/wondershare/filmora/download/) in details.
@@ -97,6 +93,10 @@ Even though adding subtitles to videos can require a lot of precision and attent
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -112,15 +112,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-insta-turn-techniques-flipping-your-photos-and-gaining-followers/"><u>[New] 2024 Approved Insta-Turn Techniques Flipping Your Photos and Gaining Followers</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-launch-your-zoom-meeting-in-a-flash-on-your-android-smartphonetablet/"><u>[New] Launch Your Zoom Meeting in a Flash on Your Android Smartphone/Tablet</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-the-art-of-image-detection-opposite-on-facebook-networks/"><u>[New] The Art of Image Detection Opposite on Facebook Networks</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-frame-it-right-mastering-instagram-video-edges/"><u>[Updated] 2024 Approved Frame It Right Mastering Instagram Video Edges</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-mastering-the-art-of-filter-selection-on-instagram/"><u>[Updated] Mastering the Art of Filter Selection on Instagram</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-elevate-engagement-the-list-of-todays-hot-instagram-hashtags/"><u>2024 Approved Elevate Engagement The List of Today's Hot Instagram Hashtags</u></a></li>
-<li><a href="https://techtrends.techidaily.com/fixing-mfc42ddll-errors-comprehensive-tips-and-tricks-to-get-you-up-and-running/"><u>Fixing 'mfc42d.dll' Errors: Comprehensive Tips and Tricks to Get You Up & Running</u></a></li>
-<li><a href="https://win-reviews.techidaily.com/free-spotify-offline-access-a-step-by-step-tutorial-for-non-premium-users/"><u>Free Spotify Offline Access – A Step-by-Step Tutorial for Non-Premium Users</u></a></li>
-<li><a href="https://win-fantastic.techidaily.com/guide-ultime-copier-en-toute-securite-votre-ssd-vers-une-autre-version-sur-windows-lken-uniz-leit-sans-aucune-perte-dinformations/"><u>Guide Ultime : Copier en Toute Sécurité Votre SSD Vers Une Autre Version Sur Windows ˈlɪkʷen ٪Uːniz Leit - Sans Aucune Perte D'informations</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-share-location-in-messenger-on-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>How to Share Location in Messenger On Honor X50i+? | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/hannel-elevation-reach-youtube-affiliate-level-with-10k-views-for-2024/"><u>[New] Channel Elevation Reach YouTube Affiliate Level with 10K Views for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-your-instagram-memories-unchained-and-safe/"><u>[New] Your Instagram Memories, Unchained & Safe</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-your-pathway-to-perfect-igtv-footage-from-phone-to-dslr-for-2024/"><u>[New] Your Pathway to Perfect IGTV Footage From Phone to DSLR for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-enhance-your-storytelling-mastering-the-green-screen-on-instagram/"><u>[Updated] 2024 Approved Enhance Your Storytelling Mastering the Green Screen on Instagram</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-fast-track-your-feed-mastering-instagram-likes-and-vids-artistry/"><u>[Updated] In 2024, Fast-Track Your Feed Mastering Instagram Likes & Vids Artistry</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-securely-shutting-down-your-instagram-presence-forever-for-2024/"><u>[Updated] Securely Shutting Down Your Instagram Presence Forever for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-crafting-clear-and-consistent-slug-lines/"><u>2024 Approved Crafting Clear and Consistent Slug Lines</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-designing-captivating-instagram-feed-summaries/"><u>2024 Approved Designing Captivating Instagram Feed Summaries</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-premier-programs-designing-animated-3d-worlds/"><u>2024 Approved Premier Programs Designing Animated 3D Worlds</u></a></li>
+<li><a href="https://howto.techidaily.com/6-fixes-to-unfortunately-whatsapp-has-stopped-error-popups-on-meizu-21-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Fixes to Unfortunately WhatsApp has stopped Error Popups On Meizu 21 | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/exploring-superior-wallet-trackers-beyond-apple-and-tile-unveiled-by-zdnets-in-depth-testing/"><u>Exploring Superior Wallet Trackers Beyond Apple and Tile - Unveiled by ZDNET's In-Depth Testing!</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-expedited-guide-to-distinguishing-genuine-followers-on-instagram/"><u>In 2024, Expedited Guide to Distinguishing Genuine Followers on Instagram</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-the-complete-guide-to-motorola-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Complete Guide to Motorola FRP Bypass Everything You Need to Know</u></a></li>
+<li><a href="https://some-tips.techidaily.com/slashed-rates-for-bluetti-energy-units-available-now-uncover-hidden-savings-during-their-exclusive-summer-sale-revealed-by-zdnet/"><u>Slashed Rates for Bluetti Energy Units Available Now! Uncover Hidden Savings During Their Exclusive Summer Sale – Revealed by ZDNet</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/step-by-step-the-ultimate-guide-to-borders-on-insta-pics/"><u>Step-By-Step The Ultimate Guide to Borders on Insta Pics</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/tips-of-transferring-messages-from-oppo-reno-8t-5g-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Tips of Transferring Messages from Oppo Reno 8T 5G to iPhone 14/15 | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/top-4-sim-location-trackers-to-easily-find-your-lost-itel-s23plus-device-by-drfone-android/"><u>Top 4 SIM Location Trackers To Easily Find Your Lost Itel S23+ Device</u></a></li>
 </ul></div>
 
