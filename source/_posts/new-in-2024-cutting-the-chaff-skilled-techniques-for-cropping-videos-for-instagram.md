@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Cutting the Chaff  Skilled Techniques for Cropping Videos for Instagram\""
-date: 2025-01-19T09:42:31.435Z
-updated: 2025-01-19T20:21:26.574Z
+date: 2025-03-02T16:57:14.994Z
+updated: 2025-03-06T17:43:00.080Z
 tags:
   - ai video
   - ai instagram
@@ -49,17 +49,9 @@ In order to start cropping your videos, you first must install the Filmora video
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 2: Drag and Drop the video file onto the Timeline**
 
 ![](https://images.wondershare.com/filmora/article-images/video-editor-main-interface-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Now that the video clip you want to edit is in the editor's media library, drag it and drop it to the timeline.
 
@@ -71,29 +63,17 @@ Chances are that the camera you used to record your video clip recorded the foot
 
 ![check aspect ratio](https://images.wondershare.com/filmora/article-images/check-aspect-ratio.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Once the new window appears, you should click on the Format icon positioned in the upper left corner of the screen. Select the MP4 format, name your file and select the folder where the file will be exported.
 
 Click on the Settings button and then set the Quality of the video to Best and select the HD Optimized option in the Encoder menu. Choose the Resolution and Frame Rate that match the ones in your video and change the Bitrate in the Audio settings to 128 Kbps and hit OK.
 
 ![](https://images.wondershare.com/filmora/article-images/16-9-aspect-ratio-export.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **2\. Portrait (4:3)**
 
 In order to create a video that has a portrait aspect ratio, you need to crop it. You can do this by clicking on the **Crop and Pan tool**, located in the timeline tools. Use an [online aspect ratio calculator](https://calculateaspectratio.com/) to find the exact resolution that matches the portrait aspect ratio. Once you made the calculations return to Filmora and click on the Manually option in the Crop and Pan screen. Insert the numbers manually to resize the video.
 
 ![crop and zoom filmora](https://images.wondershare.com/filmora/article-images/crop-and-zoom-filmora.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Adjust the crop tool's position and click OK. The export process for landscape and portrait videos is nearly identical and the only thing you need to change is the resolution. Click on the Resolution drop-down menu and select the custom option and then enter the height and weight values you inserted in the cropping tool. Your portrait video is ready to be exported.
 
@@ -120,24 +100,20 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-behind-the-scenes-insights-for-instagram-story-audience/"><u>[New] 2024 Approved Behind the Scenes Insights for Instagram Story Audience</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-the-insta-ode-selecting-song-lyrics-and-beats-for-vids/"><u>[New] 2024 Approved The Insta-Ode Selecting Song Lyrics and Beats for Vids</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-enhance-post-impact-auto-adjusting-videos-for-instagram-on-mac-for-2024/"><u>[New] Enhance Post Impact Auto-Adjusting Videos for Instagram on Mac for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-how-to-add-music-to-instagram-story-in-2024/"><u>[New] How to Add Music to Instagram Story, In 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-effortless-keyword-harvesting-explore-the-best-7-no-fee-tag-extractors/"><u>[New] In 2024, Effortless Keyword Harvesting Explore the Best 7 No-Fee Tag Extractors</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-navigating-the-complexities-of-online-video-rights/"><u>[New] In 2024, Navigating the Complexities of Online Video Rights</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-vertical-video-magic-adjusting-instagram-feed-with-final-cut-pro-x/"><u>[New] In 2024, Vertical Video Magic Adjusting Instagram Feed with Final Cut Pro X</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-mastering-the-world-of-igs-reels-and-stories/"><u>[New] Mastering the World of IG’s Reels and Stories</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-the-ultimate-instagram-hashtag-guide-for-2024/"><u>[New] The Ultimate Instagram Hashtag Guide for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-the-animators-companion-expertly-reviewed-3d-modeling-software/"><u>[Updated] The Animator's Companion Expertly Reviewed 3D Modeling Software</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-insider-knowledge-instagrams-music-copyright-landscape-decoded/"><u>2024 Approved Insider Knowledge Instagram's Music Copyright Landscape Decoded</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-techniques-to-transfer-data-from-realme-12-5g-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Techniques to Transfer Data from Realme 12 5G to iPhone 15/14/13/12 | Dr.fone</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/artists-guide-safeguarding-masterpieces-against-copycat-ai-using-the-power-of-nightshade/"><u>Artists' Guide: Safeguarding Masterpieces Against Copycat AI Using the Power of Nightshade</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/discover-the-ultimate-tools-for-international-peak-level-mouse-usage/"><u>Discover the Ultimate Tools for International, Peak-Level Mouse Usage</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/instagram-stories-learn-to-modify-video-velocity-for-2024/"><u>Instagram Stories Learn to Modify Video Velocity for 2024</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-elevate-your-video-editing-game-top-premiere-pro-transition-plugins-for-2024/"><u>New Elevate Your Video Editing Game Top Premiere Pro Transition Plugins for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/pioneering-teams-changing-vrs-course/"><u>Pioneering Teams Changing VR's Course</u></a></li>
-<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-pictures-from-motorola-edgeplus-2023-by-fonelab-android-recover-pictures/"><u>Possible solutions to restore deleted pictures from Motorola Edge+ (2023).</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/unveiling-the-veil-insta-story-exploration-without-trace/"><u>Unveiling the Veil Insta Story Exploration without Trace</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-finding-sound-in-silence-3-cost-free-methods-to-music-enrich-your-videos/"><u>[New] 2024 Approved Finding Sound in Silence 3 Cost-Free Methods to Music-Enrich Your Videos</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-boosting-visuals-with-photoshops-motion-blur-effect-tutorial/"><u>[New] Boosting Visuals with Photoshop's Motion Blur Effect Tutorial</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-from-celluloid-to-screen-adapting-your-vids-for-ig-for-2024/"><u>[New] From Celluloid to Screen Adapting Your Vids for IG for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-step-by-step-guide-changing-voices-in-instagram-features/"><u>[New] Step-by-Step Guide Changing Voices in Instagram Features</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-understanding-instagrams-video-limit-policy-for-2024/"><u>[New] Understanding Instagram's Video Limit Policy for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-comprehensive-guide-to-adding-music-icons-in-instagram-posts/"><u>[Updated] 2024 Approved Comprehensive Guide to Adding Music Icons in Instagram Posts</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-frameful-fun-essential-tools-and-sites-for-photoframe-artistry/"><u>[Updated] 2024 Approved Frameful Fun Essential Tools and Sites for Photoframe Artistry</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-rhythmcapture-toolkit-a-critical-walkthrough/"><u>[Updated] In 2024, RhythmCapture Toolkit A Critical Walkthrough</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-the-science-behind-the-best-sized-videos-for-your-instagram-story/"><u>[Updated] In 2024, The Science Behind the Best-Sized Videos for Your Instagram Story</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-the-art-of-selling-through-influence-5-key-strategies-on-instagram/"><u>2024 Approved The Art of Selling Through Influence 5 Key Strategies on Instagram</u></a></li>
+<li><a href="https://windows11.techidaily.com/enhancing-wi-fi-setup-accuracy-ensuring-complete-actions/"><u>Enhancing Wi-Fi Setup Accuracy: Ensuring Complete Actions</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-pause-life360-location-sharing-for-samsung-galaxy-a05s-drfone-by-drfone-virtual-android/"><u>In 2024, How To Pause Life360 Location Sharing For Samsung Galaxy A05s | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-stream-instagram-and-youtube-a-step-by-step-guide/"><u>In 2024, Stream Instagram & YouTube A Step-by-Step Guide</u></a></li>
+<li><a href="https://driver-install.techidaily.com/refresh-windows-graphics-focus-on-acer-drivers/"><u>Refresh Windows Graphics, Focus on Acer Drivers</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1650264-9781780991160-throw-away-your-loincloth/"><u>Throw Away Your Loincloth | Free Book</u></a></li>
 </ul></div>
 

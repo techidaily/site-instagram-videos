@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Analyzing Instagram De-Followings\""
-date: 2025-02-14T00:32:15.442Z
-updated: 2025-02-18T00:05:13.840Z
+date: 2025-02-28T18:30:04.103Z
+updated: 2025-03-06T18:37:19.087Z
 tags:
   - ai video
   - ai instagram
@@ -50,10 +50,6 @@ Now, look at the following box in the profile of the person you want to check ma
 
 ![Instagram following list](https://images.wondershare.com/filmora/article-images/instagram-following-list.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3: Search the name**
 
 Go to the **Search bar** and search the person by that person's username. This will tell whether the person is following you or not as well.
@@ -80,10 +76,6 @@ Open the Instagram app and go to **Profile.** You need to select the **three hor
 
 ![Instagram Security Option](https://images.wondershare.com/filmora/article-images/instagram-security-option.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 2: Download Data and Information from Instagram**
 
 Now, you have to tap on **Download Data** from the panel, and a confirmation window will appear, tap on Download Data again. Instagram will email a copy of your data to you in about 48 hours. You need to download the data from there.
@@ -99,10 +91,6 @@ Now, you have to tap on **Download Data** from the panel, and a confirmation win
 Open [ListDiff.com](http://www.listdiff.com/) and paste the data copied from **Followers.html in list A and Follwing.html in list B.** Now click on **Compare Lists.** Once the results are generated, **sort** them from A to Z, and at the bottom of **list B,** you will get to know the accounts that have unfollowed you.
 
 ![compare  Instagram follower list](https://images.wondershare.com/filmora/article-images/compare-instagram-followers-following-list-listdiff.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 For the detailed information about checking who unfollowed you on Instagram 2021, you can watch the video tutorial made by YouTuber Ben Leavitt below.
 
@@ -136,10 +124,6 @@ It offers its premium version for $4.99 a month, $17.99 per 6 months, and $24.99
 Follower Tracker Pro works as a tracker of Instagram followers. You have to sign in to your Instagram account once you have downloaded the app. After that, a menu will appear where you have the options to see the lists of accounts that have unfollowed you, followers, new followers, and the people who are not following you back.
 
 ![Followers Trackers Pro](https://images.wondershare.com/filmora/article-images/tracker-pro-followers-reports.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 You can tap on one of these options to see the list. And despite having a "pro" in its name, this app is free to download. It updates multiple times a month to keep its drivers up-to-date.
 
@@ -203,10 +187,6 @@ If you are not staying active for whatever reason, there's a high chance people 
 
 Start engaging with your follower, reply to their comments on your posts with interactive stickers. Otherwise, they would think that you are rude and will start unfollowing you. Also, try to engage on their posts as well.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### FAQs about Instagram Followers Tracking
 
 #### 1\. Are you notified if someone unfollows you on Instagram?
@@ -223,10 +203,6 @@ To hide your content from someone on Instagram, you will have to go to their Pro
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -242,16 +218,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-instasaver-the-leading-videophoto-downloaders-round-up/"><u>[New] 2024 Approved InstaSaver The Leading Video/Photo Downloaders Round-Up</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-textual-amplification-for-igtv-broadcasts/"><u>[New] In 2024, Textual Amplification for IGTV Broadcasts</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-instagram-edition-the-finest-picture-fixers/"><u>[New] Instagram Edition The Finest Picture Fixers</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-effortless-sound-transformation-from-youtube-to-wav-format/"><u>[Updated] 2024 Approved Effortless Sound Transformation From YouTube to WAV Format</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-no-fuss-tactics-for-saving-vimeo-footage/"><u>[Updated] In 2024, No-Fuss Tactics for Saving Vimeo Footage</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-make-your-instagram-content-explosive-a-guide-to-virality/"><u>2024 Approved Make Your Instagram Content Explosive A Guide to Virality</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/high-definition-bmw-e46-m3-gtr-desktop-backgrounds-and-walls-premium-visual-content-by-yl-computing/"><u>High-Definition BMW E46 M3 GTR Desktop Backgrounds and Walls: Premium Visual Content by YL Computing</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/image-isolation-pro-eliminate-backgrounds-in-affinity/"><u>Image Isolation Pro Eliminate Backgrounds in Affinity</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-can-life360-track-you-when-your-nokia-g310-is-off-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track You When Your Nokia G310 is off? | Dr.fone</u></a></li>
-<li><a href="https://fox-that.techidaily.com/troubleshoot-airdrop-issues-quickly-discover-16-essential-solutions/"><u>Troubleshoot AirDrop Issues Quickly: Discover 16 Essential Solutions!</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/vizio-tv-wi-fi-connection-issues-heres-how-you-can-solve-them/"><u>Vizio TV Wi-Fi Connection Issues? Here's How You Can Solve Them</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-decoding-instagrams-verification-system/"><u>[New] In 2024, Decoding Instagram's Verification System</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-downloader-essentials-the-best-tools-for-offline-viewing/"><u>[Updated] 2024 Approved Downloader Essentials The Best Tools For Offline Viewing</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-supercharge-your-account-top-10-instagram-must-haves/"><u>[Updated] 2024 Approved Supercharge Your Account Top 10 Instagram Must-Haves</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-earn-big-on-insta-ranking-top-money-makers-for-2024/"><u>[Updated] Earn Big on Insta Ranking Top Money Makers for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-integrating-text-overlays-into-social-media-streaming/"><u>[Updated] Integrating Text Overlays Into Social Media Streaming</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-the-art-of-duality-mastering-image-turnover-on-social-media-giants/"><u>2024 Approved The Art of Duality Mastering Image Turnover on Social Media Giants</u></a></li>
+<li><a href="https://win-luxury.techidaily.com/1728489795728-onedrive/"><u>一項全面指南：從OneDrive中重新複製並復原已移除的文件 - 四大技巧</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/astuces-pour-transformer-votre-dvd-en-hevch235-mp4-gratuitement-avec-maitrise-de-la-qualite/"><u>Astuces Pour Transformer Votre DVD en HEVC/H.235 MP4 Gratuitement, Avec Maîtrise De La Qualité?</u></a></li>
+<li><a href="https://discover-cheats.techidaily.com/bypass-downvids-errors-effective-strategies-for-resolving-non-responsive-downvids/"><u>Bypass Downvids Errors: Effective Strategies for Resolving Non-Responsive Downvids</u></a></li>
+<li><a href="https://win-hacks.techidaily.com/comprehensive-guide-on-retrieving-lost-data-volumes-across-windows-operating-systems-11-10-8-and-cuisine-7/"><u>Comprehensive Guide on Retrieving Lost Data Volumes Across Windows Operating Systems (11, 10, 8 & Cuisine 7)</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/conquer-the-controller-xbox-one-screenshot-basics/"><u>Conquer the Controller Xbox One Screenshot Basics</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/decoding-the-eu-ai-act-and-chatgpts-future/"><u>Decoding the EU AI Act & ChatGPT's Future</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-of-samsung-galaxy-tab-a-2020-identifying-whats-not-there/"><u>In-Depth Review of Samsung Galaxy Tab A 2020 - Identifying What’s Not There</u></a></li>
+<li><a href="https://win11.techidaily.com/overcoming-insufficient-rights-for-program-removal-in-win-11/"><u>Overcoming Insufficient Rights for Program Removal in Win 11</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/the-essential-guide-to-tracking-igtv-viewership-metrics-for-2024/"><u>The Essential Guide to Tracking IGTV Viewership Metrics for 2024</u></a></li>
 </ul></div>
 

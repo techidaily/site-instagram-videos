@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Crafting Captivating IGTV Cover Photos (Thumbnails)"
-date: 2025-02-15T02:31:26.774Z
-updated: 2025-02-17T23:42:04.187Z
+date: 2025-03-02T19:12:24.436Z
+updated: 2025-03-06T17:35:31.499Z
 tags:
   - ai video
   - ai instagram
@@ -31,10 +31,6 @@ There are so many different things you need to pay attention to when sharing new
 * Part 2: How to Create a Cover Photo for Your IGTV Channel?
 * Part 3: Bonus! Edit Your IGTV Video with Filmora
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: Dimensions and Specifications for Cover Photos on IGTV
 
 IGTV is centered around the idea that people hold their phones vertically while watching videos, and for that reason, all videos on this platform are in the **9:16 aspect ratio**. Hence the cover photos you can add to your IGTV videos have to be **vertically oriented** as well, and if you would like to prevent IGTV from cropping your cover photo, you need to make sure that the picture matches the platform’s specifications. If you follow these specifications the cover photos for your IGTV videos are going to look equally good inside the IGTV app, the Instagram.com website, Instagram app search grid or Instagram app search feed.
@@ -47,15 +43,7 @@ The images you use as cover photos for your videos will be displayed in differen
 
 ![IGTV Cover Photo Safe Zone ](https://images.wondershare.com/filmora/article-images/igtv-cover-photo-dimensions.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 While creating a cover photo for an IGTV video you need to keep in mind that different graphics and text overlays are going to be displayed over the picture once you upload it to your channel. During the process of uploading IGTV video’s cover photo, you will be able to add text to it, but the **Title Safe Area** suggests where you can place the text without the risk of it being cropped while being viewed from different devices won’t be shown. So, make sure that all text you add to your IGTV video cover photo is **placed in the central area of the image** in order for it to be clearly visible on all devices.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: How to Create a Cover Photo for Your IGTV Channel?
 
@@ -65,10 +53,6 @@ Adding a cover photo to your IGTV video is easy since you just have **to upload 
 
 Learn more details about [How to edit IGTV videos with best app on mobile](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3: Bonus! Edit Your IGTV Video with Filmora
 
 Now that you have learned about how to create an attractive IGTV thumbnail, don't let it get wasted! Create a video that is as attractive as your thumbnail with Filmora.
@@ -76,10 +60,6 @@ Now that you have learned about how to create an attractive IGTV thumbnail, don'
 Filmora is a video editing software for people at different levels. Should you be a beginner or skilled editor, Filmora is the software for you. Here is a video about how to edit IGTV with Filmora, check it out!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Conclusion**
 
@@ -102,22 +82,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-cut-trim-and-enhance-leading-apps-for-android-and-pc-editing/"><u>[New] 2024 Approved Cut, Trim & Enhance Leading Apps for Android and PC Editing</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/mplify-your-voice-on-youtube-mastery-through-tubebuddy/"><u>[New] Amplify Your Voice on YouTube - Mastery Through TubeBuddy</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/et-smart-with-your-youtube-thumbnails-using-a-mac/"><u>[New] Get Smart with Your YouTube Thumbnails, Using a Mac</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/new-step-by-step-guide-to-professional-youtube-live-broadcast-with-wirecast/"><u>[New] Step-by-Step Guide to Professional YouTube Live Broadcast with WireCast</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-the-best-strategies-for-saving-igtv-videos-mobilely-for-2024/"><u>[New] The Best Strategies for Saving IGTV Videos Mobilely for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-from-novice-to-pro-your-complete-guide-to-instagrams-latest-feature-reels/"><u>[Updated] 2024 Approved From Novice to Pro – Your Complete Guide to Instagram's Latest Feature, Reels</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-lost-legacies-found-revelations-from-the-canon-of-classical-works/"><u>[Updated] In 2024, Lost Legacies Found Revelations From the Canon of Classical Works</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-spins-that-stun-the-ultimate-manual-for-flipping-photos-on-instagram-platforms/"><u>[Updated] Spins That Stun The Ultimate Manual for Flipping Photos on Instagram Platforms</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-leveraging-popularity-a-comprehensive-guide-to-instagram-influencer-advertising/"><u>2024 Approved Leveraging Popularity A Comprehensive Guide to Instagram Influencer Advertising</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-the-powerhouse-analyzing-the-performance-of-lg-ud88-w-hdtv/"><u>2024 Approved The Powerhouse Analyzing the Performance of LG UD88-W HDTV</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/curated-insta-photos-in-slideshow-for-2024/"><u>Curated Insta Photos in Slideshow for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/discover-the-best-audible-mp3-players-of-the-year-top-5-picks-for-audiophiles/"><u>Discover the Best Audible MP3 Players of the Year: Top 5 Picks for Audiophiles</u></a></li>
-<li><a href="https://common-error.techidaily.com/error-on-your-origin-game-follow-these-steps-to-correct-the-setup-and-enjoy/"><u>Error on Your Origin Game? Follow These Steps to Correct the Setup & Enjoy!</u></a></li>
-<li><a href="https://fox-shield.techidaily.com/guide-complet-pour-deplacer-vos-commentaires-de-foxmail-vers-un-fichier-pst-explication-etape-a-etape/"><u>Guide Complet Pour Déplacer Vos Commentaires De Foxmail Vers Un Fichier PST : Explication Étape À Étape</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/illuminating-imagery-mastering-three-key-insta-hits/"><u>Illuminating Imagery Mastering Three Key Insta Hits</u></a></li>
-<li><a href="https://network-issues.techidaily.com/mastering-windows-gameplay-with-fixed-video-card-drivers/"><u>Mastering Windows Gameplay with Fixed Video Card Drivers</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/top-ranked-comedic-image-editor/"><u>Top-Ranked Comedic Image Editor</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nhance-productions-no-cost-sounds-available-for-2024/"><u>[New] Enhance Productions No-Cost Sounds Available for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-your-personal-igtv-channel-guide-for-inspiration/"><u>[New] In 2024, Your Personal IGTV Channel Guide for Inspiration</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-insta-twist-techniques-for-tailoring-your-photos-on-the-fly/"><u>[New] Insta-Twist Techniques for Tailoring Your Photos on the Fly</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-instagram-gif-mastery-your-quick-guide-to-uploads-and-sharing/"><u>[New] Instagram GIF Mastery Your Quick Guide to Uploads and Sharing</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-budget-gaming-setup-find-the-best-keyboards-for-less/"><u>[Updated] Budget Gaming Setup Find the Best Keyboards for Less</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-ultimate-collection-of-favorite-ig-after-effects-plugins/"><u>[Updated] The Ultimate Collection of Favorite IG After Effects Plugins</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-instagram-enterprise-account-the-complete-guidebook/"><u>2024 Approved Instagram Enterprise Account The Complete Guidebook</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-the-instagram-insiders-guide-to-dynamic-story-quizzes/"><u>2024 Approved The Instagram Insider's Guide to Dynamic Story Quizzes</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/can-i-recover-permanently-deleted-photos-from-samsung-galaxy-s23plus-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>Can I recover permanently deleted photos from Samsung Galaxy S23+</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/diagnosing-and-fixing-non-working-headphones-compatibility-with-windows-nix/"><u>Diagnosing and Fixing Non-Working Headphones Compatibility with Windows Nix</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-becoming-a-final-cut-pro-expert-your-quick-reference/"><u>In 2024, Becoming a Final Cut Pro Expert – Your Quick Reference</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-bridging-gaps-between-vision-and-execution-in-filmora-editing/"><u>In 2024, Bridging Gaps Between Vision and Execution in Filmora Editing</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-is-pgsharp-legal-when-you-are-playing-pokemon-on-samsung-galaxy-s21-fe-5g-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Is pgsharp legal when you are playing pokemon On Samsung Galaxy S21 FE 5G (2023)? | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-mastering-the-art-of-shortening-videos-for-instagram-mac/"><u>In 2024, Mastering the Art of Shortening Videos for Instagram (Mac)</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-the-art-of-slow-motion-a-guide-for-instagrams-next-viral-reels/"><u>In 2024, The Art of Slow-Motion A Guide for Instagram's Next Viral Reels</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/insta-unfollow-a-path-towards-a-lasting-account-discontinuation-for-2024/"><u>Insta Unfollow A Path Towards a Lasting Account Discontinuation for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/openais-chatgpt-now-available-on-apple-devices-iphone-ipad-mac-technewszdnet/"><u>OpenAI's ChatGPT Now Available on Apple Devices (iPhone, iPad, Mac) | TechNewsZDNET</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/quick-steps-to-change-weather-location-on-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>Quick Steps to Change Weather Location on Apple iPhone 11 | Dr.fone</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/win10-monitor-settlement-completed/"><u>Win10 Monitor Settlement Completed</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] SnapSizeSecrets  Perfecting Photo and Video Sizes in Instagram\""
-date: 2025-02-12T20:04:18.040Z
-updated: 2025-02-18T01:21:49.074Z
+date: 2025-03-03T16:08:21.976Z
+updated: 2025-03-06T18:09:17.690Z
 tags:
   - ai video
   - ai instagram
@@ -29,10 +29,6 @@ Taking photos with iPhones and Android Smartphones and posting them to Instagram
 
 Troubles begin when you want to upload photos and videos that weren't captured with a Smartphone to Instagram. In most cases, the photos and videos produced by DSLR cameras and other semi-professional and professional equipment are much larger than the sizes supported by Instagram. That is the reason why we created this guide that will help you post visual content that is perfectly adjusted to Instagram in 2021.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Types of Files Accepted by Instagram
 
 The first thing you need to pay attention to when uploading images and videos to Instagram is that the files you are uploading are in one of the photo or video formats that Instagram supports.
@@ -49,10 +45,6 @@ Duration of Videos on Instagram
 
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Best Image Sizes for Instagram Posts
 
 A couple of years ago, Instagram has finally allowed its users to upload images that aren't square shaped. In 2021, you can also upload horizontally and vertically oriented photos in addition to the standard square shape. However, in order to create a perfect Instagram post, and prevent the platform from cropping your photos you need to use the Instagram image sizes featured below.
@@ -60,10 +52,6 @@ A couple of years ago, Instagram has finally allowed its users to upload images 
 #### Instagram's Main Feed
 
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
 
@@ -89,10 +77,6 @@ The profile pictures on Instagram are tiny, and the optimum size for them is 160
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -108,15 +92,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-hints.techidaily.com/updated-10-best-no-cost-live-streaming-tools-android-and-iphone-guide/"><u>[Updated] 10 Best No-Cost Live Streaming Tools Android & iPhone Guide</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-engage-inspire-convert-strategizing-for-impactful-instavideo-content/"><u>[Updated] In 2024, Engage, Inspire, Convert Strategizing for Impactful InstaVideo Content</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-ultimate-4k-gaming-setup-top-10-laptop-guide/"><u>[Updated] In 2024, Ultimate 4K Gaming Setup - Top 10 Laptop Guide</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-top-10-igtv-channels-you-should-start-following-for-2024/"><u>[Updated] Top 10 IGTV Channels You Should Start Following for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-try-this-groundbreaking-free-valorant-audio-swap-tech-for-2024/"><u>[Updated] Try This Groundbreaking, Free Valorant Audio Swap Tech for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-a-motorola-defy-2-easily-by-drfone-android/"><u>In 2024, How To Unlock a Motorola Defy 2 Easily?</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-top-25-hashtags-that-will-make-you-a-social-media-star-on-instagram/"><u>In 2024, Top 25 Hashtags That Will Make You a Social Media Star on Instagram</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/innovative-electronics-uncovered-by-toms-hardware-hub/"><u>Innovative Electronics Uncovered by Tom's Hardware Hub</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/instagram-video-collage-app-for-androidandios/"><u>Instagram Video Collage App for Android&iOS</u></a></li>
-<li><a href="https://games-able.techidaily.com/the-top-5-frustrating-foddian-games-to-test-your-skills/"><u>The Top 5 Frustrating Foddian Games to Test Your Skills</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-enhancing-viewer-experience-vertical-videos-in-final-cut-pro-x/"><u>[New] In 2024, Enhancing Viewer Experience Vertical Videos in Final Cut Pro X</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-tiletime-effortless-video-mosaics-on-both-oses/"><u>[New] In 2024, TileTime Effortless Video Mosaics on Both OSes</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-unlockingluxurycameratech-post-mycam-for-2024/"><u>[New] UnlockingLuxuryCameraTech Post-MyCam for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-your-personal-igtv-channel-guide-for-inspiration/"><u>[New] Your Personal IGTV Channel Guide for Inspiration</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-a-beginners-guide-to-starting-a-professional-account-on-ig/"><u>[Updated] 2024 Approved A Beginner's Guide to Starting a Professional Account on IG</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-the-instagram-essentials-seamlessly-adding-a-gallery-of-images-and-videos/"><u>[Updated] In 2024, The Instagram Essentials Seamlessly Adding a Gallery of Images and Videos</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-unveiling-the-power-of-azure-voice-recognition-api/"><u>2024 Approved Unveiling the Power of Azure Voice Recognition API</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/how-to-optimize-video-files-for-android-devices-a-comprehensive-format-conversion-tutorial/"><u>How to Optimize Video Files for Android Devices: A Comprehensive Format Conversion Tutorial</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-iphone-6-data-from-ios-itunes-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How to Recover iPhone 6 Data From iOS iTunes? | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-remove-and-reset-face-id-on-iphone-7-plus-drfone-by-drfone-ios/"><u>How to Remove and Reset Face ID on iPhone 7 Plus | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-8-to-android-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 8 To Android? | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-revolutionizing-vr-experiences-with-newest-game-engines/"><u>In 2024, Revolutionizing VR Experiences with Newest Game Engines</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-top-20-zero-cost-pubg-visual-anthologies/"><u>In 2024, Top 20 Zero-Cost PUBG Visual Anthologies</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/resolved-fixing-mount-and-blade-ii-bannerlords-crashing-issues/"><u>Resolved: Fixing Mount & Blade II: Bannerlord's Crashing Issues</u></a></li>
 </ul></div>
 

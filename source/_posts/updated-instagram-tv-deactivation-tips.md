@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Instagram TV Deactivation Tips"
-date: 2025-01-14T08:27:16.742Z
-updated: 2025-01-20T10:08:02.390Z
+date: 2025-03-03T18:05:07.635Z
+updated: 2025-03-06T16:44:06.974Z
 tags:
   - ai video
   - ai instagram
@@ -27,19 +27,11 @@ thumbnail: https://thmb.techidaily.com/67bd9eb22eb0b577554d0f90d5db30aca97e4f163
 
  There is nothing more frustrating than receiving notifications about posts on social media you have zero interest in. Fortunately for all of us, turning off notifications is a quick and simple process that can be completed in just a few clicks or taps. IGTV, Instagram’s latest mobile video platform is no exception, and if you decide to use it, you will occasionally stumble upon the content you don’t necessarily like and you will receive notifications about posts that really have nothing to do with your interests. In case you are looking for a way to get rid of IGTV suggestions, you’ve come to the right place because in this article we are going to show you how to hide videos you don’t want to see and how to switch off notifications.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Turn Off IGTV Notifications on Instagram
 
  Preventing IGTV notifications from bothering you while you are scrolling down your Instagram feed requires a minimum amount of effort. You just have to **launch the Instagram app** and then once the app opens, you should tap on **the profile icon** that is located in the bottom right corner. Upon arriving at your Instagram profile page, you will be able to see **the hamburger icon** in the top right corner. Tapping on the hamburger icon will grant you access to a menu that contains options such as **Your Activity, Nametag or Saved**. At the very bottom of this menu, you’ll spot the **Settings icon**, tap on it and after the **Settings menu opens** tap on the **Notifications icon**.
 
  Select the **Push Notifications option**, and then scroll all the way down to the **IGTV Video Updates section** of the Push Notifications menu. Tap on the **Off** option, and you’re done, you’ll no longer receive notifications from IGTV. If at any point you change your mind and you decide that you want to receive notifications from IGTV you can return to the Push Notifications menu and select the **From People I Follow** or **From Everyone** option in the IGTV Video Update section of the Push Notifications menu.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Hide IGTV Videos?
 
@@ -54,10 +46,6 @@ thumbnail: https://thmb.techidaily.com/67bd9eb22eb0b577554d0f90d5db30aca97e4f163
  Optimizing IGTV in accordance with your interests and tastes doesn’t require much effort, as you can easily hide or report IGTV videos you don’t want to interact with. Moreover, you can get rid of IGTV notifications in case they interrupt you too often while you are browsing through your Instagram feed. Hopefully, this article will help make the experience of using IGTV more enjoyable for you.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -74,21 +62,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-building-an-audience-on-ig-steps-to-reach-1k-in-one-month/"><u>[New] In 2024, Building an Audience on IG Steps to Reach 1K in One Month</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-efficient-utilization-of-whiteboard-features-in-zoom-meetings/"><u>[Updated] In 2024, Efficient Utilization of Whiteboard Features in Zoom Meetings</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-masterclass-in-instagram-story-downloads-and-creation/"><u>[Updated] In 2024, Masterclass in Instagram Story Downloads & Creation</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-spice-up-stories-tailored-creative-qandas-for-users/"><u>[Updated] In 2024, Spice Up Stories Tailored Creative Q&As for Users</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/elite-highlight-extravaganza-iosandroid-instagram-coverage-tools/"><u>Elite Highlight Extravaganza IOS/Android Instagram Coverage Tools</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/facilmente-arreglar-un-mp4-danado-solucion-libre-para-reparacion-de-videos-sin-costo-ni-esfuerzo/"><u>Fácilmente Arreglar Un MP4 Dañado: Solución Libre Para Reparación De Videos Sin Costo Ni Esfuerzo</u></a></li>
-<li><a href="https://win-cheats.techidaily.com/gratuito-conversor-de-video-em-mp4-para-aac-online-pela-movavi/"><u>Gratuito Conversor De Vídeo Em MP4 Para AAC Online Pela Movavi</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-android-unlock-code-sim-unlock-your-tecno-spark-20-pro-phone-and-remove-locked-screen-by-drfone-android/"><u>In 2024, Android Unlock Code Sim Unlock Your Tecno Spark 20 Pro Phone and Remove Locked Screen</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-best-instagram-highlight-cover-maker-online/"><u>In 2024, Best Instagram Highlight Cover Maker Online</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-xiaomi-redmi-note-12-proplus-5g-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Xiaomi Redmi Note 12 Pro+ 5G Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/mac-methods-for-cleaner-instagram-video-edits/"><u>Mac Methods for Cleaner Instagram Video Edits</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/reach-new-heights-on-igtv-top-tactics-for-expanding-your-audience/"><u>Reach New Heights on IGTV Top Tactics for Expanding Your Audience</u></a></li>
-<li><a href="https://games-able.techidaily.com/1719170052391-swift-storage-switcheroo-clone-and-upgrade-your-deck-now/"><u>Swift Storage Switcheroo: Clone & Upgrade Your Deck Now!</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/the-ultimate-guide-why-choosing-an-affordable-smartphone-prop-is-key-for-every-tech-enthusiast/"><u>The Ultimate Guide: Why Choosing an Affordable Smartphone Prop Is Key for Every Tech Enthusiast</u></a></li>
-<li><a href="https://fox-zero.techidaily.com/troubleshooting-sound-glitches-in-video-gaming-strategies-from-yl-software-experts/"><u>Troubleshooting Sound Glitches in Video Gaming: Strategies From YL Software Experts</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/cr2-bmp-movavi/"><u>무료 CR2 포트에서 BMP로의 단속: Movavi 방법 – 온라인 스위프트 기사</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-timing-and-frequency/"><u>[New] Timing and Frequency</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-toggle-off-instagram-tv-feature/"><u>[Updated] 2024 Approved Toggle Off Instagram TV Feature</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-a-closer-look-at-huawei-p10s-security-measures/"><u>[Updated] A Closer Look at Huawei P10’s Security Measures</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-disabling-automated-podcast-suggestions-for-privacy/"><u>[Updated] Disabling Automated Podcast Suggestions for Privacy</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-the-ultimate-way-to-update-old-photos-and-videos-with-ig-filters/"><u>[Updated] In 2024, The Ultimate Way to Update Old Photos and Videos with IG Filters</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-pioneering-soundtracks-for-stellar-instagram-reels-for-2024/"><u>[Updated] Pioneering Soundtracks for Stellar Instagram Reels for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-oneplus-nord-n30-5g-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For OnePlus Nord N30 5G | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/coding-the-future-how-ai-redefines-game-design/"><u>Coding the Future: How AI Redefines Game Design</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-can-we-bypass-realme-narzo-n55-frp-by-drfone-android/"><u>In 2024, How Can We Bypass Realme Narzo N55 FRP?</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-novices-guide-to-prime-gopro-extras/"><u>In 2024, Novice's Guide to Prime GoPro Extras</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-the-ultimate-tracker-gauging-youtube-popularity-for-financial-insights/"><u>In 2024, The Ultimate Tracker Gauging YouTube Popularity for Financial Insights</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-the-untold-chronicles-adventures-in-antique-literature/"><u>In 2024, The Untold Chronicles Adventures in Antique Literature</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-top-7-instagram-money-sources-a-comprehensive-guide/"><u>In 2024, Top 7 Instagram Money Sources - A Comprehensive Guide</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/navigating-through-unresponsive-powershell-in-windows/"><u>Navigating Through Unresponsive PowerShell in Windows</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/rhythm-revelations-mastering-music-for-visual-storytelling/"><u>Rhythm Revelations Mastering Music for Visual Storytelling</u></a></li>
 </ul></div>
 

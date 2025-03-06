@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Building Immersive Thumbnails for IGTV Videos"
-date: 2025-02-16T23:40:12.739Z
-updated: 2025-02-17T17:21:53.596Z
+date: 2025-02-28T16:39:59.563Z
+updated: 2025-03-06T17:38:13.593Z
 tags:
   - ai video
   - ai instagram
@@ -31,10 +31,6 @@ There are so many different things you need to pay attention to when sharing new
 * Part 2: How to Create a Cover Photo for Your IGTV Channel?
 * Part 3: Bonus! Edit Your IGTV Video with Filmora
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: Dimensions and Specifications for Cover Photos on IGTV
 
 IGTV is centered around the idea that people hold their phones vertically while watching videos, and for that reason, all videos on this platform are in the **9:16 aspect ratio**. Hence the cover photos you can add to your IGTV videos have to be **vertically oriented** as well, and if you would like to prevent IGTV from cropping your cover photo, you need to make sure that the picture matches the platform’s specifications. If you follow these specifications the cover photos for your IGTV videos are going to look equally good inside the IGTV app, the Instagram.com website, Instagram app search grid or Instagram app search feed.
@@ -47,10 +43,6 @@ The images you use as cover photos for your videos will be displayed in differen
 
 ![IGTV Cover Photo Safe Zone ](https://images.wondershare.com/filmora/article-images/igtv-cover-photo-dimensions.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 While creating a cover photo for an IGTV video you need to keep in mind that different graphics and text overlays are going to be displayed over the picture once you upload it to your channel. During the process of uploading IGTV video’s cover photo, you will be able to add text to it, but the **Title Safe Area** suggests where you can place the text without the risk of it being cropped while being viewed from different devices won’t be shown. So, make sure that all text you add to your IGTV video cover photo is **placed in the central area of the image** in order for it to be clearly visible on all devices.
 
 ## Part 2: How to Create a Cover Photo for Your IGTV Channel?
@@ -61,10 +53,6 @@ Adding a cover photo to your IGTV video is easy since you just have **to upload 
 
 Learn more details about [How to edit IGTV videos with best app on mobile](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3: Bonus! Edit Your IGTV Video with Filmora
 
 Now that you have learned about how to create an attractive IGTV thumbnail, don't let it get wasted! Create a video that is as attractive as your thumbnail with Filmora.
@@ -73,19 +61,11 @@ Filmora is a video editing software for people at different levels. Should you b
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Conclusion**
 
 A small and seemingly insignificant detail like a cover photo of an IGTV video can be far more important for the video’s success on social networks than you’d expect. A cover photo can often be a reason why people choose to watch a video since it can spark their curiosity or attract their attention by suggesting what the video is about. Do you think that **IGTV cover photos** can help increase the number of views a video is getting? Leave a comment below and share your opinions with us.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -102,17 +82,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-top-25-hashtags-that-will-make-you-a-social-media-star-on-instagram/"><u>[New] 2024 Approved Top 25 Hashtags That Will Make You a Social Media Star on Instagram</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-explore-best-15-cost-free-photo-editors/"><u>[New] Explore Best 15 Cost-Free Photo Editors</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-optimizing-your-fb-video-upload-journey-from-pc-plus-android-for-2024/"><u>[New] Optimizing Your FB Video Upload Journey From PC + Android for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-subtract-and-add-quick-srt-to-sub/"><u>[New] Subtract and Add Quick SRT to SUB</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-techniques-for-text-overlays-in-igtv-content-for-2024/"><u>[New] Techniques for Text Overlays in IGTV Content for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-ultimate-live-setting-picks-for-2024/"><u>[New] Ultimate Live Setting Picks for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-filmmaking-for-social-media-imovie-tips-for-crafting-square-content-for-2024/"><u>[Updated] Filmmaking for Social Media IMovie Tips for Crafting Square Content for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-real-vs-fake-quick-ways-to-audit-your-insta-circle/"><u>2024 Approved Real Vs. Fake Quick Ways to Audit Your Insta Circle</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/advance-your-digital-dialogue-5-essential-strategies-for-optimal-chatgpt-engagement/"><u>Advance Your Digital Dialogue: 5 Essential Strategies for Optimal ChatGPT Engagement</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/from-theory-to-practice-seven-practical-ways-chatgpt-is-being-utilized-today/"><u>From Theory to Practice: Seven Practical Ways ChatGPT Is Being Utilized Today</u></a></li>
-<li><a href="https://howto.techidaily.com/gmail-not-working-on-motorola-edge-40-neo-7-common-problems-and-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Gmail Not Working on Motorola Edge 40 Neo 7 Common Problems & Fixes | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-samsung-galaxy-s23plus-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Samsung Galaxy S23+? | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-navigating-new-skies-with-syma-x5c-an-experts-take-for-novices/"><u>[New] In 2024, Navigating New Skies with Syma X5C – An Expert’s Take for Novices</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-melody-in-motion-iphones-role-in-making-music-videos/"><u>[New] Melody in Motion IPhone's Role in Making Music Videos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-navigating-the-spin-a-step-by-step-instagram-video-reversal-guide-for-2024/"><u>[New] Navigating the Spin A Step-by-Step Instagram Video Reversal Guide for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-sneak-peeks-into-instagrams-latest-hacks-for-2024/"><u>[New] Sneak Peeks Into Instagram's Latest Hacks for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-understanding-sns-hdr-pros-role-in-hdr-editing/"><u>[New] Understanding SNS HDR Pro's Role in HDR Editing</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-rhythm-rulers-elevating-instagram-posts-with-songs/"><u>[Updated] 2024 Approved Rhythm Rulers Elevating Instagram Posts with Songs</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-secure-apps-for-hidden-instagram-stories/"><u>[Updated] 2024 Approved Secure Apps for Hidden Instagram Stories</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-aesthetic-assembly-android-and-ios-video-sets-for-insta-for-2024/"><u>[Updated] Aesthetic Assembly Android & iOS Video Sets for Insta for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-decode-the-past-comprehensive-tutorial-for-inverting-image-searches-on-instagram/"><u>[Updated] Decode the Past Comprehensive Tutorial for Inverting Image Searches on Instagram</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-essential-tips-streamline-mac-screen-captures-using-keyboard-tricks-for-2024/"><u>[Updated] Essential Tips Streamline Mac Screen Captures Using Keyboard Tricks for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-expert-tips-for-instagram-green-screen-shoots-for-2024/"><u>[Updated] Expert Tips for Instagram Green Screen Shoots for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-in-depth-look-at-frozen-delight-recording-software/"><u>[Updated] In 2024, In-Depth Look at Frozen Delight Recording Software</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-in-2024-perfecting-chat-engagement-the-art-of-pinning-messages-in-discord/"><u>[Updated] In 2024, Perfecting Chat Engagement The Art of Pinning Messages in Discord</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-unlocking-instagram-memories-with-these-apps-for-2024/"><u>[Updated] Unlocking Instagram Memories with These Apps for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-enhance-your-shorts-fresh-and-original-thumbnails-with-minimal-effort/"><u>2024 Approved Enhance Your Shorts Fresh and Original Thumbnails with Minimal Effort</u></a></li>
+<li><a href="https://win-net.techidaily.com/accelerate-system-responsiveness-masterclass-techniques-for-superior-computer-speed-and-functionality-by-yl-computing/"><u>Accelerate System Responsiveness: Masterclass Techniques for Superior Computer Speed and Functionality by YL Computing</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/enhance-your-photography-journey-with-google-photos-tutorials/"><u>Enhance Your Photography Journey with Google Photos Tutorials</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Realme 11 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/the-pros-technique-for-consolidated-photo-and-video-upload-to-ig-for-2024/"><u>The Pro's Technique for Consolidated Photo and Video Upload to IG for 2024</u></a></li>
 </ul></div>
 

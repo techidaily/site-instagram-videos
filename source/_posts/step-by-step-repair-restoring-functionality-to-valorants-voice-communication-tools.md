@@ -1,7 +1,7 @@
 ---
 title: "Step by Step Repair: Restoring Functionality to Valorant's Voice Communication Tools"
-date: 2025-02-13T23:00:37.464Z
-updated: 2025-02-17T18:12:40.740Z
+date: 2025-03-01T18:30:47.457Z
+updated: 2025-03-06T17:08:31.183Z
 tags:
   - win11
   - win10
@@ -30,10 +30,6 @@ thumbnail: https://thmb.techidaily.com/7e858d7102e5ef6f6137f0acdeeba112d7b0daf0c
 
 ---
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Fix 1: Sign out Fortnite, then sign back in
 
  This is the quickest and easiest fix to try when chat’s not working in Fortnite. Just sign out of the game, then sign back in.
@@ -54,23 +50,11 @@ thumbnail: https://thmb.techidaily.com/7e858d7102e5ef6f6137f0acdeeba112d7b0daf0c
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/Driver-Easy-Scan-screen.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  3\. Click **Update** next to your sound card to automatically download the correct version of its driver, then you can install it manually. Or click **Update All** to automatically download and install the correct version of_all_ the drivers that are missing or out of date on your system (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click **Update All.**  You get**full support** and a**30-day money back** guarantee).
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/Update-all-drivers.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  If you need assistance, please contact**Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 3: Install the latest Fortnite patch
 
@@ -94,15 +78,7 @@ thumbnail: https://thmb.techidaily.com/7e858d7102e5ef6f6137f0acdeeba112d7b0daf0c
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap898.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Run Fortnite again to check whether your chat problem has been resolved. If it hasn’t, or there was no new game patch available, move on to Fix 4, below.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 4: Make sure your microphone is on for Fortnite
 
@@ -146,17 +122,9 @@ iii. Exit Fortnite.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/Snap447.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  5\. While still in the**Recording** tab, try**speaking into your microphone** to test if it works properly. If it is, you should see some green in the bar on the right:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/Snap443.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  6\. Click **OK** .
 
@@ -205,17 +173,22 @@ iii. Exit Fortnite.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-empowering-enterprises-through-vr-engagement/"><u>[New] 2024 Approved Empowering Enterprises Through VR Engagement</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-discover-the-joy-of-individuality-creating-tones-and-sounds-on-android-devices/"><u>[New] Discover the Joy of Individuality Creating Tones & Sounds on Android Devices</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-how-to-make-looping-videos-for-instagram-4-effective-ways/"><u>[New] How To Make Looping Videos For Instagram? [4 Effective Ways]</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-boosting-your-content-a-guide-to-instagram-video-fame/"><u>[New] In 2024, Boosting Your Content A Guide to Instagram Video Fame</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-comparing-igs-new-features-reels-vs-stories/"><u>[Updated] In 2024, Comparing IG's New Features Reels Vs Stories</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-crafting-a-seamless-cross-share-experience-with-fb-and-igtv/"><u>2024 Approved Crafting a Seamless Cross-Share Experience with FB & IGTV</u></a></li>
-<li><a href="https://some-tips.techidaily.com/easily-track-your-apple-tv-remote-using-our-new-airtag-attachment-find-out-how-on-zdnet/"><u>Easily Track Your Apple TV Remote Using Our New AirTag Attachment - Find Out How on ZDNet!</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-google-phone-without-any-data-loss-by-drfone-android/"><u>How to Unlock Google Phone without Any Data Loss</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-watch-hulu-outside-us-on-oneplus-nord-n30-se-drfone-by-drfone-virtual-android/"><u>How to Watch Hulu Outside US On OnePlus Nord N30 SE | Dr.fone</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-best-6-video-translators-to-translate-video/"><u>In 2024, Best 6 Video Translators to Translate Video</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/masterclass-review-of-androids-adobe-lightroom-for-2024/"><u>Masterclass Review of Android's Adobe Lightroom for 2024</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/valorant-pc-stability-issues-fixes-and-solutions/"><u>Valorant PC Stability Issues: Fixes & Solutions</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-instagram-filters-in-a-nutshell-get-them-right-this-year/"><u>[New] In 2024, Instagram Filters in a Nutshell Get Them Right This Year</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-optimizing-engagement-on-instagram-with-youtube-story-features-for-2024/"><u>[New] Optimizing Engagement on Instagram with YouTube Story Features for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-the-instagram-circle-of-power-the-leading-25-titans-revealed/"><u>[New] The Instagram Circle of Power The Leading 25 Titans Revealed</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-top-10-instagram-insights-tools-detailed-data-analysis-made-simple-for-2024/"><u>[New] Top 10 Instagram Insights Tools Detailed Data Analysis Made Simple for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-mellowing-the-feed-the-art-of-adding-soundtracks-to-stories/"><u>[Updated] 2024 Approved Mellowing the Feed The Art of Adding Soundtracks to Stories</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-screen-recorders-showdown-apowersoft-among-them/"><u>[Updated] 2024 Approved Screen Recorders Showdown Apowersoft Among Them</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-the-insiders-tale-to-tripling-instagram-traffic/"><u>[Updated] 2024 Approved The Insider’s Tale to Tripling Instagram Traffic</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-instagram-story-audiences-the-untold-details-for-2024/"><u>[Updated] Instagram Story Audiences The Untold Details for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-nikon-d500-a-revolution-in-4k-uhd-photography/"><u>[Updated] Nikon D500 A Revolution in 4K UHD Photography</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-through-the-fins-pro-techniques-for-taking-superior-gopro-videos-underwater-for-2024/"><u>[Updated] Through the Fins Pro Techniques for Taking Superior GoPro Videos Underwater for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-unlocking-the-hidden-power-of-instagrams-ask-emoji/"><u>[Updated] Unlocking the Hidden Power of Instagram’s Ask Emoji</u></a></li>
+<li><a href="https://extra-information.techidaily.com/airborne-mass-movers-selecting-the-best-drones/"><u>Airborne Mass Movers Selecting the Best Drones</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-solutions-to-find-your-vivo-v29e-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Solutions to Find Your Vivo V29e Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-gps-location-on-apple-iphone-14-pro-max-easily-and-safely-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Change GPS Location on Apple iPhone 14 Pro Max Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-master-recorder-a-comprehensive-review-of-screen-recording/"><u>In 2024, Master Recorder A Comprehensive Review of Screen Recording</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/mobile-melodies-crafting-unique-phone-ringtones-for-android-enthusiasts-for-2024/"><u>Mobile Melodies Crafting Unique Phone Ringtones for Android Enthusiasts for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/speeding-up-microsoft-edge-enhanced-performance-coming-soon/"><u>Speeding Up Microsoft Edge: Enhanced Performance Coming Soon</u></a></li>
 </ul></div>
 

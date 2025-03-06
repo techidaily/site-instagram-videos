@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Turning Off Instagram's IGTV in a Nutshell"
-date: 2025-02-12T23:47:48.602Z
-updated: 2025-02-17T20:12:58.320Z
+date: 2025-03-01T17:51:32.882Z
+updated: 2025-03-06T19:06:02.067Z
 tags:
   - ai video
   - ai instagram
@@ -27,19 +27,11 @@ thumbnail: https://thmb.techidaily.com/fb708f6b02bb2770894398e8943ab9eb4326fec35
 
  There is nothing more frustrating than receiving notifications about posts on social media you have zero interest in. Fortunately for all of us, turning off notifications is a quick and simple process that can be completed in just a few clicks or taps. IGTV, Instagram’s latest mobile video platform is no exception, and if you decide to use it, you will occasionally stumble upon the content you don’t necessarily like and you will receive notifications about posts that really have nothing to do with your interests. In case you are looking for a way to get rid of IGTV suggestions, you’ve come to the right place because in this article we are going to show you how to hide videos you don’t want to see and how to switch off notifications.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Turn Off IGTV Notifications on Instagram
 
  Preventing IGTV notifications from bothering you while you are scrolling down your Instagram feed requires a minimum amount of effort. You just have to **launch the Instagram app** and then once the app opens, you should tap on **the profile icon** that is located in the bottom right corner. Upon arriving at your Instagram profile page, you will be able to see **the hamburger icon** in the top right corner. Tapping on the hamburger icon will grant you access to a menu that contains options such as **Your Activity, Nametag or Saved**. At the very bottom of this menu, you’ll spot the **Settings icon**, tap on it and after the **Settings menu opens** tap on the **Notifications icon**.
 
  Select the **Push Notifications option**, and then scroll all the way down to the **IGTV Video Updates section** of the Push Notifications menu. Tap on the **Off** option, and you’re done, you’ll no longer receive notifications from IGTV. If at any point you change your mind and you decide that you want to receive notifications from IGTV you can return to the Push Notifications menu and select the **From People I Follow** or **From Everyone** option in the IGTV Video Update section of the Push Notifications menu.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Hide IGTV Videos?
 
@@ -54,10 +46,6 @@ thumbnail: https://thmb.techidaily.com/fb708f6b02bb2770894398e8943ab9eb4326fec35
  Optimizing IGTV in accordance with your interests and tastes doesn’t require much effort, as you can easily hide or report IGTV videos you don’t want to interact with. Moreover, you can get rid of IGTV notifications in case they interrupt you too often while you are browsing through your Instagram feed. Hopefully, this article will help make the experience of using IGTV more enjoyable for you.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -74,16 +62,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-the-art-of-angling-images-a-comprehensive-instagram-rotation-handbook/"><u>[New] 2024 Approved The Art of Angling Images A Comprehensive Instagram Rotation Handbook</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-windows-pc-broadcasting-prodigy-mastering-the-art-of-live-tv-recording/"><u>[New] In 2024, Windows PC Broadcasting Prodigy Mastering the Art of Live TV Recording</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-swipe-right-on-virality-blend-tiktok-trends-into-insta-reels/"><u>[New] Swipe Right on Virality Blend TikTok Trends Into Insta Reels</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-winning-instagram-viewers-with-impactful-videos-for-2024/"><u>[New] Winning Instagram Viewers with Impactful Videos for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-the-role-of-analytics-in-achieving-igtv-viral-status/"><u>[Updated] 2024 Approved The Role of Analytics in Achieving IGTV Viral Status</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-discover-9-easy-no-cost-editing-software-options/"><u>2024 Approved Discover 9 Easy, No-Cost Editing Software Options</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/crafting-hidden-silence-tracks-with-audacity/"><u>Crafting Hidden Silence Tracks with Audacity</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-enable-usb-debugging-on-a-locked-nokia-g42-5g-phone-by-drfone-android/"><u>How To Enable USB Debugging on a Locked Nokia G42 5G Phone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-tecno-spark-20-pro-to-mac-drfone-by-drfone-android/"><u>In 2024, How to Mirror Tecno Spark 20 Pro to Mac? | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-two-ways-to-track-my-boyfriends-vivo-y78plus-without-him-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Two Ways to Track My Boyfriends Vivo Y78+ without Him Knowing | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/social-skills-in-ai-interactions-politeness-for-gpt-users/"><u>Social Skills in AI Interactions: Politeness for GPT Users</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-the-smudge-solution-blurring-visions-in-video-content/"><u>[New] 2024 Approved The Smudge Solution Blurring Visions in Video Content</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-capture-the-best-moments-select-6-top-ranked-short-video-download-tools-for-2024/"><u>[New] Capture the Best Moments Select 6 Top-Ranked Short Video Download Tools for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-the-dos-and-donts-of-instagram-live/"><u>[New] In 2024, The Do's and Don'ts of Instagram Live</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-the-essentials-of-narrowing-virtual-room-spaces/"><u>[New] In 2024, The Essentials of Narrowing Virtual Room Spaces</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-navigating-the-social-media-watersheds-of-your-interest-space/"><u>[Updated] 2024 Approved Navigating the Social Media Watersheds of Your Interest Space</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-from-novice-to-pro-how-to-optimize-your-onestream-livestream/"><u>[Updated] From Novice to Pro How to Optimize Your OneStream Livestream</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-from-zero-to-hero-accelerating-your-way-to-a-top-10000-followers-in-no-time-on-insta-for-2024/"><u>[Updated] From Zero to Hero Accelerating Your Way to a Top 10,000 Followers in No Time on Insta for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-elevate-your-account-25-top-instagram-tags-for-maximum-engagement/"><u>[Updated] In 2024, Elevate Your Account 25 Top Instagram Tags for Maximum Engagement</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-tackling-the-challenge-of-video-not-broadcasting-via-fb-messenger/"><u>[Updated] In 2024, Tackling the Challenge of Video Not Broadcasting via FB Messenger</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-sizing-up-how-to-make-videos-work-in-instagram-bests/"><u>[Updated] Sizing Up How to Make Videos Work in Instagram Bests</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/a-beginners-guide-to-instagram-story-feature-for-2024/"><u>A Beginner's Guide to Instagram Story Feature for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/diagnosing-and-fixing-audio-recording-problems-in-open-broadcaster-software/"><u>Diagnosing & Fixing Audio Recording Problems in Open Broadcaster Software</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/explore-your-options-top-premiere-rush-alternatives-for-video-creators-for-2024/"><u>Explore Your Options Top Premiere Rush Alternatives for Video Creators for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/harmonizing-visuals-and-sound-in-instagram-videos-for-2024/"><u>Harmonizing Visuals & Sound in Instagram Videos for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-bypassing-google-account-with-vnrom-bypass-for-vivo-y100-by-drfone-android/"><u>In 2024, Bypassing Google Account With vnROM Bypass For Vivo Y100</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-step-by-step-vsco-image-enhancement/"><u>In 2024, Step-by-Step VSCO Image Enhancement</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/unleash-potential-with-instagram-vids-formulating-an-effective-marketing-plan/"><u>Unleash Potential with Instagram Vids Formulating an Effective Marketing Plan</u></a></li>
 </ul></div>
 

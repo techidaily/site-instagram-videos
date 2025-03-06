@@ -1,7 +1,7 @@
 ---
 title: Day One Patches Brings Optimized Experience to 'Days Gone' On PC
-date: 2025-02-14T19:51:10.226Z
-updated: 2025-02-17T22:45:24.751Z
+date: 2025-02-28T18:25:12.095Z
+updated: 2025-03-06T18:45:26.747Z
 tags:
   - win11
   - win10
@@ -42,15 +42,7 @@ Battlefield 2042 is one of the most awaited games. Now players can dive into the
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/08/turn-on-game-mode.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Now launch Battlefield 2042\. If your game still stutters a lot or it’s showing pretty low FPS, try the next fix below.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 2\. Disable overlays
 
@@ -74,10 +66,6 @@ Below are a few common overlays and how to disable them.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/10/Twitch-settings.png)
 2. Click on**In-Game Overlay** on the left hand side of the screen. Then click the toggle**off** the In-Game Overlay.  
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/10/Twitch-in-game-overlay.png)
 
@@ -115,17 +103,9 @@ Below are a few common overlays and how to disable them.
 
 ![Download & Update NVIDIA GeForce RTX 3080 Ti driver](https://images.drivereasy.com/wp-content/uploads/2021/06/Download-Update-NVIDIA-GeForce-RTX-3080-Ti-driver.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **The Pro version of Driver Easy** comes with _full technical support_ . If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
 
  After updating drivers, restart your PC for the changes to take full effect. If you still have FPS drops and stuttering issues, try the next fix below.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 4\. Enable hardware-accelerated GPU scheduling
 
@@ -136,10 +116,6 @@ Below are a few common overlays and how to disable them.
 ![enable hardware-acceleration GPU scheduling](https://images.drivereasy.com/wp-content/uploads/2021/08/display-settings-1.png)
 2. Scroll down. Find **Graphics settings** and click on it.  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2021/07/graphics-settings-1.jpg)
 3. Toggle**On** Hardware-accelerated GPU scheduling.  
 
@@ -148,10 +124,6 @@ Below are a few common overlays and how to disable them.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/10/graphics-settings.png)
 5. Then navigate to your game’s installation directory. Click**BF2042.exe** and click**Add** .  
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/10/add-BF2042.png)
 6. Your game should appear on the list. Click on the**Options** button.  
@@ -176,10 +148,6 @@ Below are a few common overlays and how to disable them.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/10/delete-cache.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 If this doesn’t do the trick, try the next fix below.
 
 ## 6\. Tweak in-game settings
@@ -190,10 +158,6 @@ If this doesn’t do the trick, try the next fix below.
 * Vertical sync:**OFF**
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/10/disable-vertical-sync-and-future-frame-rendering.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  After applying the changes, relaunch your game and you should be able to gain a better performance without noticeable FPS drops and stutters.
 
@@ -216,21 +180,24 @@ If this doesn’t do the trick, try the next fix below.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-a-comprehensive-approach-to-mastering-the-art-of-instagram-reels/"><u>[New] A Comprehensive Approach to Mastering the Art of Instagram Reels</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-cultivation-of-a-connected-crowd-the-subscriber-surge-strategy/"><u>[New] In 2024, Cultivation of a Connected Crowd The Subscriber Surge Strategy</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-instagram-how-to-watch-videos-quickly-and-smoothly/"><u>[New] In 2024, Instagram How to Watch Videos Quickly & Smoothly</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-top-tips-for-masterful-looped-videos-on-instagram/"><u>[New] In 2024, Top Tips for Masterful Looped Videos on Instagram</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-unearthing-sources-with-reverse-image-techniques-on-insta/"><u>[New] Unearthing Sources with Reverse Image Techniques on Insta</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-video-marketing-excellence-on-instagram-crafting-a-winning-strategy/"><u>[New] Video Marketing Excellence on Instagram Crafting a Winning Strategy</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-maximizing-tv-reach-with-fb-live-streaming/"><u>[Updated] 2024 Approved Maximizing TV Reach with FB Live Streaming</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-top-2-secrets-to-convert-instagram-videos-into-premium-mp4/"><u>[Updated] Top 2 Secrets to Convert Instagram Videos Into Premium MP4</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-pinnacle-group-of-multimedia-harmony-makers/"><u>2024 Approved Pinnacle Group of Multimedia Harmony Makers</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/behind-the-scenes-insights-for-instagram-story-audience/"><u>Behind the Scenes Insights for Instagram Story Audience</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/constructing-unique-instagram-story-panels/"><u>Constructing Unique Instagram Story Panels</u></a></li>
-<li><a href="https://win11.techidaily.com/exclusive-key-collectors-deal-wintry-windows-11-priced-at-612-per-year/"><u>Exclusive Key Collector's Deal - Wintry Windows 11 Priced at $6.12 Per Year</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-tecno-spark-20-proplus-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Tecno Spark 20 Pro+</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-essential-tips-for-effective-fb-live-split-screens/"><u>In 2024, Essential Tips for Effective FB Live Split Screens</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/leading-video-cameras-of-2024-reviewed-and-rated/"><u>Leading Video Cameras of 2024 Reviewed & Rated</u></a></li>
-<li><a href="https://some-skills.techidaily.com/the-watchful-eye-app-critique-and-rating-for-2024/"><u>The Watchful Eye App Critique and Rating for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-enhancing-imagery-a-step-by-step-guide-to-crop-videos-on-instagram/"><u>[New] 2024 Approved Enhancing Imagery A Step-by-Step Guide to Crop Videos on Instagram</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-essential-aspects-ignored-by-instagram-story-observers/"><u>[New] 2024 Approved Essential Aspects Ignored by Instagram Story Observers</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-translated-subtitles-for-global-igtv-audience/"><u>[New] 2024 Approved Translated Subtitles for Global IGTV Audience</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-igniting-the-fires-of-engagement-with-viral-instagram-videos/"><u>[New] In 2024, Igniting the Fires of Engagement with Viral Instagram Videos</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-online-partnerships-crafting-brand-joint-ventures-on-youtube-for-2024/"><u>[New] Online Partnerships Crafting Brand Joint Ventures on YouTube for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-perfect-posts-every-time-mastering-instagram-video-uploads-on-desktop/"><u>[Updated] 2024 Approved Perfect Posts Every Time Mastering Instagram Video Uploads on Desktop</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-analyzing-the-significance-of-instagrams-selfie-verification-for-2024/"><u>[Updated] Analyzing the Significance of Instagram's Selfie Verification for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-earn-big-on-insta-ranking-top-money-makers/"><u>[Updated] Earn Big on Insta Ranking Top Money Makers</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-female-gamers-faction-yts-10-stars/"><u>[Updated] In 2024, Female Gamers Faction YT's #10 Stars</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-incor-writings-on-the-best-practices-for-youtube-commentary/"><u>[Updated] In 2024, Incor Writings on the Best Practices for YouTube Commentary</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-level-up-your-playtime-examining-kinemaster-on-android/"><u>[Updated] In 2024, Level Up Your Playtime Examining KineMaster on Android</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-tailoring-composite-results-blend-mode-proficiency/"><u>[Updated] Tailoring Composite Results Blend Mode Proficiency</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-degrees-matter-rotating-videos-for-social-glory/"><u>2024 Approved Degrees Matter Rotating Videos for Social Glory</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-instagrams-latest-trends-for-successful-influencer-journeys/"><u>2024 Approved Instagram's Latest Trends for Successful Influencer Journeys</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-unlock-iphone-6-with-forgotten-passcode-different-methods-you-can-try-by-drfone-ios/"><u>In 2024, Unlock iPhone 6 With Forgotten Passcode Different Methods You Can Try</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/latest-supported-wi-fi-adapters-drivers-for-microsoft-windows-operating-systems-windows-11-to-7/"><u>Latest Supported Wi-Fi Adapters' Drivers for Microsoft Windows Operating Systems (Windows 11 to 7)</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/revolutionizing-artificial-intelligence-apples-latest-breakthrough-and-areas-for-growth/"><u>Revolutionizing Artificial Intelligence: Apple's Latest Breakthrough and Areas for Growth</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/shooting-spectacular-igtv-videos-with-your-phone-or-dslr-for-2024/"><u>Shooting Spectacular IGTV Videos with Your Phone or DSLR for 2024</u></a></li>
+<li><a href="https://win-news.techidaily.com/the-mysterious-disappearance-of-files-mastering-usb-hide-and-seek-techniques/"><u>The Mysterious Disappearance of Files: Mastering USB Hide and Seek Techniques</u></a></li>
 </ul></div>
 

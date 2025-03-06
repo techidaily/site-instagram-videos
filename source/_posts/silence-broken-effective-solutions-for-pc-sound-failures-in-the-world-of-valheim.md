@@ -1,7 +1,7 @@
 ---
 title: "Silence Broken: Effective Solutions for PC Sound Failures in the World of Valheim"
-date: 2025-02-11T20:13:23.855Z
-updated: 2025-02-17T21:33:48.861Z
+date: 2025-02-27T16:47:35.822Z
+updated: 2025-03-06T17:53:12.582Z
 tags:
   - win11
   - win10
@@ -42,27 +42,15 @@ thumbnail: https://thmb.techidaily.com/d3b9fa260885ec727c421c1f7392781651fabce3d
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/10/image-246.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  3) Scroll down to**Allow desktop apps to access your microphone** , turn on**the switch** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/10/image-248.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  By doing so, you have allowed Origin the access to the microphone on your computer.
 
  Now run Apex Legends and check to see if the microphone not working problem is resolved. If yes, then great! If the problem still remains, please try**Fix 2** , below.
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 2: Update your audio driver
 
@@ -82,10 +70,6 @@ thumbnail: https://thmb.techidaily.com/d3b9fa260885ec727c421c1f7392781651fabce3d
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/06/image-36.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  You can also do it for free if you like, but it’s partly manual.
 
 4) Restart your computer for the changes to take effect.
@@ -93,10 +77,6 @@ thumbnail: https://thmb.techidaily.com/d3b9fa260885ec727c421c1f7392781651fabce3d
 5) Launch Apex Legends to see if you can hear your friends without fail. If yes, you have solved the issue! If no, please move on to**Fix 3** , below.
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 3: Make sure your microphone is set as default in Windows
 
@@ -142,10 +122,6 @@ Here is how to configure in-game settings:
 
 ---
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Fix 5: Install the latest game patch
 
  The developers of Apex Legends, EA, keep releasing game patches to fix bugs. It’s possible that a recent patch has stopped your game from running smoothly, and that a new patch is required for the problem. So it’s recommended that you go to[**EA official website**](https://www.ea.com/games/apex-legends) , check for the latest patch, download and install it. Then check if it fixes the voice chat not working problem.
@@ -153,10 +129,6 @@ Here is how to configure in-game settings:
  If there is no patches available, or the patch fails to address the problem, then please try **Fix 6** , below.
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 6: Reinstall Origin and Apex Legends
 
@@ -204,19 +176,18 @@ Here are the steps:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-2024-approved-tips-to-reduce-compression-artifacts-in-obs/"><u>[New] 2024 Approved Tips to Reduce Compression Artifacts in OBS</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-beatify-your-content-adding-melodies-to-instagram-stories-for-2024/"><u>[New] Beatify Your Content Adding Melodies to Instagram Stories for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-cutting-edge-techniques-for-your-instagram-story-success-for-2024/"><u>[New] Cutting-Edge Techniques for Your Instagram Story Success for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ssential-tips-for-making-youtube-introductory-trailers/"><u>[New] Essential Tips for Making YouTube Introductory Trailers</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-in-2024-step-by-step-recording-slideshow-via-webcam/"><u>[New] In 2024, Step-by-Step Recording Slideshow via Webcam</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-navigating-free-vs-paid-the-ultimate-guide-to-downloading-videos-from-vimeo-for-2024/"><u>[Updated] Navigating Free Vs. Paid The Ultimate Guide to Downloading Videos From Vimeo for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-twisting-tales-in-photography-the-ultimate-guide-to-angled-spins-on-digital-platforms-for-2024/"><u>[Updated] Twisting Tales in Photography The Ultimate Guide to Angled Spins on Digital Platforms for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-discover-10-leading-online-video-editors-android-pc/"><u>2024 Approved Discover 10 Leading Online Video Editors (Android, PC)</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-keep-an-eye-out-for-insta-follower-fleece/"><u>2024 Approved Keep an Eye Out for Insta Follower Fleece</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/designing-unique-instagram-post-cover-texts/"><u>Designing Unique Instagram Post Cover Texts</u></a></li>
-<li><a href="https://howto.techidaily.com/how-to-resolve-infinix-note-30-screen-not-working-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Resolve Infinix Note 30 Screen Not Working | Dr.fone</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-innovation-in-social-media-redefining-the-role-of-facebook-stories/"><u>In 2024, Innovation in Social Media Redefining the Role of Facebook Stories</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/social-media-smarts-picking-between-snapchats-ai-and-gpt/"><u>Social Media Smarts: Picking Between Snapchat’s AI and GPT</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/updated-2024-approved-leading-speech-transcription-tools-for-smartphones-android-and-iphone-edition/"><u>Updated 2024 Approved Leading Speech Transcription Tools for Smartphones - Android and iPhone Edition</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-instagram-friendships-unlocked-leading-free-and-safe-follower-finding-tools-iosandroid/"><u>[New] In 2024, Instagram Friendships Unlocked Leading Free & Safe Follower-Finding Tools (iOS/Android)</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-shut-down-instagram-suggestions-for-2024/"><u>[New] Shut Down Instagram Suggestions for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-cross-platform-connections-effortless-insta-facebook-linkup/"><u>[Updated] Cross-Platform Connections Effortless Insta-Facebook Linkup</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-how-to-get-verified-on-instagram-6-tips-to-grow-followers/"><u>[Updated] How to Get Verified on Instagram 6 Tips to Grow Followers</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-tips-for-efficiently-editing-videos-for-social-media-engagement-for-2024/"><u>[Updated] Tips for Efficiently Editing Videos for Social Media Engagement for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/avoidable-slip-ups-with-neural-networks/"><u>Avoidable Slip-Ups with Neural Networks</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/elite-streamers-choice-for-secure-downloads-8-for-2024/"><u>Elite Streamer’s Choice for Secure Downloads 8 for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-clipcomposers-evaluation-full-breakdown-of-video-editing-software/"><u>In 2024, ClipComposer's Evaluation – Full Breakdown of Video Editing Software</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-cloud-consortium-choices-best-spaces-revealed/"><u>In 2024, Cloud Consortium Choices Best Spaces Revealed</u></a></li>
+<li><a href="https://win11.techidaily.com/steps-to-activate-clipboard-features-with-shielded-applications-edge-on-w11-platform/"><u>Steps to Activate Clipboard Features with Shielded Applications (Edge) on W11 Platform</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/top-kid-friendly-smartphones-a-comprehensive-guide-by-zdnet/"><u>Top Kid-Friendly Smartphones: A Comprehensive Guide by ZDNet</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/unlock-early-bird-perks-preordering-iphone-15-apple-watch-series-ultra-2-with-amazing-discounts-tech-insights-by-zdnet/"><u>Unlock Early Bird Perks: Preordering iPhone 15, Apple Watch Series Ultra 2 with Amazing Discounts | Tech Insights by ZDNET</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unveiling-the-freedom-gpt-4-goes-open-source-yet-six-compelling-motives-remain-for-choosing-chatgpt-plus/"><u>Unveiling the Freedom: GPT-4 Goes Open Source - Yet Six Compelling Motives Remain for Choosing ChatGPT Plus</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Silence Unwanted Post Suggestions on Insta for 2024"
-date: 2025-02-16T20:22:09.131Z
-updated: 2025-02-17T23:34:15.699Z
+date: 2025-03-02T17:13:44.127Z
+updated: 2025-03-06T16:53:44.729Z
 tags:
   - ai video
   - ai instagram
@@ -38,10 +38,6 @@ The reason? These people aren't interested in seeing random people's posts on th
 * [Part 5: How Does Instagram Suggestions Work?](#part5)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 1: What is Instagram Suggested?
 
@@ -81,17 +77,9 @@ Here's what you need to do:
 
 Now, you can apply the same steps for the rest of the posts as well. But do keep in mind that suggested posts will still appear. And you will have to apply this setting for each one so that you are shown fewer posts of unknown people.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3: How to Delete Suggested Users from Instagram?
 
 If you don't want to see suggested users on your Instagram feed, there is a way to remove unknown users actually. You can do it by using your web browser or Instagram mobile app. Whichever is comfortable to use. However, please note that these steps have to be followed for each suggested user. Now, please use that and then follow these steps.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### For Instagram app users
 
@@ -102,10 +90,6 @@ If you don't want to see suggested users on your Instagram feed, there is a way 
 **Step 3:** Now, on top of every suggestion for you, you will see the x mark. That's what you need to click on that. Ensure you are doing that for every suggestion that appears on your home feed. After clicking on the X, that account will not be suggested to you, and it will disappear.
 
 ![click on x symbol to delete suggested users](https://images.wondershare.com/filmora/article-images/delete-instagram-suggestion-post.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 4:** To delete multiple suggested users, just click on the see all option, and the list of suggested users will appear; now click on the X for each user you want to delete. However, you need to delete everyone one by one individually.
 
@@ -124,10 +108,6 @@ Just like Instagram show you suggested users and posts, your account gets recomm
 **Step 3:** Scroll down towards the bottom, and you will find the similar account suggestions section. In this section, you will see a checkbox. You need to uncheck that if you don't want your name to appear as a suggested user.
 
 ![ uncheck the similar account suggestions box](https://images.wondershare.com/filmora/article-images/uncheck-similar-account-suggestions.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 5: How Does Instagram Suggestions Work?
 
@@ -162,20 +142,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-revitalizing-past-moments-with-instagram-filters/"><u>[New] 2024 Approved Revitalizing Past Moments with Instagram Filters</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-step-by-step-srt-manipulation-for-mac-enthusiasts/"><u>[New] 2024 Approved Step-by-Step SRT Manipulation for Mac Enthusiasts</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-ultimate-guide-to-share-your-igtv-story-with-ease/"><u>[New] 2024 Approved Ultimate Guide to Share Your IGTV Story with Ease</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-how-to-record-with-nvidia-screen-recorder/"><u>[New] How to Record with NVIDIA Screen Recorder</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-unpacking-the-rules-instagrams-video-length-caps/"><u>[New] In 2024, Unpacking the Rules Instagram's Video Length Caps</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-perfecting-the-picture-perfect-cover-photo-on-instagrams-highlights/"><u>[New] Perfecting the Picture-Perfect Cover Photo on Instagram's Highlights</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-navigating-twitter-video-submission-protocols/"><u>[Updated] In 2024, Navigating Twitter Video Submission Protocols</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-insta-marketing-dynamo-crafting-winning-strategies-with-videos-on-social-media-for-2024/"><u>[Updated] Insta-Marketing Dynamo Crafting Winning Strategies with Videos on Social Media for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-virtual-enterprise-integrating-vr-tech-in-commerce-for-2024/"><u>[Updated] Virtual Enterprise Integrating VR Tech in Commerce for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/how-the-nba-2k21-green-glitch-was-successfully-resolved/"><u>How the NBA 2K21 'Green' Glitch Was Successfully Resolved</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-screen-share-on-apple-iphone-15-plus-drfone-by-drfone-ios/"><u>How to Screen Share on Apple iPhone 15 Plus? | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/mp3-creation-from-instagram-vids-explained-for-2024/"><u>MP3 Creation From Instagram Vids Explained for 2024</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/navigating-stellars-data-recovery-ui/"><u>Navigating Stellar's Data Recovery UI</u></a></li>
-<li><a href="https://driver-error.techidaily.com/no-more-laggy-windows-11/"><u>No More Laggy Windows 11</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/the-insiders-tactics-for-creating-gripping-puzzle-posts-on-instagram/"><u>The Insider's Tactics for Creating Gripping Puzzle Posts on Instagram</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-channel-gain-traction-comprehensive-guide-to-youtubes-featured-placement/"><u>[New] 2024 Approved Channel Gain Traction Comprehensive Guide to YouTube's Featured Placement</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-transforming-insta-video-to-mp3-audio/"><u>[New] 2024 Approved Transforming Insta Video to Mp3 Audio</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-mac-techniques-for-instagram-short-form-videos-for-2024/"><u>[New] Mac Techniques for Instagram Short-Form Videos for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-prime-racing-lineup-the-quintet-of-choice-for-2024/"><u>[New] Prime Racing Lineup The Quintet of Choice for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-insta-influencing-techniques-for-scaling-your-following-quickly/"><u>[Updated] 2024 Approved Insta Influencing Techniques for Scaling Your Following Quickly</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-earn-big-with-little-experience-discover-the-top-13-reddit-money-ways/"><u>[Updated] Earn Big with Little Experience - Discover the Top 13 Reddit Money Ways</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-border-techniques-for-enhanced-instagram-pictures/"><u>[Updated] In 2024, Border Techniques for Enhanced Instagram Pictures</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-top-7-epic-strategy-battles-unveiling-ultimate-total-wars/"><u>2024 Approved Top 7 Epic Strategy Battles Unveiling Ultimate Total Wars</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/get-the-edge-with-a-premier-zero-cost-voice-change-software/"><u>Get the Edge with a Premier, Zero-Cost Voice Change Software</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-top-live-streamers-analyzed-and-ranked/"><u>In 2024, Top Live Streamers Analyzed and Ranked</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/score-the-top-notch-meta-vr-offer-with-512gb-quest-headset-this-october-exclusive-deal-alert/"><u>Score the Top-Notch Meta VR Offer with 512GB Quest Headset This October, Exclusive Deal Alert</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/top-rated-technology-resume-templates-and-platforms-expert-recommendations-by-zdnet/"><u>Top-Rated Technology Resume Templates & Platforms: Expert Recommendations by ZDNet</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unleashing-computational-power-the-thelio-mega-a-cutting-edge-dual-gpu-linux-beast/"><u>Unleashing Computational Power: The Thelio Mega - A Cutting-Edge, Dual-GPU Linux Beast</u></a></li>
 </ul></div>
 

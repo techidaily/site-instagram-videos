@@ -1,7 +1,7 @@
 ---
 title: "\"Soundwaves on Social  A Guide to Embedding Tracks in Stories for 2024\""
-date: 2025-02-13T23:10:33.564Z
-updated: 2025-02-18T00:19:41.038Z
+date: 2025-03-04T16:18:12.767Z
+updated: 2025-03-06T17:57:16.163Z
 tags:
   - ai video
   - ai instagram
@@ -31,10 +31,6 @@ If you are also an avid Instagram user who would like to post stories on the app
 
 ![ Instagram Logo](https://images.wondershare.com/filmora/article-images/ig-logo.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## A Step-by-step Guide for Adding Music to IG Story
 
 To make it easier for us to post interesting stories, Instagram has come up with the Music feature. Using it, we can look for tons of popular songs in different languages and add our favorite snippets to our story. Presently, the feature of Instagram Music is available for English, German, French, Hindi, and a few other local languages. Also, you can post a snippet of at most 15 seconds since that is the maximum duration of an Instagram story. To learn how to add music to the IG story, you can follow these simple steps right away:
@@ -54,10 +50,6 @@ This will launch a dedicated interface for Instagram Story. Here, you can use yo
 As of now, Instagram music has an extensive catalog with millions of songs in different languages and genres. As you would tap on the “Music” option, it will automatically suggest numerous songs that are trending. If you want, you can tap on the search bar and enter keywords for songs, artists, albums, etc. to look for anything specific.
 
 ![ Select Taylor Swift Songs](https://images.wondershare.com/filmora/article-images/select-taylor-swift-songs.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Once you find the song of your choice, just tap on it and it will be loaded on the Instagram Story interface. Although the entire song would be loaded, you would now have to clip a snippet of at most 15 seconds from it. There is a slider at the bottom that you can move and adjust to clip the specific part and even view its lyrics sliding as you move.
 
@@ -83,10 +75,6 @@ That’s it! In this way, you can learn how to add music to IG story and customi
 
 ![ Share Your IG Story](https://images.wondershare.com/filmora/article-images/share-your-ig-story.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Create Stunning IG Stories to Captivate Your Audience?
 
 You might already know how popular Instagram Stories have become in just a few years. The feature is used by over 500 million people and can be an excellent tool to reach out to your audience. Apart from learning how to put music on IG story, there are several other things that you can also do to make your stories more captivating and eye-catching.
@@ -103,19 +91,11 @@ Instagram also keeps rotating different filters that we can add to our stories. 
 
 ![ Inbuilt IG Filters](https://images.wondershare.com/filmora/article-images/inbuilt-ig-filters.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### Add polls, challenges, countdowns, and more
 
 Apart from adding music, Instagram also lets us add tons of other things to our story. You can mention any other user in your story or add a location to get more views. There are also options to add a hashtag or create a poll. You can also find different challenges to explore (like the ice bucket challenge) to post your story under a specific category.
 
 ![ Add Polls and More](https://images.wondershare.com/filmora/article-images/add-polls-challenges.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### Ask questions to interact with your audience
 
@@ -146,14 +126,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-amplify-your-storytelling-music-for-instagram-stories-and-videos/"><u>[New] 2024 Approved Amplify Your Storytelling Music for Instagram Stories & Videos</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-maximize-style-with-premium-border-options-for-ig-posts/"><u>[New] 2024 Approved Maximize Style with Premium Border Options for IG Posts</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-step-by-step-guide-to-applying-a-realistic-motion-blur-in-photoshop/"><u>[New] Step-by-Step Guide to Applying a Realistic Motion Blur in Photoshop</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-unlock-the-power-of-pause-with-instagrams-slow-motion-for-2024/"><u>[New] Unlock the Power of Pause with Instagram's Slow Motion for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-mastering-instagram-your-complete-guide-to-making-a-mark-with-reels/"><u>2024 Approved Mastering Instagram Your Complete Guide to Making a Mark With Reels</u></a></li>
-<li><a href="https://android-frp.techidaily.com/addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-realme-12-pro-5g-by-drfone-android/"><u>AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Realme 12 Pro 5G</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/decoding-the-significance-of-patch-tuesday-in-software-security-updates/"><u>Decoding the Significance of Patch Tuesday in Software Security Updates</u></a></li>
-<li><a href="https://win11.techidaily.com/error-2e-unravelled-enabling-windows-update/"><u>Error 2E Unravelled: Enabling Windows Update</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/top-10-ai-powered-pdf-tools-for-productivity-gains/"><u>Top 10 AI-Powered PDF Tools for Productivity Gains</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-cutting-edge-3d-animations-made-easy-by-leading-applications/"><u>[New] 2024 Approved Cutting-Edge 3D Animations Made Easy by Leading Applications</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-step-by-step-guide-to-editing-and-optimizing-instagram-footage-for-2024/"><u>[New] Step-by-Step Guide to Editing and Optimizing Instagram Footage for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-creative-couture-top-trendy-filters-on-ig/"><u>[Updated] 2024 Approved Creative Couture Top Trendy Filters on IG</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-mastery-of-instagram-videography-blueprint-for-robust-marketing-plans/"><u>[Updated] 2024 Approved Mastery of Instagram Videography Blueprint for Robust Marketing Plans</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-avoid-blandness-optimize-your-thumbnail-with-20-fonts/"><u>[Updated] In 2024, Avoid Blandness - Optimize Your Thumbnail with 20 Fonts</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-premieres-role-in-your-youtube-creation-process/"><u>2024 Approved Premiere's Role in Your YouTube Creation Process</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/capture-kings-face-off/"><u>Capture Kings Face-Off</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/combine-your-fortnite-gamer-ids-in-minutes/"><u>Combine Your Fortnite Gamer IDs in Minutes!</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/downloading-samfw-frp-tool-30-for-huawei-nova-y71-by-drfone-android/"><u>Downloading SamFw FRP Tool 3.0 for Huawei Nova Y71</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-circling-success-how-to-captivate-your-instagram-audience/"><u>In 2024, Circling Success How to Captivate Your Instagram Audience</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-with-location-spoofer-on-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, How To Simulate GPS Movement With Location Spoofer On Apple iPhone 15 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-reel-your-best-footage-from-instagram-with-these-aids/"><u>In 2024, Reel Your Best Footage From Instagram With These Aids</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/navigating-the-best-instagram-performance-insight-platforms/"><u>Navigating the Best Instagram Performance Insight Platforms</u></a></li>
+<li><a href="https://some-skills.techidaily.com/unite-film-selections-with-playlist-accumulation-for-2024/"><u>Unite Film Selections with Playlist Accumulation for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/be-beginners-basics-establishing-your-channel-and-earning-profits-for-2024/"><u>Youtube Beginner's Basics Establishing Your Channel & Earning Profits for 2024</u></a></li>
 </ul></div>
 

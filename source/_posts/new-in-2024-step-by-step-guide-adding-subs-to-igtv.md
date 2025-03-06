@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Step-by-Step Guide  Adding Subs to IGTV\""
-date: 2025-02-14T17:58:08.333Z
-updated: 2025-02-17T22:37:30.166Z
+date: 2025-03-03T17:39:51.726Z
+updated: 2025-03-06T16:29:13.187Z
 tags:
   - ai video
   - ai instagram
@@ -33,25 +33,13 @@ IGTV videos are vertically oriented, so you can’t just create an SRT file that
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 We are going to show you how to add subtitles to videos in Filmora because you don’t have to be an experienced filmmaker in order to use this video editing software. After installing Filmora on your Mac or PC computer, double-click on its desktop icon to launch it. The welcome window will appear on the screen asking you if you want to continue working on a **recent project** or if you want to create a **new project**.
 
 ![ Filmora0 Create New Project](https://images.wondershare.com/filmora/article-images/new-project-9.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Choose the **New Project** option and then once the project opens, head over to **File menu** and select **Project Settings** from the list. The **Project Settings window** will pop up on the screen and you should change the resolution to **1080x1920 (9:16)** and increase the **Frame Rate to 30fps**.
 
 ![ Filmora0 Create New Project](https://images.wondershare.com/filmora/article-images/filmora9-4k-project-settings.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Click on the **OK button** to confirm the changes, and then go to the **Media panel** to import the video you would like to edit. The fastest way to add media files to your project is to just drag them from the folder in which they are stored and drop them to the Media panel. You can also click on the **Import** drop-down menu and select the **Import Media Files** option from the list.
 
@@ -71,10 +59,6 @@ You can choose from a variety of preset text styles, and you can select the font
 
 ![ Filmora0 Create New Project](https://images.wondershare.com/filmora/article-images/advanced-text-editing-9-win.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Adding subtitles to a video can be a painstakingly long process if you’re working with a lot of text, so arm yourself with patience and do your best to be as precise as you possibly can, because lagging subtitles can create a lot of confusion. Besides adding the title and text, you can add some animation effects such as typewriter animation to the typed texts. Learn more about [How to add typewriter effects to videos](https://tools.techidaily.com/wondershare/filmora/download/) in details.
 
 Once you’re done adding the subtitles you should click on the **Photo Camera icon** to take a snapshot of the video, you can use as a **cover photo for your IGTV video**. Export the video and proceed to upload it to IGTV from your web browser or from your phone.
@@ -93,10 +77,6 @@ Even though adding subtitles to videos can require a lot of precision and attent
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -112,22 +92,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/hannel-elevation-reach-youtube-affiliate-level-with-10k-views-for-2024/"><u>[New] Channel Elevation Reach YouTube Affiliate Level with 10K Views for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-your-instagram-memories-unchained-and-safe/"><u>[New] Your Instagram Memories, Unchained & Safe</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-your-pathway-to-perfect-igtv-footage-from-phone-to-dslr-for-2024/"><u>[New] Your Pathway to Perfect IGTV Footage From Phone to DSLR for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-enhance-your-storytelling-mastering-the-green-screen-on-instagram/"><u>[Updated] 2024 Approved Enhance Your Storytelling Mastering the Green Screen on Instagram</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-fast-track-your-feed-mastering-instagram-likes-and-vids-artistry/"><u>[Updated] In 2024, Fast-Track Your Feed Mastering Instagram Likes & Vids Artistry</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-securely-shutting-down-your-instagram-presence-forever-for-2024/"><u>[Updated] Securely Shutting Down Your Instagram Presence Forever for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-crafting-clear-and-consistent-slug-lines/"><u>2024 Approved Crafting Clear and Consistent Slug Lines</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-designing-captivating-instagram-feed-summaries/"><u>2024 Approved Designing Captivating Instagram Feed Summaries</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-premier-programs-designing-animated-3d-worlds/"><u>2024 Approved Premier Programs Designing Animated 3D Worlds</u></a></li>
-<li><a href="https://howto.techidaily.com/6-fixes-to-unfortunately-whatsapp-has-stopped-error-popups-on-meizu-21-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Fixes to Unfortunately WhatsApp has stopped Error Popups On Meizu 21 | Dr.fone</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/exploring-superior-wallet-trackers-beyond-apple-and-tile-unveiled-by-zdnets-in-depth-testing/"><u>Exploring Superior Wallet Trackers Beyond Apple and Tile - Unveiled by ZDNET's In-Depth Testing!</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-expedited-guide-to-distinguishing-genuine-followers-on-instagram/"><u>In 2024, Expedited Guide to Distinguishing Genuine Followers on Instagram</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-the-complete-guide-to-motorola-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Complete Guide to Motorola FRP Bypass Everything You Need to Know</u></a></li>
-<li><a href="https://some-tips.techidaily.com/slashed-rates-for-bluetti-energy-units-available-now-uncover-hidden-savings-during-their-exclusive-summer-sale-revealed-by-zdnet/"><u>Slashed Rates for Bluetti Energy Units Available Now! Uncover Hidden Savings During Their Exclusive Summer Sale – Revealed by ZDNet</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/step-by-step-the-ultimate-guide-to-borders-on-insta-pics/"><u>Step-By-Step The Ultimate Guide to Borders on Insta Pics</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/tips-of-transferring-messages-from-oppo-reno-8t-5g-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Tips of Transferring Messages from Oppo Reno 8T 5G to iPhone 14/15 | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/top-4-sim-location-trackers-to-easily-find-your-lost-itel-s23plus-device-by-drfone-android/"><u>Top 4 SIM Location Trackers To Easily Find Your Lost Itel S23+ Device</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-how-to-use-igtv-hashtags-to-get-more-followers/"><u>[New] In 2024, How to Use IGTV Hashtags to Get More Followers</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-tracing-your-instagram-fanbase-shifts/"><u>[New] Tracing Your Instagram Fanbase Shifts</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-ultimate-photography-journey-with-vsco-editing-tool/"><u>[New] Ultimate Photography Journey with VSCO Editing Tool</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-bold-and-beautiful-implementing-borders-on-instagram-shots/"><u>[Updated] 2024 Approved Bold & Beautiful Implementing Borders on Instagram Shots</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-enhance-mac-screenshot-with-quick-shortcut-tips/"><u>[Updated] 2024 Approved Enhance Mac Screenshot with Quick Shortcut Tips</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-building-brands-earning-dollars-a-comprehensive-guide-to-insta-sponsorships/"><u>[Updated] Building Brands, Earning Dollars A Comprehensive Guide to Insta-Sponsorships</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-fast-forward-fame-insta-popularity-through-content/"><u>[Updated] Fast Forward Fame Insta Popularity Through Content</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-unlocking-the-full-potential-of-your-instagram-story-with-multiple-images/"><u>[Updated] In 2024, Unlocking the Full Potential of Your Instagram Story with Multiple Images</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-instagram-story-whats-not-in-public-knowledge/"><u>[Updated] Instagram Story What's Not in Public Knowledge?</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-simplifying-speech-integration-into-instagram-content/"><u>[Updated] Simplifying Speech Integration Into Instagram Content</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-visualsizetweak-mastering-your-instagram-media-for-2024/"><u>[Updated] VisualSizeTweak Mastering Your Instagram Media for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/bridging-silent-images-and-vocal-melodies-for-2024/"><u>Bridging Silent Images and Vocal Melodies for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/essential-low-cost-footage-source-directory/"><u>Essential Low-Cost Footage Source Directory</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/exemplary-video-capture-top-5-slow-motion-cams/"><u>Exemplary Video Capture Top 5 Slow Motion Cams</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/experts-weigh-in-on-the-samsung-galaxy-watch-active-a-revolutionary-approach-to-wellness-tracking/"><u>Experts Weigh in on the Samsung Galaxy Watch Active – A Revolutionary Approach to Wellness Tracking</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/fixed-repairing-disk-errors-on-windows-11/"><u>Fixed: Repairing Disk Errors on Windows 11</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-about-motorola-moto-g73-5g-frp-bypass-by-drfone-android/"><u>In 2024, About Motorola Moto G73 5G FRP Bypass</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-top-mp4-tools-for-mac-users-maximizing-youtube-productions/"><u>In 2024, Top MP4 Tools For Mac Users Maximizing YouTube Productions</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/mastering-srt-editing-a-comprehensive-mac-guide-for-2024/"><u>Mastering SRT Editing A Comprehensive Mac Guide for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Instagram Videography Guide - Size Matters for 2024\""
-date: 2025-02-15T21:15:30.975Z
-updated: 2025-02-17T23:59:01.075Z
+date: 2025-03-01T18:21:07.027Z
+updated: 2025-03-06T18:50:34.470Z
 tags:
   - ai video
   - ai instagram
@@ -64,19 +64,11 @@ Even though MP4 is the only supported Instagram video format, you can set the vi
 
 ![instagram video dimensions](https://images.wondershare.com/filmora/instagram-video-format.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Since Instagram is not limited to videos, you might be puzzling about the required dimensions for Instagram photos, stories, IGTV, live videos and other supported features like ads. Keep calm, and find all the Instagram dimensions and sizes right in here.
 
 Other than just uploading ordinary videos and sharing photos, you can also **tell a story on Instagram**  using videos and photos in a slideshow format. For business purposes, you can format Instagram stories to **create Instagram Carousel ads**  to use as an advert.
 
 To realize the real importance of Instagram, start using the **video ads feature** , uploading **IGTV videos**  and **streaming live videos** . As you explore all these features, remember to use the specified Max Instagram video dimensions in this article.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### #1 - Instagram Video Dimensions And Sizes
 
@@ -96,10 +88,6 @@ Since the launch of Instagram video sharing feature, square videos are the most 
 #### Instagram Horizontal Videos (Landscape)
 
 ![instagram video format](https://images.wondershare.com/filmora/instagram-horizontal-videos.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Even though recording Instagram videos in a landscape form is a lot much easier, the majority of Instagram enthusiasts despise. It is the least used orientation mostly because it occupies a small space and the quality appears distorted.
 
@@ -205,10 +193,6 @@ Even though Instagram displays vertical photos at a maximum resolution of 480px 
 
 ![instagram post size](https://images.wondershare.com/filmora/instagram-landscape-photo-size.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 How many photos or pictures have you seen on Instagram with a border above and below it? They are countless.
 
 Using the wrong aspect ratio is the main cause of this effect. It is a bit challenging to set the recommended aspect ratio of 1.91:1.
@@ -216,10 +200,6 @@ Using the wrong aspect ratio is the main cause of this effect. It is a bit chall
 You are permitted to upload photos with a high aspect ratio as 16:9\. However, these extra sizes will display in the form of a black border.
 
 If you want to upload horizontal photos and maintain their original quality, the right Instagram image size is 1080px by 608px.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Well Prepare Your Instagram Videos and Photos with the Best Editing Software
 
@@ -238,10 +218,6 @@ It's free to use and click the below link to download now.
 Since you will probably use a mobile phone for Instagram than a computer, download the free mobile video editor – **[Filmora](https://tools.techidaily.com/wondershare/filmora/download/).** There is every effect, transition, filters, texts, and themes to make your Instagram live videos and photos cinematic.
 
 **You may also like:** [How to Post/Share a Video From YouTube on Instagram >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -268,20 +244,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-mobile-magnification-premium-highlights-for-iphonesandroids/"><u>[New] Mobile Magnification Premium Highlights for IPhones/Androids</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-streamline-workflow-with-macoss-screen-capture-feature-for-2024/"><u>[New] Streamline Workflow with macOS's Screen Capture Feature for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-10-instagram-story-viewers-to-watch-instagram-stories-anonymously-for-2024/"><u>[Updated] 10 Instagram Story Viewers to Watch Instagram Stories Anonymously for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-saving-your-social-media-face-from-spurious-support/"><u>[Updated] 2024 Approved Saving Your Social Media Face From Spurious Support</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-anon-mode-unveiling-instagram-stories-across-oses-for-2024/"><u>[Updated] Anon Mode Unveiling Instagram Stories Across OSes for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-complete-examination-a-full-picture-of-bublcams-360-degree-scope-for-2024/"><u>[Updated] Complete Examination A Full Picture of Bublcam's 360-Degree Scope for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-expert-voice-editing-software-for-video-content-makers-for-2024/"><u>[Updated] Expert Voice Editing Software for Video Content Makers for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-instagram-video-collage-app-for-androidandios/"><u>[Updated] In 2024, Instagram Video Collage App for Android&iOS</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-mastering-the-art-of-cropping-in-the-digital-age-for-2024/"><u>[Updated] Mastering the Art of Cropping in the Digital Age for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-unrivaled-7-best-virtual-meetings-security-centric-ranking/"><u>[Updated] Unrivaled 7 Best Virtual Meetings Security-Centric Ranking</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-hack-the-art-of-instagram-reels-creation/"><u>2024 Approved Hack the Art of Instagram Reels Creation</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/8-engaging-exercise-routines-for-active-viewership/"><u>8 Engaging Exercise Routines for Active Viewership</u></a></li>
-<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-vivo-x100-pro-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Vivo X100 Pro? | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-mastering-instagram-increasingdecreasing-stories-frame-rate/"><u>In 2024, Mastering Instagram Increasing/Decreasing Stories' Frame Rate</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/mastering-the-art-of-obs-and-fb-live/"><u>Mastering the Art of OBS and FB Live</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-acquiring-igtv-media-easily-a-comprehensive-pcmac-guide/"><u>[New] Acquiring IGTV Media Easily A Comprehensive PC/Mac Guide</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-premier-zones-for-cutting-edge-vr-viewing/"><u>[New] In 2024, Premier Zones for Cutting-Edge VR Viewing</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-masterful-techniques-to-alter-facial-gender-in-instagram-snapchat-and-facebook-pictures/"><u>[Updated] 2024 Approved Masterful Techniques to Alter Facial Gender in Instagram, Snapchat & Facebook Pictures</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-professional-grade-grid-tools-for-striking-instagram-posts/"><u>[Updated] 2024 Approved Professional-Grade Grid Tools for Striking Instagram Posts</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-becoming-a-reel-virtuoso-in-the-social-media-arena/"><u>[Updated] In 2024, Becoming a Reel Virtuoso in the Social Media Arena</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-mastering-transitions-fading-techniques-in-premiere-pro/"><u>[Updated] In 2024, Mastering Transitions Fading Techniques in Premiere Pro</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-instagrams-icons-navigating-through-its-leading-25-stars/"><u>[Updated] Instagram's Icons Navigating Through Its Leading 25 Stars</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-jotting-down-just-a-minute-movie-for-2024/"><u>[Updated] Jotting Down Just a Minute Movie for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-logic-pros-approach-to-subtle-audio-dimming-for-2024/"><u>[Updated] Logic Pro's Approach to Subtle Audio Dimming for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-scoop-up-10-memes-that-balance-humor-with-heartfelt-emotions-for-2024/"><u>[Updated] Scoop Up 10 Memes That Balance Humor with Heartfelt Emotions for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-digital-dynamics-pro-strategies-to-switch-shades/"><u>2024 Approved Digital Dynamics Pro Strategies to Switch Shades</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-enhance-visual-storytelling-top-4-strategies-for-looped-videos-in-instagram/"><u>2024 Approved Enhance Visual Storytelling Top 4 Strategies for Looped Videos in Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-facebook-to-the-world-seamlessly-upload-your-posts-and-notes/"><u>From Facebook to the World: Seamlessly Upload Your Posts and Notes.</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-soundtrack-to-life-fbs-music-offerings/"><u>In 2024, Soundtrack to Life FB's Music Offerings</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-tips-and-tricks-for-setting-up-your-oneplus-ace-2v-phone-pattern-lock-by-drfone-android/"><u>In 2024, Tips and Tricks for Setting Up your OnePlus Ace 2V Phone Pattern Lock</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/inspirational-images-a-top-20-guide-for-insta-gratification/"><u>Inspirational Images A Top 20 Guide for Insta Gratification</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/vigilance-in-action-key-windows-tasks-to-scrutinize-for-infection/"><u>Vigilance in Action: Key Windows Tasks to Scrutinize for Infection</u></a></li>
 </ul></div>
 

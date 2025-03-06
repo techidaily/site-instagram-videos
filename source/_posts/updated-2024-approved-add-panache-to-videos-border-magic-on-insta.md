@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Add Panache to Videos  Border Magic on Insta\""
-date: 2025-02-12T18:14:52.164Z
-updated: 2025-02-17T18:55:27.749Z
+date: 2025-03-01T16:04:12.028Z
+updated: 2025-03-06T17:03:50.979Z
 tags:
   - ai video
   - ai instagram
@@ -191,10 +191,6 @@ Moreover, adding borders to your favorite Instagram videos is pretty much a stra
 
 ![add instagram to filmora timeline](https://images.wondershare.com/filmora/article-images/add-instagram-video-timeline.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3:** If the imported media file doesn't fit the aspect ratio on the timeline, right-click the clip and select the **Crop to Fit** option from the display to fit the video onto the timeline.
 
 **Step 4**: To add borders to the video for Instagram, select the **Effect** tab present on the horizontal menu.
@@ -254,10 +250,6 @@ It's a free online application for editing photos, movies, and GIFs. It does not
 ![kapwing export video](https://images.wondershare.com/filmora/article-images/export-video-with-borders-kapwing.jpg)
 
 Note: if you want to remove the watermark after exporting, you may need to sign in a new account or sign up.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Canva
 
@@ -332,19 +324,11 @@ Moreover, adding borders to your favorite Instagram videos is pretty much a stra
 
 ![ filmora border effects](https://images.wondershare.com/filmora/article-images/filmora-border-effects.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 6**: If you _don't_ see the **Utility** section in the **Effects** tab, head over to the **Search** bar located at the top right corner of the interface and type "**_Border"_** to find the desired effect directly.
 
 **Step 7:** After locating the **Border** effect, tap and hold the effect to drag and drop onto the timeline, as shown in the picture below. You will now see your video with the **Border** effect applied to it.
 
 ![add borders to instagram video](https://images.wondershare.com/filmora/article-images/add-border-to-instagram-video.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 8:** If you're not fond of the _white borders_ applied by default on your video, double-click on the video timeline and head over to the **Video** tab present on the top left corner of the interface, and tap on the **Video Effects**.
 
@@ -370,10 +354,6 @@ For macOS 10.12 or later
 
 _Learn more about [how to edit Instagram videos with Filmora](https://tools.techidaily.com/wondershare/filmora/download/)_.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3: How to Add Border to Video for Instagram Online?
 
 In this part of the guide, we will look at three methods and guide you on how to add border to video for Instagram online using Kapwing, Canva
@@ -389,10 +369,6 @@ It's a free online application for editing photos, movies, and GIFs. It does not
 **Step 2**: Here I will upload a 9:16 aspect ratio video to Kapwing as an example. Kapwing allows you to zoom out the video to make it smaller to make a border around the video. Besides, you can also drag the corners of the video to resize to get the borders.
 
 ![kapwing add borders to video](https://images.wondershare.com/filmora/article-images/zoom-out-video-add-frame.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 3**: When you're happy with the results, go to the top and select **Export Video** to save the video to your computer.
 
@@ -417,10 +393,6 @@ Canva is a must-have software for anybody who modifies both pictures and videos.
 (**Note:** If you'd rather use vibrant colors than plain old white borders, the color tab (top) provides a large color pallet to select from, as shown below).
 
 ![change background color in canva](https://images.wondershare.com/filmora/article-images/change-background-color-border-canva.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Conclusion**
 
@@ -483,17 +455,9 @@ Moreover, adding borders to your favorite Instagram videos is pretty much a stra
 
 ![add borders to instagram video](https://images.wondershare.com/filmora/article-images/add-border-to-instagram-video.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 8:** If you're not fond of the _white borders_ applied by default on your video, double-click on the video timeline and head over to the **Video** tab present on the top left corner of the interface, and tap on the **Video Effects**.
 
 ![adjust borders effects](https://images.wondershare.com/filmora/article-images/filmora-adjust-border-effects.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 9:** The **Video Effect** option opens various options for further customizing your video with the Border effect. You now have the **Color** option to choose the one of your liking (the _red color_ is applied in this picture below).
 
@@ -554,10 +518,6 @@ Canva is a must-have software for anybody who modifies both pictures and videos.
 (**Note:** If you'd rather use vibrant colors than plain old white borders, the color tab (top) provides a large color pallet to select from, as shown below).
 
 ![change background color in canva](https://images.wondershare.com/filmora/article-images/change-background-color-border-canva.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Conclusion**
 
@@ -586,14 +546,22 @@ That is why we decided to compile everything about those new users who cannot fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-determining-better-macbook-air-vs-pro-m1-edition/"><u>[New] 2024 Approved Determining Better MacBook Air Vs. Pro M1 Edition</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-exploring-advanced-techniques-making-a-difference-with-your-slow-motion-images-on-instagram/"><u>[New] 2024 Approved Exploring Advanced Techniques Making a Difference with Your Slow Motion Images on Instagram</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-analyzing-instagrams-per-video-timeframe/"><u>[Updated] In 2024, Analyzing Instagram's Per-Video Timeframe</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-optimize-your-watch-time-on-instagram-videos/"><u>[Updated] Optimize Your Watch Time on Instagram Videos</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-unveiling-the-hidden-accessing-youtube-video-comments/"><u>2024 Approved Unveiling the Hidden Accessing YouTube Video Comments</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/handpicked-selections-ringtones-directly-from-snap/"><u>Handpicked Selections Ringtones Directly From Snap</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/insta-vibes-music-trends-unveiled/"><u>Insta Vibes Music Trends Unveiled</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/seamlessly-change-your-gif-images-to-png-files-for-free-discover-how-with-movavi/"><u>Seamlessly Change Your GIF Images to PNG Files For Free – Discover How with Movavi</u></a></li>
-<li><a href="https://win11.techidaily.com/tackling-failed-screen-mirroring-troubleshooting-guide-for-windows-users/"><u>Tackling Failed Screen Mirroring: Troubleshooting Guide for Windows Users</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-crafting-your-vocal-image-for-instagrams-dynamic-features/"><u>[New] 2024 Approved Crafting Your Vocal Image for Instagram’s Dynamic Features</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-spice-up-stories-tailored-creative-qandas-for-users/"><u>[New] 2024 Approved Spice Up Stories Tailored Creative Q&As for Users</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-capturing-the-essence-of-your-facebook-live-spontaneity/"><u>[New] In 2024, Capturing the Essence of Your Facebook Live Spontaneity</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/treamlined-conversion-at-your-fingertips-top-6-free-apps-for-youtube-and-mp3-for-2024/"><u>[New] Streamlined Conversion at Your Fingertips Top 6 Free Apps for YouTube & MP3 for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-excellent-auditory-recording-devices-for-classrooms/"><u>[Updated] In 2024, Excellent Auditory Recording Devices for Classrooms</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-humor-hits-the-best-funny-youtube-short-ideas-on-the-block/"><u>2024 Approved Humor Hits The Best Funny YouTube Short Ideas on the Block</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/discover-comedy-tear-fusion-in-these-highest-rated-memetic-accounts-for-2024/"><u>Discover Comedy-Tear Fusion in These Highest Rated Memetic Accounts for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/final-cut-pro-x-achieving-perfect-vertical-video-for-instagram-for-2024/"><u>Final Cut Pro X Achieving Perfect Vertical Video for Instagram for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-unlock-icloud-activation-lock-and-icloud-account-on-iphone-se-2022-by-drfone-ios/"><u>How to Unlock iCloud Activation Lock and iCloud Account On iPhone SE (2022)?</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-connecting-consciously-with-content-craftsmen-of-your-realm/"><u>In 2024, Connecting Consciously with Content Craftsmen of Your Realm</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-pattern-locks-are-unsafe-secure-your-xiaomi-redmi-note-12-pro-4g-phone-now-with-these-tips-by-drfone-android/"><u>In 2024, Pattern Locks Are Unsafe Secure Your Xiaomi Redmi Note 12 Pro 4G Phone Now with These Tips</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-pioneering-the-future-of-instagram-downloads/"><u>In 2024, Pioneering the Future of Instagram Downloads</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/instagrams-sequential-visual-showcase/"><u>Instagram's Sequential Visual Showcase</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/make-my-video-perfectly-fit-instagram/"><u>Make My Video Perfectly Fit Instagram?</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-elevate-your-storytelling-easy-video-editing-with-gopro-quik-on-macbook/"><u>New In 2024, Elevate Your Storytelling Easy Video Editing with GoPro Quik on MacBook</u></a></li>
+<li><a href="https://techtrends.techidaily.com/steps-to-achieving-official-verification-status-on-instagram/"><u>Steps to Achieving Official Verification Status on Instagram</u></a></li>
+<li><a href="https://article-files.techidaily.com/tiktok-effect-overhaul-the-two-pronged-approach-for-2024/"><u>TikTok Effect Overhaul The Two-Pronged Approach for 2024</u></a></li>
 </ul></div>
 

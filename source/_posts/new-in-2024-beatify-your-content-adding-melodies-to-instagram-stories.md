@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Beatify Your Content  Adding Melodies to Instagram Stories\""
-date: 2025-02-15T00:02:14.217Z
-updated: 2025-02-18T02:19:53.751Z
+date: 2025-02-28T18:43:55.961Z
+updated: 2025-03-06T16:03:47.163Z
 tags:
   - ai video
   - ai instagram
@@ -41,17 +41,9 @@ To start with, just launch the Instagram application on your phone and tap on th
 
 ![ Add Story Button](https://images.wondershare.com/filmora/article-images/add-story.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 This will launch a dedicated interface for Instagram Story. Here, you can use your camera to click a picture or record a mini video. If you want, you can also upload an existing picture or video as your story as well. Once you have taken a snap, just scroll up your screen to get various add-on features for your story. From here, just tap on the “Music” option to add music to IG story.
 
 ![ Add Music](https://images.wondershare.com/filmora/article-images/select-music.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 2. Select any song of your choice
 
@@ -99,10 +91,6 @@ Instagram also keeps rotating different filters that we can add to our stories. 
 
 ![ Inbuilt IG Filters](https://images.wondershare.com/filmora/article-images/inbuilt-ig-filters.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### Add polls, challenges, countdowns, and more
 
 Apart from adding music, Instagram also lets us add tons of other things to our story. You can mention any other user in your story or add a location to get more views. There are also options to add a hashtag or create a poll. You can also find different challenges to explore (like the ice bucket challenge) to post your story under a specific category.
@@ -119,17 +107,9 @@ If you plan to add video content to your Instagram stories, then consider using 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 There you go! Now when you know how to add music to IG Story, you can easily post impressive content on your Instagram profile. For your convenience, I have come up with a stepwise guide on how to put music on IG story that you can easily follow. Besides that, I have also listed some expert tips that you can implement to post visually stunning stories. Go ahead and try these tips and share this guide with your friends to help them add music to IG story as well.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -146,16 +126,15 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-caption-creation-for-non-native-audiences-in-igtv-for-2024/"><u>[New] Caption Creation for Non-Native Audiences in IGTV for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-the-key-to-rising-roi-in-facebooks-animated-advertising-sector/"><u>[New] The Key to Rising ROI in Facebook's Animated Advertising Sector</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-mastering-video-cuts-for-instagram-feed/"><u>2024 Approved Mastering Video Cuts for Instagram Feed</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-infinix-note-30-pro-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Infinix Note 30 Pro | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/boost-your-instagram-influence-5-key-tactics-for-enhanced-followers/"><u>Boost Your Instagram Influence 5 Key Tactics for Enhanced Followers</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/click-worthy-chronicles-shaping-successful-meme-videos-for-instafb-for-2024/"><u>Click-Worthy Chronicles Shaping Successful Meme Videos for Insta/FB for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-infusing-vibrancy-into-stories-a-guide-to-choosing-the-right-emojis/"><u>In 2024, Infusing Vibrancy Into Stories A Guide to Choosing the Right Emojis</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-ispoofer-is-not-working-on-realme-gt-neo-5-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, iSpoofer is not working On Realme GT Neo 5? Fixed | Dr.fone</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-revolutionize-your-tiktok-photos-with-proven-hacks/"><u>In 2024, Revolutionize Your TikTok Photos with Proven Hacks</u></a></li>
-<li><a href="https://techtrends.techidaily.com/navigating-the-details-a-guide-to-zooming-inout-on-iphone-or-ipad/"><u>Navigating the Details: A Guide to Zooming In/Out on iPhone or iPad</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/step-by-step-guide-to-crafting-compelling-squares-for-facebook-for-2024/"><u>Step-by-Step Guide to Crafting Compelling Squares for Facebook for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-from-frames-to-frequencies-transforming-instagram-videos/"><u>[Updated] 2024 Approved From Frames to Frequencies Transforming Instagram Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-20plus-hashes-to-skyrocket-your-short-films-popularity/"><u>[Updated] In 2024, 20+ Hashes to Skyrocket Your Short Film's Popularity</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-unleash-your-social-media-potential-find-the-best-8-instagram-timers-for-2024/"><u>[Updated] Unleash Your Social Media Potential Find the Best 8 Instagram Timers for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-unlock-youtube-monetization-with-500-subscribers/"><u>[Updated] Unlock YouTube Monetization with 500 Subscribers</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-elevate-your-creative-content-on-instagram-using-loops/"><u>2024 Approved Elevate Your Creative Content on Instagram Using Loops</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/erase-unwanted-black-fringes-on-youtube-tracks/"><u>Erase Unwanted Black Fringes on YouTube Tracks</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-infinix-smart-8-plus-is-unlocked-by-drfone-android/"><u>How To Check if Your Infinix Smart 8 Plus Is Unlocked</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-reign-supreme-with-these-ultimate-10-innovative-ideas-for-igtv-video-content/"><u>In 2024, Reign Supreme with These Ultimate 10 Innovative Ideas for IGTV Video Content</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/keep-your-asus-computer-running-smoothly-with-updated-drivers/"><u>Keep Your ASUS Computer Running Smoothly with Updated Drivers</u></a></li>
+<li><a href="https://fox-that.techidaily.com/troubleshooting-top-9-issues-with-icloud-on-ios-devices-solutions-inside/"><u>Troubleshooting Top 9 Issues with iCloud on iOS Devices: Solutions Inside</u></a></li>
 </ul></div>
 

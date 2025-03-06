@@ -1,7 +1,7 @@
 ---
 title: "Optimizing Your Disco Elysium Adventure: How to Fix PC Crashes & Enjoy the Game Seamlessly"
-date: 2025-02-14T01:56:37.773Z
-updated: 2025-02-17T22:55:46.990Z
+date: 2025-03-02T18:36:32.282Z
+updated: 2025-03-06T18:05:10.022Z
 tags:
   - win11
   - win10
@@ -91,10 +91,6 @@ Or
 ![Driver Easy Scan Now](https://images.drivereasy.com/wp-content/uploads/2021/03/Driver-Easy-Scan-Now.jpg)
 3. Click**Update All** to automatically download and install the correct version of_all_ the drivers that are missing or out of date on your system.  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Update graphics drivers with Driver Easy](https://images.drivereasy.com/wp-content/uploads/2020/09/de-update-all-rtx-3080.jpg)  
  (This requires **[the Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click Update All. If you don’t want to pay for the Pro version, you can still download and install all the drivers you need with the free version; you just have to download them one at a time, and manually install them, the normal Windows way.)
 
@@ -105,10 +101,6 @@ Or
  Run Ghostwire: Tokyo and see if the crashing issue persists. Normally, after you updated the graphics driver, the game crashing issue will disappear.
 
  If the latest graphics driver fails to stop the crash, just read on to try the next fix, below.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Fix 3: Repair corrupted system files
 
@@ -127,26 +119,14 @@ Or
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/fortect-1.jpg)
 3. Fortect will scan your computer thoroughly. This may take a few minutes.  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/fortect-2.jpg)
 4. Once done, you’ll see a detailed report of all the issues on your PC. To fix them automatically, click**START REPAIR** . This requires you to purchase the full version. But don’t worry. If Fortect doesn’t solve the issue, you can request a refund within 60 days.  
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/fortect-3.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Fortect comes with 24/7 Technical Support. If you need any assistance, you can use one of the following:  
 **Email:** <support@fortect.com>  
 **Submit a ticket:** _[https://www.fortect.com/company/contacts/](https://www.reimageplus.com/submit-ticket/)_
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Fix 4: Install the latest game patch
 
@@ -171,10 +151,6 @@ Or
 
  See if Ghostwire: Tokyo crashes again after you installed the latest DirectX file. If this fix didn’t work for you, try the next fix, below.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Fix 6: Stop overclocking
 
  Many gamers would like to overclock the CPU or turbo boost the graphics card for a better FPS. However, this approach often crashes the game.
@@ -194,10 +170,6 @@ Or
 1. Launch Steam and navigate to **the LIBRARY tab** . **right-click** on _Ghostwire: Tokyo_ . Then select **Properties** .  
 ![Steam game properties](https://images.drivereasy.com/wp-content/uploads/2021/04/Steam-game-F1-2020-properties.jpg)
 2. Uncheck **Enable Steam Overlay while in-game** .  
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![disable steam overlay](https://images.drivereasy.com/wp-content/uploads/2021/05/disable-steam-overlay.jpg)
 
@@ -236,21 +208,24 @@ Or
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-expert-techniques-for-transforming-mp4-files-with-vlc/"><u>[New] 2024 Approved Expert Techniques for Transforming MP4 Files with VLC</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-get-into-the-game-starting-an-apple-powered-sports-network/"><u>[New] 2024 Approved Get Into the Game Starting an Apple-Powered Sports Network</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-how-to-use-snap-camera-for-microsoft-teams/"><u>[New] In 2024, How to Use Snap Camera for Microsoft Teams</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-transformations-unlocked-the-2-most-effective-ways-to-convert-video/"><u>[New] In 2024, Transformations Unlocked The 2 Most Effective Ways to Convert Video</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-three-key-strategies-to-frame-your-insta-films-better/"><u>[New] Three Key Strategies to Frame Your Insta Films Better</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-insta-self-portraits-are-they-truly-accurate/"><u>[Updated] In 2024, Insta Self-Portraits Are They Truly Accurate?</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-inverted-illusions-the-art-of-rotating-visuals-for-social-media-success-for-2024/"><u>[Updated] Inverted Illusions The Art of Rotating Visuals for Social Media Success for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/beyond-likes-and-shares-concealed-factors-that-impact-story-consumption/"><u>Beyond Likes & Shares Concealed Factors That Impact Story Consumption</u></a></li>
-<li><a href="https://review-topics.techidaily.com/does-find-my-friends-work-on-tecno-phantom-v-fold-drfone-by-drfone-virtual-android/"><u>Does find my friends work on Tecno Phantom V Fold | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/expert-iphone-videography-strategies-to-elevate-your-work-top-8-for-2024/"><u>Expert iPhone Videography Strategies to Elevate Your Work (Top 8) for 2024</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/get-the-latest-hp-officejet-pro-8600-drivers-for-your-windows-pc-free-downloads-available/"><u>Get the Latest HP Officejet Pro ˈ8600 Drivers for Your Windows PC – Free Downloads Available</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/grand-debut-the-unveiling-of-the-newest-apple-smartphone/"><u>Grand Debut: The Unveiling of the Newest Apple Smartphone</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-best-non-zoom-video-conferencing-tools-desktopmobile/"><u>In 2024, Best Non-Zoom Video Conferencing Tools (Desktop/Mobile)</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-boosting-engagement-and-reach-secrets-of-instagram-video-uploads-on-desktop/"><u>In 2024, Boosting Engagement & Reach Secrets of Instagram Video Uploads on Desktop</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/instagram-to-origins-the-step-by-step-image-trackback/"><u>Instagram to Origins The Step-by-Step Image Trackback</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/overcoming-the-disk-read-error-challenge-in-windows-11-effective-techniques-explored/"><u>Overcoming the 'Disk Read Error' Challenge in Windows 11 – Effective Techniques Explored</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-a-complete-guide-to-downloading-and-backup-of-instagram-vids-on-pcmacos/"><u>[New] 2024 Approved A Complete Guide to Downloading & Backup of Instagram Vids on PC/macOS</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-instacrafts-seamless-video-assemblies-on-androidios/"><u>[New] 2024 Approved InstaCrafts Seamless Video Assemblies on Android/iOS</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-savvy-savers-for-your-instagram-treasures/"><u>[New] 2024 Approved Savvy Savers for Your Instagram Treasures</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-the-secret-behind-crafting-mesmerizing-slow-motion-media-for-instagram/"><u>[New] 2024 Approved The Secret Behind Crafting Mesmerizing Slow Motion Media for Instagram</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-elevating-your-craft-top-camera-optics-for-professional-videos/"><u>[New] Elevating Your Craft Top Camera Optics for Professional Videos</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-hero5-black-vs-yi-4k-the-latest-in-action-cam-showdown/"><u>[Updated] In 2024, Hero5 Black Vs. Yi 4K The Latest in Action Cam Showdown</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-premium-7-dslr-picks-for-ultimate-visual-storytelling-online-for-2024/"><u>[Updated] Premium 7 DSLR Picks For Ultimate Visual Storytelling Online for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-full-facetune-review-the-pathway-to-picture-perfection/"><u>2024 Approved Full Facetune Review The Pathway to Picture Perfection</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-navigating-the-hottest-templates-in-igs-vfx-community/"><u>2024 Approved Navigating the Hottest Templates in IG's VFX Community</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-playback-operation-for-srt-across-operating-systems/"><u>2024 Approved Playback Operation for SRT Across Operating Systems</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/assessing-instagrams-selfie-validation-for-2024/"><u>Assessing Instagram's Selfie Validation for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/can-your-iphone-15-survive-water-encounters-understanding-its-protection-levels/"><u>Can Your iPhone 15 Survive Water Encounters? Understanding Its Protection Levels</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/capturing-content-with-precision-best-practices-for-igtv-video-downloads/"><u>Capturing Content with Precision Best Practices for IGTV Video Downloads</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/get-started-with-openais-new-gpt-personalized-store-begin-using-immediately/"><u>Get Started with OpenAI's New GPT Personalized Store – Begin Using Immediately</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-can-i-use-a-fake-gps-without-mock-location-on-honor-90-lite-drfone-by-drfone-virtual-android/"><u>How Can I Use a Fake GPS Without Mock Location On Honor 90 Lite? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-changefake-your-samsung-galaxy-m34-location-on-viber-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Fake Your Samsung Galaxy M34 Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-insta-magic-rotation-elevate-your-video-game/"><u>In 2024, Insta-Magic Rotation Elevate Your Video Game</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/instagram-edge-adjusting-fcpx-to-vertical-footage/"><u>Instagram Edge Adjusting FCPX to Vertical Footage</u></a></li>
+<li><a href="https://program-issues.techidaily.com/successful-fix-for-mir4-performance-issues-in-pc-environments/"><u>Successful Fix for MIR4 Performance Issues in PC Environments</u></a></li>
 </ul></div>
 

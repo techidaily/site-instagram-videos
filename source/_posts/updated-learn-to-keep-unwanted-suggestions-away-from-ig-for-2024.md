@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Learn to Keep Unwanted Suggestions Away From IG for 2024"
-date: 2025-02-12T00:16:05.318Z
-updated: 2025-02-18T02:22:44.313Z
+date: 2025-03-04T18:55:58.301Z
+updated: 2025-03-06T16:58:33.003Z
 tags:
   - ai video
   - ai instagram
@@ -71,31 +71,15 @@ Here's what you need to do:
 
 ![click on not interested on suggested posts](https://images.wondershare.com/filmora/article-images/instagram-suggestion-posts-options.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 6:** That post and user will be removed, and instead of that, you will see a message by Instagram asking for feedback. You can click on the option: I don't want to see posts from this account, and Instagram won't show you that user's posts.
 
 ![choose your feedback option](https://images.wondershare.com/filmora/article-images/instagram-suggestion-posts-feedback.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Now, you can apply the same steps for the rest of the posts as well. But do keep in mind that suggested posts will still appear. And you will have to apply this setting for each one so that you are shown fewer posts of unknown people.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: How to Delete Suggested Users from Instagram?
 
 If you don't want to see suggested users on your Instagram feed, there is a way to remove unknown users actually. You can do it by using your web browser or Instagram mobile app. Whichever is comfortable to use. However, please note that these steps have to be followed for each suggested user. Now, please use that and then follow these steps.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### For Instagram app users
 
@@ -124,10 +108,6 @@ Just like Instagram show you suggested users and posts, your account gets recomm
 **Step 3:** Scroll down towards the bottom, and you will find the similar account suggestions section. In this section, you will see a checkbox. You need to uncheck that if you don't want your name to appear as a suggested user.
 
 ![ uncheck the similar account suggestions box](https://images.wondershare.com/filmora/article-images/uncheck-similar-account-suggestions.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 5: How Does Instagram Suggestions Work?
 
@@ -162,24 +142,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-becoming-an-insta-star-with-simple-steps/"><u>[Updated] 2024 Approved Becoming an Insta-Star with Simple Steps</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-capturing-honesty-a-comprehensive-guide-to-insta-self-verification-for-2024/"><u>[Updated] Capturing Honesty A Comprehensive Guide to Insta Self-Verification for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-instagram-filmmaking-the-art-of-virtual-backdrop-integration/"><u>[Updated] Instagram Filmmaking The Art of Virtual Backdrop Integration</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-mastering-instagrams-musical-licensing-landscape-for-2024/"><u>[Updated] Mastering Instagram's Musical Licensing Landscape for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-melodies-for-memories-music-tips-for-reels-on-instagram-for-2024/"><u>[Updated] Melodies for Memories Music Tips for Reels on Instagram for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-transforming-igtv-with-multi-language-captioning-for-2024/"><u>[Updated] Transforming IGTV with Multi-Language Captioning for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-market-leading-6-social-channels-for-business-advancement/"><u>2024 Approved Market-Leading 6 Social Channels for Business Advancement</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-unveiling-the-secrets-to-smm-mastery-a-comprehensive-guide-in-10-stages/"><u>2024 Approved Unveiling the Secrets to SMM Mastery A Comprehensive Guide in 10 Stages</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/audio-from-visuals-making-mp3s-from-instagram-content/"><u>Audio From Visuals Making Mp3s From Instagram Content</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/elevating-skype-discussions-through-smart-zoom-practices/"><u>Elevating Skype Discussions Through Smart Zoom Practices</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/enhancing-selfie-impact-on-instagram-the-zoom-guide-for-2024/"><u>Enhancing Selfie Impact on Instagram The Zoom Guide for 2024</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-google-frp-lock-on-honor-x7b-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock on Honor X7b Devices</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-debunking-myths-top-10-realities-of-instagram-reels/"><u>In 2024, Debunking Myths Top 10 Realities of Instagram Reels</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/increased-susceptibility-to-sepsis/"><u>Increased Susceptibility to Sepsis</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/prioritizing-visibility-a-guide-to-insta-highlights-perfection-for-2024/"><u>Prioritizing Visibility A Guide to Insta Highlights Perfection for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/mlining-video-features-youtube-annotations-guide-for-2024/"><u>Streamlining Video Features YouTube Annotations Guide for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/tribit-xsound-mega-a-bluetooth-speaker-that-elevates-your-listening-experience-with-its-30w-output-and-unmatched-audio-range-zdnet-review/"><u>Tribit XSound Mega: A Bluetooth Speaker That Elevates Your Listening Experience With Its 30W Output and Unmatched Audio Range | ZDNET Review</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-xiaomi-13t-pro-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For Xiaomi 13T Pro? | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/why-does-my-infinix-hot-40-pro-keep-turning-off-by-itself-6-fixes-are-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Does My Infinix Hot 40 Pro Keep Turning Off By Itself? 6 Fixes Are Here | Dr.fone</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1722977418653-new-release-quick-setup-of-intel-ac-3160-wifi-card-update-your-network-adapter-driver-now/"><u>[NEW RELEASE] Quick Setup of Intel AC 3160 WiFi Card - Update Your Network Adapter Driver Now!</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-the-ultimate-rankings-leading-gopro-case-models-for-2024/"><u>[New] The Ultimate Rankings Leading GoPro Case Models for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-top-5-essential-mac-live-streaming-apps-for-2024/"><u>[New] Top 5 Essential Mac Live Streaming Apps for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-discover-10-leading-online-video-editors-android-pc/"><u>[Updated] 2024 Approved Discover 10 Leading Online Video Editors (Android, PC)</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-transform-your-virtual-engagements-with-these-top-10-cost-free-tools/"><u>[Updated] 2024 Approved Transform Your Virtual Engagements with These Top 10 Cost-Free Tools</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-enhance-your-imagery-a-step-by-step-guide-for-instagram-videos-for-2024/"><u>[Updated] Enhance Your Imagery A Step-by-Step Guide for Instagram Videos for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-mastering-sound-effects-voice-customization-on-instagram/"><u>[Updated] In 2024, Mastering Sound Effects Voice Customization on Instagram</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-perfect-posts-every-time-mastering-instagram-video-uploads-on-desktop-for-2024/"><u>[Updated] Perfect Posts Every Time Mastering Instagram Video Uploads on Desktop for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-elevating-vision-a-compre-written-by-jovita-lara-msn-student-arizona-state-university/"><u>2024 Approved Elevating Vision A Compre Written By Jovita Lara, MSN Student (Arizona State University)</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/cutting-edge-strategies-for-igtv-backgrounds-for-2024/"><u>Cutting-Edge Strategies for IGTV Backgrounds for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/easily-access-igtv-content-download-guide-for-pcmac-users-for-2024/"><u>Easily Access IGTV Content Download Guide for PC/Mac Users for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/enhancing-content-reach-igtv-and-facebook-synergy-for-2024/"><u>Enhancing Content Reach IGTV & Facebook Synergy for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-itel-p40-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Itel P40? | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-diving-deep-into-your-twitter-archive/"><u>In 2024, Diving Deep Into Your Twitter Archive</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/pci-encryptiondecryption-controller-driver-issues-fixed/"><u>PCI Encryption/Decryption Controller Driver Issues [Fixed]</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/step-by-step-tutorial-activating-and-utilizing-live-view-in-google-maps/"><u>Step-by-Step Tutorial: Activating and Utilizing Live View in Google Maps</u></a></li>
 </ul></div>
 

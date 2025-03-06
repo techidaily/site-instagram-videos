@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Stepwise Addition of Language Overlays in IGTV Videos\""
-date: 2025-02-12T21:11:44.849Z
-updated: 2025-02-17T17:11:20.591Z
+date: 2025-03-03T19:02:28.465Z
+updated: 2025-03-06T17:24:38.638Z
 tags:
   - ai video
   - ai instagram
@@ -27,10 +27,6 @@ thumbnail: https://thmb.techidaily.com/37be59bd79492103146c553d037e355365677b206
 
 During the process of editing an IGTV video, you have to think about the audience that is going to watch that video. The vast majority of people who can see your IGTV posts will be viewing them from a mobile device, which is why your content has to be mobile-friendly. Subtitles should be included in all videos you post on IGTV since they will make your videos more accessible to people with hearing impairment as well as to those IGTV users who for whatever reason can’t turn on the sound while they are watching your video. Read on if you would like to find out how you can add subtitles to IGTV videos because in this article we are going to show you how you can accomplish this effortlessly.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Add Subtitles to IGTV Videos from Mac and PC Computers Using Filmora
 
 IGTV videos are vertically oriented, so you can’t just create an SRT file that contains the subtitles. The subtitles for IGTV videos have to be hardcoded. This means that the subtitles are going to be an integral part of the video and that you have to add them to the video during the post-production process.
@@ -45,10 +41,6 @@ Choose the **New Project** option and then once the project opens, head over to 
 
 ![ Filmora0 Create New Project](https://images.wondershare.com/filmora/article-images/filmora9-4k-project-settings.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Click on the **OK button** to confirm the changes, and then go to the **Media panel** to import the video you would like to edit. The fastest way to add media files to your project is to just drag them from the folder in which they are stored and drop them to the Media panel. You can also click on the **Import** drop-down menu and select the **Import Media Files** option from the list.
 
 Place the video file on the timeline, and then return to the **File menu**, and click on the **Preferences** option. Click on the **Editing tab** in the **Preferences window** and make sure that the **Crop to Fit feature** is selected in the **Photo Placement drop-down** menu.
@@ -56,10 +48,6 @@ Place the video file on the timeline, and then return to the **File menu**, and 
 Click on the **Ok button** to confirm the changes, and then proceed to add the **Basic Blur effect** to the video from the **Background Blur submenu** in the **Effects** panel.
 
 ![ Filmora0 Create New Project](https://images.wondershare.com/filmora/article-images/add-background-blur-effects-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 You can then cut or trim the video, add filters or perform any other video editing action you want. Keep in mind **that you shouldn’t start adding subtitles before you finish editing your IGTV video.** When you have the final draft of the video ready, you should **make a transcript**. You can do this by exporting the video from Filmora, and uploading it to YouTube in order to automatically create closed captions, but it is much better if you create the transcript manually, because that way you will reduce the chances of making a mistake.
 
@@ -79,10 +67,6 @@ Once you’re done adding the subtitles you should click on the **Photo Camera i
 
 In case you like editing IGTV videos from your phone, you can try adding subtitles to your IGTV videos with the Quik app. After you’ve completed all other video editing tasks, you should tap on the **Text icon** and type in the text you’d like to add to the video. Hit the **OK button** after you’ve added the text and that’s it you’ve successfully created the subtitles for your IGTV video. How long the process of creating hardcoded subtitles is going to last depends on the duration of the video and the amount of narration or dialogue in the video.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Tips for Adding Subtitles to IGTV Videos
 
 While adding text to your IGTV you must **pay close attention that the text is clearly visible on the screen** and that the app’s interface isn’t going to cover it once you upload the video to IGTV. Furthermore, **the text color** should match the background so that the viewers can easily read everything that is displayed on the screen**. Avoid placing the text too close to the edges of the frame,** since different phone models have slightly different aspect ratios. As a consequence, your IGTV videos are going to be **cropped**, and parts of the subtitles can be rendered invisible to the audience. That’s why you have to **position the text within the frame carefully** and do your best to overcome the technical limitations imposed by the IGTV platform.
@@ -92,10 +76,6 @@ While adding text to your IGTV you must **pay close attention that the text is c
 Even though adding subtitles to videos can require a lot of precision and attention to detail, it can help you produce content that attracts a lot of attention on IGTV. However, most videos shared on IGTV don’t surpass a two-minute mark, so even if there is a lot of dialogue, you can add hardcoded subtitles to a video in a relatively short period of time. What is your favorite method of adding subtitles to the videos you upload to your IGTV channel? Leave a comment below and share your experiences with us.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -112,24 +92,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-backpedaling-through-imagery-an-insiders-guide-to-finding-originals-in-instagram/"><u>[New] 2024 Approved Backpedaling Through Imagery An Insider's Guide to Finding Originals in Instagram</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-effective-strategies-for-capturing-online-gatherings-mac-pc/"><u>[New] 2024 Approved Effective Strategies for Capturing Online Gatherings (Mac, PC)</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-enriching-insta-videos-employ-three-dynamic-description-techniques/"><u>[New] Enriching Insta Videos Employ Three Dynamic Description Techniques</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-ensure-video-perfection-before-sharing-on-instagram/"><u>[New] Ensure Video Perfection Before Sharing on Instagram</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-diy-guide-screen-capture-and-sound-from-youtube/"><u>[New] In 2024, DIY Guide Screen Capture & Sound From YouTube</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-effortlessly-manage-followers-with-top-twitter-cleanup-apps/"><u>[New] In 2024, Effortlessly Manage Followers with Top Twitter Cleanup Apps</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-unlocking-audible-content-from-twitter-videos/"><u>[New] Unlocking Audible Content From Twitter Videos</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-your-ultimate-guide-to-capturing-underwater-wonders-for-2024/"><u>[New] Your Ultimate Guide to Capturing Underwater Wonders for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-ace-your-content-game-on-instagram-with-these-6-powerful-apps/"><u>[Updated] 2024 Approved Ace Your Content Game on Instagram with These 6 Powerful Apps</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-instagram-ae-essentials-the-most-loved-templates/"><u>[Updated] 2024 Approved Instagram AE Essentials The Most Loved Templates</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-charting-the-course-to-earnings-with-youtube-videos-for-2024/"><u>[Updated] Charting the Course to Earnings with YouTube Videos for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-beam-your-best-selecting-the-stirring-photos-on-instagram/"><u>[Updated] In 2024, Beam Your Best Selecting the Stirring Photos on Instagram</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-make-a-splash-with-instagram-reels-using-tried-and-true-tiktok-hacks-for-2024/"><u>[Updated] Make a Splash with Instagram Reels Using Tried-and-True TikTok Hacks for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/cut-and-paste-success-enhancing-videos-for-instagram-shares-for-2024/"><u>Cut & Paste Success Enhancing Videos for Instagram Shares for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/how-to-deactivate-facebook-on-android/"><u>How to Deactivate Facebook on Android</u></a></li>
-<li><a href="https://extra-information.techidaily.com/step-by-step-journey-to-captivating-hdr-portraits/"><u>Step-by-Step Journey to Captivating HDR Portraits</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/step-by-step-uploading-videos-to-instagram-on-desktop/"><u>Step-by-Step Uploading Videos to Instagram on Desktop</u></a></li>
-<li><a href="https://techidaily.com/three-methods-to-recover-lost-data-on-samsung-galaxy-s24-ultra-by-fonelab-android-recover-data/"><u>Three methods to recover lost data on Samsung Galaxy S24 Ultra</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/updated-2024-approved-the-three-key-techniques-to-uniform-audio-amplitude/"><u>Updated 2024 Approved The Three Key Techniques to Uniform Audio Amplitude</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-framefixer-feedback-complete-editor-analysis/"><u>[New] 2024 Approved FrameFixer Feedback – Complete Editor Analysis</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-hashtag-hacks-the-top-25-tactics-to-elevate-your-instagram-profile/"><u>[New] Hashtag Hacks The Top 25 Tactics to Elevate Your Instagram Profile</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-mastering-instagram-picture-perfection-expert-tips-unveiled/"><u>[New] In 2024, Mastering Instagram Picture Perfection Expert Tips Unveiled</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-understanding-the-dynamics-of-instagram-unfollows/"><u>[New] In 2024, Understanding the Dynamics of Instagram Unfollows</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-explore-the-ultimate-list-of-comedy-tears-on-instagram/"><u>[Updated] 2024 Approved Explore the Ultimate List of Comedy-Tears On Instagram</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-ios-insiders-list-top-rated-downloading-apps-for-video-buffs/"><u>[Updated] 2024 Approved IOS Insider's List Top-Rated Downloading Apps for Video Buffs</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-canons-spectral-conversion-paid-and-gratis-lut-tools/"><u>[Updated] Canon's Spectral Conversion Paid & Gratis LUT Tools</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-insta-gone-locating-the-disappeared-fans/"><u>[Updated] Insta Gone? Locating the Disappeared Fans</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-instagrams-secret-weapons-for-follower-increase-for-2024/"><u>[Updated] Instagram's Secret Weapons for Follower Increase for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-mastering-the-art-of-filters-on-instagram-your-2023-manual/"><u>[Updated] Mastering the Art of Filters on Instagram Your 2023 Manual</u></a></li>
+<li><a href="https://howto.techidaily.com/9-solutions-to-fix-lava-storm-5g-system-crash-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Lava Storm 5G System Crash Issue | Dr.fone</u></a></li>
+<li><a href="https://windows11.techidaily.com/essential-steps-for-recognizing-and-fixing-disabled-hard-drives-in-windows-11/"><u>Essential Steps for Recognizing and Fixing Disabled Hard Drives in Windows 11</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-location-on-tiktok-to-see-more-content-on-your-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>How to Change Location on TikTok to See More Content On your Apple iPhone SE | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-samsung-galaxy-a05s-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>How to Fix Samsung Galaxy A05s Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-crafting-dynamic-image-ensembles-with-precision/"><u>In 2024, Crafting Dynamic Image Ensembles with Precision</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-your-facebook-space-against-unwanted-surveillinas/"><u>Secure Your Facebook Space Against Unwanted Surveillinas</u></a></li>
 </ul></div>
 
